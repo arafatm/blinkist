@@ -1,0 +1,118 @@
+![Outwitting the Devil](https://images.blinkist.com/images/books/5b46be8ab238e1000718d551/1_1/470.jpg)
+# Outwitting the Devil
+*Napoleon Hill*
+
+>Originally written in 1938, Napoleon Hill’s Outwitting the Devil (2011) remained an unpublished manuscript for over seventy years. Edited and annotated by Sharon Lechter, who contextualizes the content for contemporary readers, Hill’s book is a compendium of advice on how to succeed in life. Readers now have full access to Hill’s personal beliefs on the forces that are holding us back from leading a successful life and the principles that will enable us to overcome those forces.
+
+
+# What’s in it for me? Get long-lost advice from a classic self-help author.
+
+Napoleon Hill was a much-needed voice of positivity during the dark days of the Great Depression. But that voice was once stifled. Though written in 1938, *Outwitting the Devil* wasn’t published until 2011 because Hill had some controversial thoughts about churches and schools, which, to his mind, discouraged individuality and kept people in a stifling web of fear.
+
+So here we are 70 years later, and Hill’s book is finally seeing the light of day. In some ways, this narrative is very much in line with Hill’s belief in perseverance and resisting the urge to give up. As you’ll see, the advice here is centered around the power of positive thinking, finding the silver lining of every temporary setback and surrounding yourself with good influences.
+
+In these blinks, you’ll learn
+
+- how to avoid becoming a drifter;
+
+- the importance of keeping an eye on bad habits; and
+
+- what a jockey can teach us about perseverance.
+
+
+# Being led by fear rather than faith is a primary cause of failure.
+
+Is there a dream you’ve held onto for years but have been afraid to pursue? There probably is, since, in the author’s estimation, 98 percent of us are letting our minds be controlled by fear. As a result, we tend to drift through life without thinking for ourselves or following our own desires.
+
+The fear that causes us to drift is instilled early on. First, there are the churches that teach children to beware of the insidious “Devil.” Then there are the schools that offer very little preparation for children to be individuals in the real world, and focus instead on having students memorize endless facts and figures.
+
+The author, Napoleon Hill, learned firsthand about this overwhelming fear and lack of individuality while working toward his life goal: creating the first philosophy of individual achievement.
+
+For years, he’d interviewed people about their successes and failures, but his notes were starting to become aimless, and they certainly didn’t add up to a concrete philosophy. He was stuck and his mind was fogged with fear and indecision.
+
+Then, one day, he had an epiphany. While out walking and taking in some much-needed fresh air, he was suddenly confronted by a voice that felt like his “other self” talking to him. The voice was commanding, and it told Hill that he *could* finish his manuscript on the philosophy of individual achievement; all he had to do was stop giving in to fear and doubt.
+
+Hill came to believe that this voice represented something we all possess. He calls it *Infinite Intelligence* – an abundance of faith and positive energy that we can always tap into as long as we keep doubt, fear and worry from our mind.
+
+Thanks to this voice, Hill was able to push his fear aside, put in the necessary work and finish his book. As a result, Hill became the first great writer of the self-help genre, and his work continues to be read worldwide.
+
+In other words, Hill became a *non-drifter*, which is someone who knows that the key to success is becoming the master of your own mind.
+
+# Getting what you want from life takes positive thinking and a clear purpose.
+
+Hill’s breakthrough came, in part, because he had a very clear goal in life. If you want to increase your chances of success, you’ll have to find a life goal of your own. Indeed, identifying your goal is all-important, since a person’s success often hinges on whether or not he knows what he wants.
+
+Now, this work can’t be done for you; neither school nor church can determine your path in life. So it’s lucky that you (and everyone else on Earth) has an invaluable privilege. We’re all self-determining.
+
+Even in the worst of situations, we have a choice: we can let our mind fill either with positive or with negative thoughts.
+
+For example, a lot of people struggled during the Great Depression, but some had the self-determination to stay positive and accomplish greatness. Take Henry Ford. Like so many other people of his time, he could have let the prevailing negative thoughts cloud his mind. But, instead, Ford kept fear at bay and didn’t let negative thinking get in the way of his developing one of the biggest automobile companies in America. Ultimately, it was determination and positive thinking that helped him create assembly-line manufacturing and realize his dream of producing an affordable car that every middle-class American could buy.
+
+So remember, the most important determining factor for success is whether you choose to think negatively or positively.
+
+And when you combine positive thinking with a definite goal in life, you’ll be on your way to avoiding the fate of being a drifter.
+
+Franklin D. Roosevelt is another great example. He had a very clear purpose when he became president of the United States: to sweep away the fear that had been persisting since the start of the Great Depression and to shift the nation’s focus away from depression and toward recovery.
+
+When asked about the major problem facing the United States, Roosevelt replied, “It is not a question of majors and minors; we have but one problem and that is to stop fear and supplant it with faith.”
+
+This was a definite plan, and it worked – it allowed Roosevelt to immediately take control and put America on the road to recovery.
+
+As the saying goes, “You reap what you sow.” In other words, your results are going to reflect your effort. And once you start thinking positively and pursue your goals, you’ll soon find how effective having a purpose can really be.
+
+# Developing positive habits, and surrounding yourself with people who possess such habits, is key to success.
+
+Whether the ostensible culprit is poor eating habits or an irregular sleeping schedule, people are great at coming up with excuses for bad and unproductive behavior. The real danger, however, is when those habits start to become a regular way of life.
+
+When drinking ceases to be a monthly activity and starts becoming a daily one, then you may be falling victim to what the author terms the *law of hypnotic rhythm* – a fixed engagement in habitual behaviors.
+
+This law applies to both bad and good habits. However, you should be especially wary of negative habits since they can quickly have a devastating effect on your life.
+
+For example, most headaches and other illnesses are caused by overeating or indulging in the wrong kinds of foods. And when people develop bad eating habits, their ability to function can deteriorate and their goals can go out the window.
+
+The same can happen with other habits, such as sex, which can become such a strong focus of desire that all other goals fall away.
+
+To avoid such habits, successful people tend to surround themselves with people who have positive habits. After all, it’s common knowledge that the habits of the people around you will rub off on you.
+
+This would seem like a simple enough strategy, yet most people go through life accepting their circumstances instead of pursuing better ones.
+
+A good example of someone who *didn’t *just accept his circumstances is Andrew Carnegie, who served as a mentor to the author. The philanthropist and business titan did what many other successful leaders have done; he surrounded himself with successful people.
+
+So, if you find yourself being negatively influenced by the dark moods of your friends or colleagues, it may be time to find peers with better attitudes.
+
+# Successful people understand the importance of learning from failure.
+
+If you once pursued a project and, in the end, were met with failure, you may have taken this as a sign to give up. But successful people know that failures are only a rough patch on the road to reaching their goals.
+
+Take Thomas Edison – the man behind the light bulb, the phonograph and a long list of other revolutionary inventions. He had to go through dozens of failures before he successfully realized any of his visions.
+
+There are likely thousands of people more intelligent than Edison. What really set him apart and put him into the history books was his perseverance in the face of countless setbacks.
+
+During the Great Depression, the author published *Think and Grow Rich* (1937), which helped people see beyond the hard times and disappointments of that decade. And that book’s advice still holds true today. We always need to find a way of creating goals in spite of whatever desolate circumstances we may find ourselves in. To this day, the author’s 1937 book remains among the top ten self-help books of all time.
+
+Another habit many successful people have is to recognize that any given failure may be the seed that grows into success.
+
+Every problem you encounter will have a solution, so there’s no reason to think of failure as anything other than a temporary state of mind.
+
+For example, Julie Krone was told time and time again that she couldn’t be a professional jockey because none of the horse owners wanted a female jockey. But Krone had a motto: “Keep showing up!” And sure enough, she wore those horse owners down until they finally let her ride.
+
+Julie Krone became a champion jockey. Indeed, years later, *USA Today *listed her as one of the toughest athletes in history.
+
+If you have your dream, don’t let someone else’s negative attitude make you think it can’t be done.
+
+# Final summary
+
+The key message in these blinks:
+
+**We all have good thoughts and bad thoughts. Sometimes that inner voice tells us to keep fighting and other times it tells us to give up. Fortunately, we can choose to listen to the positive voice and follow it while ignoring the negativity and pushing aside the fear that keeps so many people from making their dreams come true. By recognizing our fears, exercising the power of positive thinking and following a clear plan, we can all overcome failure and achieve our deepest desires.**
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****The Science of Getting Rich *****by  Wallace D. Wattles**
+
+*The Science of Getting Rich *(1910) is a self-help classic, where the author presents his guide for attaining a life of abundance. These blinks explain how to use directed thinking to attract opportunity and opulence while accomplishing anything you want.
+
+
+Source: [Outwitting the Devil by Napoleon Hill](https://www.blinkist.com/en/nc/daily/reader/outwitting-the-devil-en/)

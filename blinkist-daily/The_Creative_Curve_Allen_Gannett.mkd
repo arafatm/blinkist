@@ -1,0 +1,140 @@
+![The Creative Curve](https://images.blinkist.com/images/books/5b5e72cab238e10007a4bbb0/1_1/470.jpg)
+# The Creative Curve
+*Allen Gannett*
+
+>The Creative Curve (2018) provides valuable insights into the true nature of talent. Using examples from scientific research, as well as anecdotal evidence from the careers of certified geniuses, these blinks explore whether creative success is the result of unique inspiration or something far more predictable.
+
+
+# What’s in it for me? Learn the secrets of creative success.
+
+Open the pages of a history book, or stroll into a museum, and it won’t be long before you come across men and women regarded as geniuses. People whose remarkable talents have helped shape the history of art, literature and science. But how did these people become so accomplished in their creative fields, and how can we emulate their success?
+
+In these blinks, we’ll explore the scientific and social underpinnings of success. We’ll go on a journey that looks at some of history’s geniuses – such as Leonardo da Vinci and Charles Darwin – and ask whether their success was down to unique inspiration, convenient timing or merely good luck. We’ll look at the sorts of friends and teachers the most successful people had by their side, and explore the hidden phenomenon behind many successful products and creative ideas: *the creative curve*.
+
+In the following blinks, you’ll discover
+
+- the surprising truth about the relationship between intelligence and creativity;
+
+- the reason why the most popular creative ideas are more familiar than they are original; and
+
+- how your friends influence your creative potential.
+
+
+# Creativity is fueled by purposeful practice, not intelligence.
+
+How creative would you say you are? If you want to find out, start by trying to think of as many uncommon ways you could use a hairdryer as possible. One idea might be to use it as a leaf blower. This exercise is a test of your ability for *divergent thinking* – the ability to find multiple solutions to a problem. Divergent thinking is strongly associated with creativity. In other words, the more ways you thought of using that hairdryer, the more creative potential you probably have.
+
+Looking at people’s divergent thinking abilities has helped scientists understand the relationship between creativity and intelligence.  
+
+In 2013, Austrian psychologists investigating creativity and intelligence found that once participants’ IQ scores went above 86, their score was no longer predictive of their divergent thinking abilities. A person with a genius-level IQ of 150 was no more likely to think of more solutions to a problem than someone with a more average IQ of 100. In other words, beyond a relatively low threshold, your overall intelligence makes no difference to your potential for creativity.
+
+Around 80% of the world’s population has an IQ above this threshold of 86. Astoundingly, this means that roughly three billion people are walking around with the same creative potential as the geniuses we are taught to idolize.
+
+So how can more of us unlock this potential?
+
+Research indicates that it all comes down to practice. But not just any type of practice – it must enable you to expand your skills and challenge yourself.
+
+Studies by Professor K. Anders Ericsson of Florida State University have found that to become an expert in any field, one must practice in a way that emphasizes tangible goals and continual feedback. When studying professional violinists, Ericsson found that although all the violinists spent a similar number of hours practicing, the most accomplished among them were more purposeful: The most expert performers would ensure that a teacher regularly listened to and critiqued their playing, thus providing a feedback mechanism. They also asked their teachers to assign practice exercises they weren’t yet proficient at and worked on them until they became competent. In this way, they always had clear goals to work toward.
+
+So if you want to unleash your creative potential, don’t just practice the same skills over and over again in isolation. Make it your mission to continually develop skills and seek regular feedback.
+
+# Becoming a genius requires impeccable timing and the right historical context.
+
+Why do we consider some people geniuses? Charles Darwin, for instance, is often considered a genius for discovering natural selection. But dig a little deeper into the history of his discovery, and all is not as it seems. Despite what you may have heard, Darwin was not the only person to develop the theory of natural selection. That honor also goes to one of Darwin’s contemporaries, Alfred Wallace. But unfortunately, history has all but forgotten Wallace, while Darwin is celebrated for his genius.
+
+This should give us pause for thought. Are those we deem geniuses really so unique and special? Arguably, there were other factors that give them their lauded status.
+
+Timing plays a big role when it comes to who society deems a genius.
+
+Indeed, the world remembers Charles Darwin more than it does Wallace because of Darwin’s canny sense of urgency. In 1858, upon hearing that Wallace was working on the very same theory that he was, Darwin quickly arranged for a presentation of his ideas to the Linnean Society – an important scientific institution – thereby appearing as if he were the primary driving force behind the theory of evolution. And Wallace? He was in no rush to take credit for what was as much his idea as it was Darwin’s, choosing instead to sail around the world for several more years before publishing his own account of the theory. By the time he finally returned home, Darwin’s 1859 book *The Origin of The Specie*s had already been published, and Darwin had written himself into the scientific history books forever.
+
+Timing also creates geniuses in a broader sense too, in that geniuses are inextricably linked to their historical context.
+
+Take the pop artist Andy Warhol – often considered one of the creative geniuses of the twentieth century. Imagine if he had created his masterpieces during the Italian Renaissance. Would he still have been thought of as a genius? It’s more likely he would have been labeled as a heretic and his works destroyed before future generations had a chance to appreciate them. Similarly, what if that genius of the Renaissance, Leonardo da Vinci, had completed his priceless paintings in the era of pop art. Far from being thought of as a creative genius, his work would have been considered hopelessly dated. Why? Because this form of artistic expression would’ve already been explored hundreds of years earlier. Therefore it’s important to recognize that geniuses are often a product of their time, rather than universally brilliant individuals.
+
+# The creative curve describes our paradoxical desire for both familiarity and novelty.
+
+What makes us like some things, and turn away from others? The answer to this difficult question might be found by looking at the fortunes of a clothing brand. In 2009, popular tattoo artist Don Ed Hardy sold the rights to his designs to a fashion company, and soon Ed Hardy clothing became the must-have celebrity item. Before the end of the year, the brand had sold $700 million in clothes and accessories. Everyone everywhere seemed to be wearing Ed Hardy.
+
+But then something strange happened. By the end of 2009, Ed Hardy clothing had become an embarrassing cliché and sales had tanked. Why did it go so wrong?
+
+The fortunes of the Ed Hardy clothing brand are a perfect example of what the author has deemed *the creative curve*. The creative curve describes our paradoxical preference for both familiarity and novelty.
+
+Research indicates that the more familiar we are with something, the more we like it.
+
+For instance, researchers at the University of Michigan conducted a study in which participants were shown a number of made-up Chinese characters. They were told that each character represented either a positive or a negative adjective. Researchers then exposed participants to each of these characters either a greater or fewer number of times. When asked afterward, the participants overwhelmingly thought that the characters they’d seen more often represented something positive, while those they’d seen less often stood for something negative.
+
+The researchers concluded that the more familiar we are with something, the more positive associations we have with it. This explains the explosion in popularity of Hardy’s clothing brand throughout 2009. As people saw it more and more often, they developed positive associations with it, in turn driving up sales.
+
+But why did people stop buying Ed Hardy clothing as quickly as they did? This can be explained by the flipside of the creative curve – our desire for novelty.
+
+Researchers have discovered that in addition to our desire for familiarity, we also have a counter-desire for novelty. One study found that once participants had been played a song eight times, they began to like it less and less each time they heard it. This phenomenon explains the rise and fall of the Ed Hardy clothing brand. People liked the clothes more when they began to see them more often, but as soon as they became ubiquitous their desire for novelty kicked in, and they quickly ditched them.
+
+# Maximising your cultural consumption is key to understanding the creative curve.
+
+In 1982, a small video rental store in Arizona became wildly popular with film enthusiasts. But the long queues that formed every night weren’t down to its stellar selection of movies. The store was so popular because movie buffs wanted film recommendations from its 18-year-old clerk, Ted Sarandos. Fast forward 30 years and Ted Sarandos is now the chief content officer at Netflix – responsible for commissioning shows such as *Stranger Things* and *Orange Is the New Black*.
+
+Why have people always been so interested in Ted’s opinions? In fact, Ted Sarandos’ success is all thanks to his in-depth knowledge of the creative curve.
+
+As a college student working part-time in the video store, Ted decided to pass the time by watching each and every film in the well-stocked store. After several months of intense viewing, Ted became a walking recommendation machine. Customers would tell him what films they liked and Ted could give them any number of excellent suggestions in return.
+
+Through his massive consumption of films, Ted developed cultural awareness: a finely tuned knowledge of what films would feel familiar to his customers, which films were good and which were cliché. At the tender age of 18, Ted was skilled enough to know where a film would fit on the creative curve. Nowadays, Ted uses his knowledge of the creative curve to decide what sort of films and TV shows to commission for Netflix. He even acknowledges the creative curve himself, stating that the kind of content he looks out for are shows that have “one foot in familiarity and one foot in something really fresh, unknown, and novel.”
+
+And it’s not just film buffs who use mass consumption to build their knowledge of the creative curve.
+
+When the author conducted interviews with professionals from across the creative disciplines, including songwriters, painters and chefs, they all reported spending around one-fifth of their day – that’s roughly 3 or 4 hours – engaging in mass consumption of material related to their particular creative industry. Painters were continually attending art exhibitions, chefs carved out time to dine at exciting new restaurants and songwriters were constantly listening to music both new and old.
+
+So in order to reach the top of your creative game, be sure to spend about 20% of your time consuming the output of your chosen industry. After all, the insights you make might take you as far as Ted Sarandos.
+
+# Authors that fall into the sweet spot on the creative curve have become publishing phenomena.
+
+Ask around for long enough and you’ll soon find people who dream of writing a novel. But dig a little deeper, and you’ll also find that many of these folk would shy away from ever putting pen to paper. Why? Because they don’t think they have what it takes to become a successful author. Either they don’t think they have a way with words, or just don’t think they’re smart enough to manage it.
+
+But what if writing a successful novel had much less to do with writing ability or smarts than we assume, and everything to do with where the book falls on the creative curve? If this is true, then that spot on the bestseller list might not be so out of reach.
+
+Beverly Jenkins is a highly successful author whose success is largely thanks to her books’ winning combination of familiarity and novelty. That is, they fall right on the creative curve’s sweet spot.
+
+As a young girl, Jenkins loved to read just about anything she could get her hands on in the local library. But as an adult, when she got home from her mundane administrative job, she loved nothing more than settling down with a historical romance novel. Jenkins soon spotted a problem with her favorite genre: all the characters in these romances were white. In fact, in any of the popular romance books she read, none of the lovers were ever written as African-American. Despite having no prior writing experience, she quickly decided that she would be the author to fill this particular gap in the market. The rest, as they say, is history. These days, she’s known as the creator of a new genre of literature – black historical romance – and her books have sold over 1.5 million copies worldwide.  
+
+The reason Jenkins’ books are so popular is because of their positioning on the creative curve.
+
+Firstly, they combine all the familiar elements of traditional romance novels: they never fail to provide a happy ending, and the lovers always reach a crisis point in their relationship before eventually reconciling. However, true to the rules of the creative curve, Jenkins’ books also bring something refreshingly novel to their readers. All her stories focus on African-American protagonists – a perspective that had been sorely lacking in the romance novels that came before.
+
+Next time you’re thinking of whether you really could write that book, think less about your writing talent and more about whether your idea hits the creative curve’s sweet spot. You just might be the next publishing sensation.
+
+# Massive success requires the right sort of social network to help you on your way.
+
+When we think of a creative genius, we often imagine an inspired individual, feverishly working away. They might be slaving away on a creative project in a remote cabin, or in a futuristic office, but one thing’s for sure – the genius of our imagination usually works alone. This idea of the isolated genius is handed down to us through popular culture. Consider the character of Tony Stark – the hero of the Iron Man films – a solitary genius who single-handedly builds his eponymous robotic suits.
+
+But when we take a closer look at reality, our notions of the lone creative genius quickly fall apart.
+
+Creativity has a social component that’s often overlooked, but highly significant. In other words, it takes a community to make a creative genius.
+
+A 1992 study by researchers from the University of California looked at the social networks of thousands of innovators and scientists. Their findings showed that the quality of these social networks could predict the longevity and productivity of the innovators’ careers and predict how prominent they would be in their field. Additionally, research into high-achieving artists found that the quality of their reputations was directly associated to the number of relationships they had with other high-achieving artists. Successful artists who had more relationships with other successful artists had stronger reputations. Finally, research conducted in 1985 looking at a variety of world-renowned performers found that not one had honed their skills alone, but with a teacher who was both relentless and experienced.
+
+This research demonstrates what would be clear to see if one were to visit the offices of the man who is often posited as the real-life Tony Stark: Elon Musk. Musk is the founder of the technology companies Tesla and SpaceX. Far from being the lone creative genius we often assume, Musk has thousands of employees who enable his creation of futuristic cars, rockets and spaceships.
+
+So if you’re looking to become a world-class innovator, it pays to take a few talented friends, teachers or employees with you along the way.
+
+# Final summary
+
+The key message in these blinks:
+
+**We’re quick to mystify the notion of talent and eager to label a chosen few as geniuses, but the true nature of these concepts is less mysterious and more formulaic than conventional wisdom suggests. Community, great timing, a hefty dose of familiarity and a dash of novelty all contribute to what we recognize as creative genius.**
+
+Actionable advice:
+
+**Successful creatives need prominent promoters.**
+
+If you want society to consider you a genius, you’ll need to do more than work hard and produce good work. You’ll also be needing a hefty amount of social recognition – society needs to believe that you and your work is credible. So you’ll need to take a particular kind of friend with you on your journey to success: a prominent promoter. This is someone who champions your work and introduces you to your target audience. Your friend should also be a credible creative force within that field too, so that when they begin to advocate on your behalf, other people will respect their judgement.
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested further reading:*****Thinking in New Boxes *****by Luc de Brabandere and Alan Iny**
+
+*Thinking in New Boxes *(2013) takes a deep look into the mind in order to create a clear understanding of the creative process. It gives the reader tools to uncover, manipulate and even create the “boxes” we use to organize information, shape our perception of the world and ultimately enable innovation.
+
+
+Source: [The Creative Curve by Allen Gannett](https://www.blinkist.com/en/nc/daily/reader/the-creative-curve-en/)

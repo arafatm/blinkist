@@ -1,0 +1,198 @@
+![The Automatic Millionaire](https://images.blinkist.com/images/books/5bb28db6862c4300075b36e1/1_1/470.jpg)
+# The Automatic Millionaire
+*David Bach*
+
+>Automatic Millionaire (2003) is a highly practical and useful guide that shows how anyone can, over time, turn a modest income into a fortune. Author David Bach proves that earning a million dollars doesn’t require any complicated financial wizardry, or even a disciplined spending budget – all it takes is a simple one-step plan!
+
+
+# What’s in it for me? Learn how to defy human nature and grow a million-dollar nest egg.
+
+Who wants to be a millionaire? The answer to that question has always been obvious enough: pretty much everyone. The pressing question is *how* to earn that money. If you don’t win the lottery or some popular game show, then you’ll have to invent some revolutionary product or start a groundbreaking business.
+
+Or will you?
+
+Well, as it turns out, there is actually an easier way to become a millionaire, and it involves setting up a simple system that puts money from your paycheck directly into secure savings accounts. In this way, anyone can become an *automatic millionaire*. By setting up automatic payments, even people who are bad at personal finances and sticking to a budget can secure themselves a wealthy future.
+
+What’s more, with the automatic-millionaire plan, you don’t even need to be making a lot of money. As the following blinks will show you, it’s all about making small payments to yourself and committing to it, each and every payday.
+
+In these blinks, you’ll find out
+
+- what the “latte factor” is and how it can help you get rich;
+
+- why you should stop renting and cut up your credit cards; and
+
+- how you can feel rich while your fortune accumulates.
+
+
+# You don’t need to earn a lot to become an automatic millionaire; you just need to save small amounts on a regular basis.
+
+You may not think that earning under $40,000 per year will lead to your becoming a millionaire – but if you use this money wisely, you’d be surprised how far it can go.
+
+Take Jim and Sue McIntyre. When they were getting financial advice from the author, he was astounded to notice that Jim had never earned more than $40,000 a year, yet here they were in their early fifties with nearly $2 million in net worth.
+
+The McIntyres are living proof that the key to success isn’t earning a huge paycheck. It’s being smart and creating yourself an easy-to-manage financial plan.
+
+Soon after their marriage, the McIntyres were lucky enough to receive invaluable financial advice from their parents. Jim and Sue were told that they could either work for their money or make their money work for them.
+
+Obviously, the McIntyres wanted to put their money to work, so they came up with a simple-to-follow plan: employing a portion of every dollar they earned. It started with a mere 4 percent of their income, and, over the next few years, they gradually increased that to 15 percent. To avoid the risk of frequent budgeting arguments, they also set up a system that automatically distributed and budgeted their funds.
+
+What the McIntyres also had going for them was that they established and started this plan early on. This allowed the money they put aside to increase in value exponentially, thanks to its accruing compound interest.
+
+So, with this in mind, there’s a very good chance that you already earn enough to become a millionaire in the years ahead.
+
+Over the past five decades, the average prices on the stock market have risen by around 10 percent every year. This means that if you set aside $2,000 every year during your twenties, when your sixty-fifth birthday rolls around, you’ll have over a million dollars to celebrate with!
+
+This idea of getting rich over time by regularly putting away a small amount is called *The Latte Factor*. Your average coffee shop latte costs around $3.50, which, as an everyday cost, adds up to around $1,250 per year. If you’re a pack-a-day smoker, spending $7 on cigarettes every day will add up to around $2,500 per year.
+
+Now, let’s say you put aside $10 every day. If we add an annual return of 10 percent, that would leave you with almost $700,000 in 30 years’ time, and nearly $2 million in 40.
+
+So, today is the day to start reconsidering the money you spend on all the “little things,” since there’s a good chance you already have what it takes to become an automatic millionaire!
+
+# Pay yourself before you pay anyone else.
+
+We all have unavoidable expenses – things like taxes, rent and insurance. It’s only after we take care of these costs that we can finally set aside some money for ourselves, right? Not so fast. You may think this is the mandatory order of things, but the truth is, you can reverse it.
+
+The first person you should really be giving money to is yourself. After all, you work to support the well-being of yourself and your family, not other people and their businesses.
+
+A quick first step that can immediately correct the order of things, and ensure that you get paid first, is to set up a *pre-tax* retirement account.
+
+This not only allows for money to be automatically directed to a savings account; it also makes smart financial sense. Since the money in your retirement account will only be taxed when you withdraw it, it’ll likely be taxed at a rate lower than the one your current income is subjected to.
+
+Plus, by diverting these funds, you’ll also have more pocket money *now*. Say you have an annual income of $50,000. If the current tax rate is 30 percent, that leaves you with a net income of $35,000, and if, after taxes, you put aside $5,000 for retirement, you’ll end up with $30,000. Now, if you use a pre-tax retirement fund, that $5,000 will be taken straight from your initial $50,000, giving you $45,000 to be taxed at 30 percent, which leaves you with $31,500. That’s $1,500 more to spend every year!
+
+So now’s the time to commit to putting away at least one hour’s pay, every day, for future prosperity.
+
+The average American currently saves less than 5 percent of his gross income, which only adds up to 22 minutes worth of daily pay. But the key to being an automatic millionaire is to save *at least* 10 percent of your gross income – the more the better – and by putting away an hour’s worth of wages, every day, you’ll be sure to hit that mark.
+
+But don’t wait until the end of the year to put aside your 10 percent, or else you’ll likely find that you didn’t budget properly. Instead, automatically take the money out of every paycheck. This is what being an automatic millionaire is all about.
+
+Think of it this way: you can’t afford *not* to save at least $14 a day for 35 years. With a 10 percent interest rate, this will provide you with a small fortune of $1.6 million!
+
+# The key to being an automatic millionaire is to set up automatic payments to savings accounts.
+
+Let’s take another look at the McIntyres, who, despite their modest salaries, became millionaires. Among the secrets to their success was not only a commitment to paying themselves first, but having a way to avoid the stress and unrealistic amount of discipline it takes to budget their spending.
+
+Here’s a general rule of thumb to live by: if it requires a lot of discipline, it probably won’t work.
+
+We humans are not designed to deprive ourselves of instant gratification in order to reap some hypothetical rewards a few decades down the line, so budgeting for the future is something we have very little patience for.
+
+After the McIntyres had a few arguments about saving money, they decided to do things differently and take themselves out of the equation.
+
+Instead of trying to control their behavior, they set up an automatic system for paying themselves first, and the only decision they had to make was the exact percentage of their paychecks they were going to put aside. Once this was decided, they put an automatic payment system in place that deposited the money straight into a savings account.
+
+It’s easy to see why this works. If the money doesn’t show up in your checking account, you won’t be tempted to spend it!
+
+Here are a few more tips to help you set up a great system for automatic saving.
+
+First, remember to make use of the pre-tax retirement account mentioned earlier. This really makes a difference. Second, don’t assume that your current retirement plan is the best one for you. In fact, don’t even assume that you *have *one.  
+
+There may be a better interest rate available. Even if you’re self-employed, you should check your retirement-account options and make sure you have the best one available.
+
+Now, you might be asking, what if I don’t have a retirement plan yet? Go to a bank, brokerage firm or mutual fund company and set up an individual retirement plan as soon as possible.
+
+As you’re looking over your options, pay close attention to the ways your plan can protect you against market fluctuation. This means making sure your money is going into an investment portfolio that is diversified and includes a variety of instruments like bonds, cash, stocks, and Treasury bills.
+
+# Rest easy by including an emergency fund in your automatic financial plan.
+
+Unfortunately, there are no guarantees in life when it comes to having a steady, prosperous income. This basic uncertainty can lead to worry – sleepless nights when you’re stuck contemplating all the dreadful what-ifs involving pay-cuts or unexpected layoffs. So it’s only good sense for your automatic financial plan to include an emergency fund.
+
+When you set up an emergency fund, it not only acts as a financial safety net; it can also help you live a more stress-free and unrestrained life.
+
+This is the added benefit of being an automatic millionaire: you build wealth while also putting an end to all the time and energy spent worrying about your finances.
+
+The average American has less than three months worth of expenses saved up in case of an emergency. Under these circumstances, it’s no wonder that the threat of unemployment is an incredibly stressful and common feeling.
+
+So why not reduce this fear and give yourself more freedom by saving up? When you have between six and 18 months’ worth of wages saved up, you’ll find it easier to decline overtime offers from your employer or to change your career path altogether if you’re feeling uninspired by your work.
+
+You can start building up an emergency fund by automatically putting aside 5 percent from every paycheck. But remember, this is a *real *emergency fund, so you have to treat it as such and only dip into it when there’s something like a natural disaster or a medical emergency to cover.
+
+Now, just like your retirement account, you should make sure your emergency account is in good hands, with a trusted financial institution that will earn you proper interest.
+
+For example, putting your regular 5 percent payments into a money market account is usually a reliable way to ensure you’ll earn more interest than your standard savings account. Government bonds are also a safe bet for earning reliable interest, but just be aware that they can often take more time to cash out.
+
+Still, both of these methods will leave you better off than keeping your emergency savings buried in a jar in your backyard!
+
+# Renting costs you more money in the long run, so go the homeownership route.
+
+Jim and Sue McIntyre were not only clever about their automatic savings plan. They made another smart decision when it came to housing. By the time they reached their early fifties, the couple owned two houses; they lived in one and rented the other out, which gave them an additional source of income.
+
+So here, again, we can follow in the footsteps of the McIntyres by ceasing to pay rent and becoming homeowners as soon as possible.
+
+Ultimately, renters end up giving their landlords around the same amount of money as someone would if they were paying the monthly installments on a home-ownership mortgage. But despite paying the same amount, renters have nothing to show for it at the end of the day. What’s worse, all this money going into the landlord’s pocket can keep them strapped for cash and unable to make the leap to homeownership.
+
+If you’re worried that you’d never be able to pay off a mortgage, here’s a reassuring fact: the rate of foreclosures – when a homeowner is evicted for failing to pay off their mortgage – is currently less than 2 percent.
+
+However, when you finally make the move from renting to buying, you’ll have to make some important decisions, such as choosing the right kind of mortgage and coming up with a way to pay it off quickly.
+
+There are a variety of mortgages out there, so choose wisely. When low interest rates are common, it makes sense to use a fixed-rate mortgage. It’s even better to set up a biweekly payment plan with your bank, rather than a monthly plan, as this will allow you to pay off your mortgage faster.
+
+Instead of making twelve payments of the monthly fee, you’ll make 26 payments of half the monthly amount, which adds up to making 13 full payments within the year. And paying off your mortgage as quickly as possible isn’t just a matter of time. Doing so will also mean you’ll pay less interest.
+
+For example, if you have a 30-year $250,000 mortgage, using the biweekly payment plan will save you more than $44,000!
+
+While you can put all of these tips into action immediately, you might be feeling buried by a mountain of debt. So let’s take a look at how you can dig yourself out.
+
+# You must eliminate debt by automatically paying off your credit cards and getting rid of them.
+
+If you’re struggling with debt, you’re not alone: the average American family has amassed $8,400 in credit card debt. With that amount, if you only make the minimum amount of payments each month, it’ll be 20 years before you’re in the clear.
+
+Unfortunately, it’s all too easy to fall into debt through the many credit card offers we regularly receive. But remember – debt is not compatible with being an automatic millionaire.
+
+One of the main problems with credit cards is their interest rate, which can be as high as 18 percent. This means that if you don’t pay back what you owe as soon as possible, you could end up paying over twice as much as you originally spent.
+
+For example, let’s say you use your credit card to cover $1,000 worth of holiday shopping. If you only pay the minimum monthly payments, you’ll end up paying $2,100 over time – that’s $1,100 in interest!
+
+If you’re currently in debt, there are three steps you can take to get yourself out.
+
+First is to get rid of your credit cards. You’ll never be debt-free if you continue living on credit.
+
+The next step is to renegotiate your debt. If you call your credit provider and say you’re willing to switch providers, you can usually convince them to give you a much lower interest rate on your debt.
+
+If your debt is spread over multiple accounts, see if you can move it all into one account – whichever has the lowest rate. If this isn’t an option, you’ll need to start paying off the cards one by one.
+
+Prioritize whichever card has the lowest ratio of outstanding balance to minimum payment. This is the debt you should pay off first. Once that’s done, move on to the card with the second lowest ratio, and so forth until all your cards are paid off. Then cancel them.
+
+The last step is to adjust your financial plan so that you’re automatically paying off your past debt as well as investing in your future self. To do this, you take the money you’re paying yourself from every paycheck and devote half of it to paying off your debt while the other half goes toward your future millionaire status. This way, you can still feel good about that bright future.
+
+# Start feeling rich today by setting up an automatic charity account.
+
+Even though the automatic millionaire strategy isn’t about making you rich overnight, it can help you start *feeling *rich right away. How? By enabling you to automatically giving a portion of your money to charity.
+
+Setting up an automatic donation can easily be made part of your overall financial plan. And here, once again, we can take a cue from our friends the McIntyres.
+
+As part of their financial plan, Jim and Sue began automatically donating a specific portion of their income every month. Like the other payments, the money was taken directly from their paycheck and sent to a charity, thus never appearing in their checking account.
+
+Now, how much you want to donate is your choice, but a good way to start might be with a small amount, like 1 percent of your paycheck. If this goes well, you can then decide to gradually increase the amount. Whatever that amount is, and whatever the charity is, one thing is certain: you’ll be making a difference in the lives of people who need your help.
+
+You may think that only rich people can afford to be charitable, but this isn’t the case. Look at the American-British investor Sir John Templeton, whose philanthropy began long before he became a billionaire financial powerhouse. Donating money clearly didn’t get in the way of his money-making abilities, and it won’t get in the way of yours, either.
+
+If you want to make sure your money makes the biggest difference it possibly can, you should do your homework and double-check the quality of the charity you’re considering.
+
+Once, the author found out that a charity he’d been donating to only gave 40 percent of its proceeds to the supposed cause, so it’s safe to say that some charities are more effective than others. Fortunately, there’s a lot of info available online, so you can conduct your own research and feel confident about your choice.
+
+Another benefit in making charitable donations is that they’re tax deductible, which means that whatever amount you donate is exempt from taxation. So, for every dollar you give to charity, in the long run, you’ll actually end up spending less than a dollar once your taxes are sorted out.
+
+But it’s also worth noting that money isn’t the only way to contribute to a noble cause. There’s very likely a local food bank or shelter that could use your time as much as it could use your money.
+
+# Final summary
+
+The key message in these blinks:
+
+**If you want to stop worrying about money and build yourself the financial future of your dreams, you should do one simple thing: pay yourself first! And whether it’s creating a retirement plan, setting aside some emergency money or paying off your debt, the most important thing is to*****do it automatically*****. This way you can benefit from compound interest, and, as the years go by, you can sit back, relax and accumulate millions.**
+
+Actionable advice:
+
+**Check your current finances**
+
+Take a moment to comprehensively assess your current personal finances. What assets do you own? What debts do you have? How much are your monthly costs and income streams? Getting an accurate view of your current situation is the first step in understanding and improving your finances.
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****Secrets of the Millionaire Mind *****by T. Harv Eker**
+
+*Secrets of the Millionaire Mind* (2005) explains how people unconsciously develop rigid attitudes and behavioral patterns in their relationship to money that they learned from their parents – and that will determine their future wealth. It presents the key guiding principles and thought patterns that millionaires live by and anybody who wants to get rich should adopt.
+
+
+Source: [The Automatic Millionaire by David Bach](https://www.blinkist.com/en/nc/daily/reader/the-automatic-millionaire-en/)

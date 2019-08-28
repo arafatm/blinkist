@@ -1,0 +1,181 @@
+![The Road to Unfreedom](https://images.blinkist.com/images/books/5bbf4dac6cee0700070f2eb3/1_1/470.jpg)
+# The Road to Unfreedom
+*Timothy Snyder*
+
+>The Road to Unfreedom (2018) chronicles the extraordinary political age we are now living in. Russian expansionism, led by Vladimir Putin, threatens to encroach on the freedoms that people in Europe and America enjoy. After having successfully helping to bring about Brexit, the Kremlin set its gaze on the United States and, in doing so, played a central role in ushering in the Donald Trump presidency. And with Europe in the midst of a right-wing ascendancy, Russia is wielding a greater influence than ever before.
+
+
+# What’s in it for me? Discover how Vladimir Putin is trying to bring about a new, dystopian world order.
+
+According to the author and academic, Timothy Snyder, we live in an age of economic and political uncertainty. The last few years have seen the likes of Brexit and Donald Trump’s election as US president come to pass, while extreme political groups on the right seem to gain more clout every day.
+
+It used to be taken for granted that the future would necessarily be a slowly progressing continuation of the present; an assumption known as the **politics of inevitability. **
+
+But in today’s uncertain times, a move to the **politics of eternity **lies on the horizon. As Snyder argues, instead of looking forward to the brighter tomorrow guaranteed by political progress, the politics of eternity fix us into a state of mind in which we believe that we are perpetually threatened by enemies both real and imagined. It’s a fearful and paranoid state, where we expect little else from our government than to protects us from our enemies.
+
+In these blinks, we’ll shed light on Snyder’s view that the politics of eternity has been driven in one country – Russia – and by one man – Vladimir Putin. Read on to learn how.
+
+In these blinks, you’ll learn
+
+- how the European Union is being destroyed from within with help from Russia;
+- why Putin saw himself as the true victim in the Malaysian Airlines Flight 17 disaster; and
+- how Russia was integral to Donald Trump’s election as president of the United States.
+
+# The key to the shift toward the politics of eternity in Russia was the philosophy of Ivan Ilyin.
+
+On March 26, 2000, the Russian Federation held presidential elections. The winner, Vladimir Putin, would go on to rule – and transform – the world’s largest country, and continues to do so to this day.
+
+But those who elected Putin didn’t realize how large the ideas of Russian philosopher Ivan Ilyin loomed in the new administration’s political ideology. Although Ilyin had been dead since 1954, Putin was keen on reviving his ideas and putting them front and center in his political program.
+
+Ilyin lived through the 1917 Russian Revolution, which ushered in the Soviet Union and one-party communist rule. But he was no communist – he was a Christian fascist, inspired by Adolf Hitler and Italian fascist Benito Mussolini rather than Lenin or Stalin.
+
+Exiled from the Soviet Union in 1922, he began conceptualizing his ideal version of a right-wing, Christian dystopia in Russia, which he thought would follow the inevitable collapse of communism.
+
+Ilyin’s ideal Russia would resemble the fascist states of the 1920s and 1930s. The anxieties of a population demoralized by harsh socioeconomic conditions would be channeled into glorifying a redeeming, savior-like leader who promised to defend the nation from external threats – whether or not those threats really existed. Violence would be glorified over reason, and propaganda would triumph over rational discourse.
+
+But Ilyin went a step further than the one-party fascist states in Europe at the time; he thought that even one real political party was too many. A multi-party system might be useful in order to justify the ritual of holding elections, but all real power should be invested in a man, not a party, and this man would be in charge of the government, judiciary and armed forces.
+
+Ilyin’s writings on his ideal Russian fascism had been banned and dormant for decades. But with the liberalization of Russian media in the 1990s, his books again began to circulate.
+
+And after Putin’s election in 2000, this accelerated. Ilyin’s books were recommended to school pupils, and Russian civil servants were given copies of his complete writings. Putin even arranged the transport of his body from Switzerland for reburial in Moscow in 2005.
+
+For Putin, implementing Ilyin’s vision of a right-wing dictatorship in Russia has proven successful. But to discover how we got there, we must go back to the tragic events of September 1999, three months before Putin would be named acting president of Russia upon the resignation of Boris Yeltsin.
+
+# Putin increasingly entrenched Ilyin’s conception of a dystopian Russia throughout his first three terms in power.
+
+In September 1999, a series of bombs went off all over Russia, culminating in 293 deaths.
+
+At the time, Putin had been Prime Minister of Russia for only a month, but his response was swift. He ordered troops to attack those he deemed responsible: terrorists from Chechnya, a region in the south of Russia where protracted civil war and insurgency had been raging for a decade.
+
+It marked the beginning of his implementation of one of Ilyin’s key concepts, namely of uniting Russians in the face of hostile agents threatening the country’s existence. And it worked.
+
+In August 1999, the relatively unknown Putin’s approval rating was just 2 percent. But three months after launching the Second Chechen War, it had shot up to 35 percent. And in March 2000, with the war still raging, Putin was elected president of the Russian Federation.
+
+So began Russia’s transition to Ilyin’s politics of eternity. Central to this was Putin’s new propaganda master Vladislav Surkov. He was particularly gifted at exploiting manufactured crises to tighten Putin’s grip on the reins of the Russian state.
+
+In 2002, for example, Surkov used a terrorist attack on a theater in Moscow as an excuse to place major television networks under complete state control.
+
+Years later, after the economic downturn of 2008-9 had hit Russia particularly hard, independent observers suggested that Putin’s party only won about 26 percent of the vote in the 2011 parliamentary elections of 2011, with citizens seemingly hoping for political change. However, official results listed the party’s vote share at 49 percent.
+
+The results were obviously faked, and widespread protests ensued. It was in this context that Putin identified a new, permanent enemy to exploit for political purposes: the West, represented by the United States and European Union.
+
+State television began broadcasting that anti-Putin protesters were being paid by Western organizations. To supposedly safeguard Russian sovereignty, Putin began cementing Ilyin’s philosophy into Russian political life. FSB officers were now allowed to shoot people without consequence, libel against the government was made illegal and foreign NGOs in Russia were either banned or forced to register as “foreign agents.”
+
+With these draconian policy changes, Putin had successfully implemented Ilyin’s dream of a Russia governed by the politics of eternity.
+
+# 
+
+**“Ilyin and Putin rose together, the philosopher and the politician of fiction.”**
+
+# Putin’s assault on the European Union began in 2013.
+
+After World War II, a defeated Germany and a declining France decided to integrate themselves to ensure their own survival in a post-war world.
+
+The eventual result was the European Union, which today has 28 member states and together forms the world’s second-largest economy, after the United States.
+
+Up until 2013, Russia had stood out as the only European post-colonial power that had not considered joining the EU as a way of maintaining its waning world power status. Instead, Russia saw itself as the EU’s equal and sought a strategy of peaceful coexistence. Putin even attended NATO conferences and spoke favorably of Ukraine’s potential EU membership.
+
+But after the fraudulent elections of 2011-12, the EU was now depicted as an enemy attacking Russia’s sovereignty. Therefore, in 2013, Russia adopted a radical new course. Instead of Russia becoming European, Europe should be made more Russian; in other words, to protect Russia from external threats, Russia would have to export Ilyin’s dystopian philosophy to countries that threatened it.
+
+All of this was summed up in 2012 when Putin publicly announced that Russia would pivot its foreign policy goals toward the creation of “Eurasia,” a political union that would compete against the EU for dominance all the way from Russia’s Pacific frontier to Europe’s Atlantic coast.
+
+Less publicly, Russian authorities began putting a plan into action that would help Putin achieve his Eurasian ambitions: the destruction of the EU from within itself.
+
+But unlike his traditional war against the enemy in Chechnya, Putin resorted to covert measures to destroy his European enemy.
+
+Cyberattacks were employed by Russian government hackers to spread propaganda. In April 2015, for example, a French television transmission was interrupted by a video message purportedly from ISIS, aimed at spreading fear amongst the general French public.
+
+And this fear had consequences; two years later, French far-right candidate Marine Le Pen’s Islamophobic and anti-immigration platform managed to secure 34 percent in the presidential election, a record high for a far-right candidate in post-war France.
+
+Meanwhile, in the United Kingdom, Russian internet trolls sent millions of anti-EU messages out to British voters, and at least 419 pro-Brexit Twitter accounts were traced back to the Russian government’s Internet Research Agency.
+
+On June 23, 2016, British voters decided to leave the European Union by a margin of 52 percent to 48 percent. Russia’s new anti-EU foreign policy was proving successful.
+
+# The 2013-14 Ukrainian protests were a result of Russia’s Eurasian imperialism.
+
+Amid Russia’s efforts to get the EU to destroy itself from within, a problematic scenario was developing closer to home.
+
+In 2013, Ukrainian president Viktor Yanukovych was close to signing an Association Agreement with the EU, making Ukraine’s ascension to EU member status much more likely.
+
+However, the agreement would also have constituted a severe setback for Russia’s Eurasian ambitions. So, on November 21, 2013, immediately after having a conversation with Putin, Yanukovych went back on his promise to sign the agreement. Soon afterward, protests erupted across Ukraine that would go on to change the country forever.
+
+Although demonstrations initially revolved around the signing of the Association Agreement, they took on a different nature after riot police attempted to violently disperse protestors; the protests suddenly became about Ukrainian dignity in the face of oppression. As if to emphasize this point, on December 27, Russian intelligence agents arrived in Ukraine to help suppress the protests.
+
+By January 16, 2014, it was clear that Yanukovych was in Putin’s pocket, as he instituted a number of dictatorial laws identical to those passed in Russia two years earlier. Freedom of assembly was banned and international NGOs were required to register as foreign agents.
+
+Then, on January 22, two protesters were shot dead. The glimpse of the politics of eternity and the violence and repression offered by Putin’s Eurasian expansionism outraged Ukrainians, who gathered across the country to demand Yanukovych’s resignation.
+
+Realizing that their covert actions had failed, Russian leaders scrambled to implement plan B – destroying the foundations of the Ukrainian state and making it as hard as possible for the country to further align with the EU. Soon, the same Internet Research Agency that fuelled the fire of Brexit began spreading disinformation on supposed Ukrainian atrocities in the southern region of Crimea.
+
+Less than a month later, Russian snipers shot and killed almost 100 Ukrainian protesters. Yanukovich’s remaining political support evaporated, and he fled the country to join his Russian handlers in Moscow.
+
+Four days after the sniper massacre, Russia invaded and occupied Crimea, and within three weeks held a staged referendum on whether the strategically important region should break away from Ukraine and join Russia. The result was unsurprising: Crimea became part of the Russian Federation.
+
+Months later, after fresh national elections were held, Ukraine finally got its Association Agreement with the EU – but now that it was a divided, war-torn nation, further integration into the EU had been greatly complicated. Putin had scored a half-victory.
+
+# Russia used propaganda both domestically and internationally to promote the politics of eternity.
+
+Russia’s next step in destabilizing Ukraine was military intervention on behalf of pro-Russian separatists in Ukraine’s southeast, which Putin justified with propaganda that portrayed ethnic Russians in the region as victims of Ukrainian oppression, and Russia as their liberators.
+
+Even more unbelievable assertions of victimhood occurred after July 17, 2014, when Malaysia Airlines Flight MH17 was shot down by an anti-aircraft missile, killing all 298 people on board. All evidence clearly indicated that Russia was responsible.
+
+But while international condemnation of Russia ensued, Russian television claimed that the plane had been shot down by a Ukrainian missile intended for a plane with Putin on board in an attempted assassination.
+
+It wasn’t the murdered innocents and their families who were victims – it was Putin and the Russian nation who were under attack by European powers.
+
+Meanwhile, Putin used propaganda internationally as part of a campaign of **strategic relativism, **which reasons that if you can’t eclipse your adversaries via direct warfare or economic might, you can at least weaken them in order to gain relative power.
+
+This was the case in Germany, after Angela Merkel pledged to take in half a million refugees in 2014. Three weeks after her announcement, Putin intensified airstrikes in Syria to generate even more refugees seeking to settle in Germany. He hoped this would lead to a rise in anti-immigrant sentiment and boost far-right populists such as the Alternative for Germany party, or AfD.
+
+All of this was accompanied by a disinformation campaign to frame refugees as rapists and criminals.
+
+For example, a Russian-German teenager was reported missing for 30 hours in January 2016. Upon returning home, she told her mother that she’d been raped by three refugees.
+
+A medical examination disproved her story, but state-run Russian television and statements from the Russian foreign ministry still created a media storm, accusing Muslim refugees of raping an ethnic Russian and blaming Merkel’s refugee policy for the incident. German right-wing groups also demonstrated in the streets demanding justice.
+
+Despite being a fabricated story, it helped weaken Merkel’s grip on power, as her party lost 65 seats in the 2017 election, and the AfD obtained the third-highest number of votes, marking the first time a far-right party had entered parliament since World War II.
+
+# 
+
+Russian media’s handling of MH17 was so successful that by July 2015, 85 percent of Russians believed Ukraine was at fault for the massacre.
+
+# The road to Donald Trump’s presidency was paved with Russian meddling.
+
+After Putin’s successful intervention in Brexit and half-victory in Ukraine, his attention turned toward the ultimate prize – the downfall of the United States.
+
+Russian hackers began breaching high-level American networks in 2015, including the White House and State Department. But it wasn’t until 2016 that Putin would use cyberwarfare with the explicit goal of remaking America in Russia’s image.
+
+He would accomplish this by catapulting Donald Trump into the White House, covertly supporting Trump both financially and politically.
+
+First, he needed to make sure Trump had enough capital to run his presidential campaign. In 2016, Trump’s real estate holdings suddenly became very popular with buyers. In the six months before his election, nearly 70 percent of units were bought by shell companies, many of which would be traced back to Russian oligarchs.
+
+With Trump’s campaign funds secured, Putin then needed to make sure that his army of hackers were doing all they could to tilt the race in Trump’s favor.
+
+The scope of Russia’s cyberwar cannot be overstated; it is likely that the majority of American voters were exposed to Russian propaganda during the 2015-16 election cycle. On the eve of the election, Facebook closed 5.8 million fake accounts whose sole purpose had been to spread propaganda on behalf of Russia. And on Twitter, thousands of fake accounts spouted anti-Hillary Clinton propaganda.
+
+But perhaps the most infamous example of Russia’s election interference was the publishing of Clinton’s campaign chairman John Podesta’s hacked emails. Thirty minutes after the release of a bombshell audio recording in which Trump bragged about grabbing women “by the pussy,” Russia released the torrent of emails, aiming to distract the public from Trump’s campaign difficulties.
+
+And Russia’s disinformation campaign eventually proved successful – Trump was elected president on November 8, 2016.
+
+With him in power, the United States’ move toward the politics of eternity accelerated, sinking it to Russia’s level and validating Putin’s strategic relativism.
+
+The effects of this are already evident. Trump’s 2017 tax bill, for instance, is helping redistribute wealth from the poor to the rich, in a nation in which inequality was already severe and widespread. A United Nations official warned that such policies could make the United States the most unequal country in the world.
+
+If that were to happen, the United States would overtake the world’s most unequal country at the moment – Russia.
+
+# Final summary
+
+The key message in these blinks:
+
+**Russia’s drift towards dystopia was guided by the philosophy of fascist philosopher Ivan Ilyin. His philosophy of the politics of eternity has been implemented steadily throughout Russian President Vladimir Putin’s time in power, mainly by placing blame for Russia’s problems on their enemies, whether real or imaginary. To further his goals of Eurasian expansionism, Putin attempted to stop Ukraine from aligning itself with the European Union. And his battle for Russian dominance led him to successfully influence the Brexit vote and install Donald Trump in the White House.**
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading: ******On Tyranny ******by Timothy Snyder**
+
+**On Tyranny **(2017) is a guide to recognizing the warning signs of tyranny, which, unfortunately, is a political climate that many are all too familiar with. Find out what you can do to protect yourself and keep your community vigilant and resistant to dangerous political leaders.
+
+
+Source: [The Road to Unfreedom by Timothy Snyder](https://www.blinkist.com/en/nc/daily/reader/the-road-to-unfreedom-en/)

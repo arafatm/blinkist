@@ -1,0 +1,192 @@
+![What Truth Sounds Like](https://images.blinkist.com/images/books/5b4f4f10b238e10007b7ecfd/1_1/470.jpg)
+# What Truth Sounds Like
+*Michael Eric Dyson*
+
+>What Truth Sounds Like (2018) revisits a relatively short meeting in 1963 between Robert Kennedy and a group of black artists, using it as a jumping-off point for the ongoing conversation about race in America. This meeting was an eye-opening experience for Kennedy, and author Michael Eric Dyson explains why more politicians need to be woken up to the realities of the black experience. Dyson also takes a look at some of the important writers and artists who are keeping the conversation alive today.
+
+
+# What’s in it for me? Learn how a three-hour meeting in 1963 is still important today.
+
+These days, the legacy of the Kennedy family is closely tied to the civil rights movement of the 1960s, but it wasn’t always this way. Throughout President John F. Kennedy’s administration, from 1961 to 1963, it seemed as though JFK was doing just enough to show that he cared about the lives of African Americans – which is to say, he was not doing nearly enough.
+
+In fact, in its early days, the Kennedy administration appointed some downright racist federal judges in the South. Clearly, President Kennedy and his brother, US Attorney General Robert Kennedy, were more interested in securing support for their second term than doing all they could do for equality and civil rights.
+
+But then, something very important happened in Robert Kennedy’s life. In the summer of 1963, he met with a group of black artists and intellectuals, as well as an activist who’d been terribly beaten by law enforcement. As we’ll find out in the blinks ahead, Robert would initially consider the meeting a disaster, only to find it ended up greatly informing his political life in the years ahead.
+
+Author Michael Eric Dyson suggests that this is the meeting that got Robert Kennedy woke, and that we need a whole lot more meetings like this today if we hope to continue making real progress politically and morally in the United States. These blinks help explain why this is the case.
+
+In these blinks, you’ll find
+
+- why March 24, 1963, is a significant day in American history;
+
+- which modern writer Toni Morrison has compared to James Baldwin; and
+
+- why the fictional land of Wakanda is so meaningful.
+
+
+# The lives of Robert Kennedy and James Baldwin were quite different, but both struggled with difficult truths.
+
+For much of his life, Robert F. Kennedy lived in the shadow of his brothers, especially his older brother by eight years, John F. Kennedy, the 35th president of the United States.
+
+When his brother became president in 1960, it was with some hesitation that Robert accepted the position of attorney general in the Kennedy administration. In taking on this role, Robert was determined to establish himself as an individual and a political force in his own right.
+
+Due to his short stature, limited experience as an attorney and insinuations that he got the job out of nepotism, Robert was eager to prove himself. As it turned out, America was about to enter the tumultuous sixties, and it gave the runt of the Kennedy litter plenty of opportunities to make some important decisions, especially around the issue of civil rights.
+
+One of the people who was very invested in those decisions was the celebrated writer, James Baldwin.
+
+Baldwin grew up in Harlem, the New York neighborhood that’s been home to countless black artists and intellectuals. Luminaries hailing from there include jazz legends Duke Ellington and Billie Holiday, esteemed actor Paul Robeson and the influential author and activist W. E. B. Du Bois.
+
+Starting out as a young preacher in a storefront Pentecostal church, Baldwin would use his tremendous grasp of language to become the nation’s preeminent writer, his face gracing the cover of *Time* magazine in 1963. This high-profile attention was due to his incendiary *New Yorker *essays, which became the book *The Fire Next Time*.
+
+Baldwin’s writing tackled the thorny issues of race and religion in America with a such a gripping and compelling style that it made Baldwin a spokesperson for the black community. However, because Baldwin was a gay man, some of the other black leaders, including Martin Luther King, Jr., struggled to embrace his voice.
+
+While Baldwin and Kennedy were, of course, quite different people, by 1963, they were both facing a segregated nation that was growing increasingly violent and searching for a way to move forward. In August 1962, King had given his “I have a dream” speech, but it was still unclear how the Kennedy administration was going to respond.
+
+# In 1963, the stage was set for a remarkable meeting to occur between Robert F. Kennedy and James Baldwin.
+
+Today, many people consider John F. Kennedy to be one of the more progressive presidents in terms of civil rights, but the truth is that the black community grew quite fed up with his lack of action. At the start of his presidency, it’s safe to say that the president was downright ambivalent about civil rights. His brother Robert was a bit more proactive.
+
+In April 1963, a nonviolent protest in Birmingham, Alabama led by Martin Luther King, Jr. ended with men, women and children alike being blasted with fire hoses, set upon by dogs and beaten with clubs. As attorney general, Robert Kennedy had sent mediators down to help de-escalate the situation and make sure no further protesters were hurt. The effort helped earn the Kennedy administration strong rebuke from white politicians and leaders in the South.
+
+King had thanked Robert Kennedy for his role in brokering a resolution, but James Baldwin questioned whether the White House shouldn’t hold some of the blame for the violence happening in the first place. Baldwin wrote a scathing telegram to Robert that named the president – along with J. Edgar Hoover and “the power structure” behind the Birmingham commissioner of public safety, “Bull” Connor – as bearing the “greatest responsibility.”
+
+In his telegram, Baldwin called the civil rights crisis, “a matter of the nation’s life or death,” and it was one of the reasons Robert Kennedy soon invited Baldwin to his home for breakfast. Baldwin agreed, and the two had a very agreeable discussion. Baldwin was impressed with Kennedy’s warm attentiveness to his children.
+
+It went so well that Kennedy asked Baldwin to invite some people to a follow-up conversation the next afternoon in Manhattan. Kennedy wanted people who were respected by the black community yet weren’t politicians or involved with any organization that had an agenda. He wanted independent minds who’d be interested in talking about possible solutions.
+
+Baldwin told him that black people looked up to entertainers like Harry Belafonte and Lena Horne and that he’d make some calls and meet him tomorrow.
+
+# Those attending the meeting included pillars of the black community who used their profession in progressive ways.
+
+It was short notice, but James Baldwin managed to get some big names to show up for an afternoon meeting with Robert Kennedy. Attendees included popular singer Harry Belafonte; the actress, Lena Horne; the highly respected scholar and psychologist, Kenneth Clark; and the playwright of *A Raisin in the Sun*, Lorraine Hansberry.
+
+Hansberry had been an activist for women’s rights and black rights since before Baldwin joined the cause. For years, she’d been putting social commentary and progressive messages into her work, and her ability to mix artistic integrity with political purposefulness made her an inspirational figure for Baldwin.
+
+Harry Belafonte was also very mindful of how he used his position in the arts. Given his light complexion and good looks, he knew he was fortunate. And while he was very much a pop star, he sang tunes that had a message of freedom, and in his movie roles, he made sure the productions had a diverse crew and always painted any black characters in a positive light.
+
+Similarly, Lena Horne was well aware that her light complexion got her more mainstream acceptance than dark-skinned actresses who could only get cast in housemaid roles. For a while, she remained cautious about putting a political foot forward, for fear of repercussions, but by 1963 she was well established and more confident about speaking up for equal rights.
+
+Kenneth Clark had a doctorate in psychology from Columbia University and believed that social science could be a valuable tool in both fighting the ignorance at the core of white supremacy and helping black people out of the ghetto. His expert testimony was part of the landmark *Brown v. Board of Education* trial that led to the desegregation of public schools. He brought real science into the debate about how urban poverty and bigotry affected the lives of black people in America.
+
+On March 24, 1963, these four all arrived at 24 Central Park South, the Manhattan apartment owned by the Kennedy patriarch, Joseph Sr. Also in attendance was the white actor Rip Torn and Baldwin’s brother David, as well as Baldwin’s secretary, agent and attorney.
+
+But there was one other person who would end up having more influence than all the celebrities combined.
+
+# The most significant person at the meeting was Jerome Smith, a Freedom Rider and witness to the black experience.
+
+On the following morning, there was a front-page headline in the *New York Times* about the meeting: “Robert Kennedy Consults Negroes Here About North.” The subtitle mentioned a few of the attendees, including Lena Horne and James Baldwin, but there was a lesser-known name that really stole the show: Jerome Smith, a Freedom Rider who had been viciously beaten by the police and Southern thugs.
+
+Freedom Riders were nonviolent activists who rode on buses throughout the South to fight segregation, and now Smith was in New York receiving medical treatment for his wounds.
+
+As the guests settled into the expansive Manhattan suite, refreshments were awaiting them, but things got off to a rocky start as Kennedy tried to get down to business. He immediately began trying to convince the guests of the many ways in which the Kennedy administration had been helping black communities, even though many felt they were doing the bare minimum.
+
+And then Kennedy raised concerns over Malcolm X and the Black Muslim movement as a troubling element that could hamper progress, which is when Smith unexpectedly spoke up: “You don’t have no idea what trouble is. Because I’m close to the moment where I’m ready to take up a gun.”
+
+Smith’s words caught everyone off guard, but Lorraine Hansberry quickly stepped in to support him by saying she and her friends were ready to go and get the guns that Smith and others needed.
+
+Kennedy and everyone else knew the weight that Smith’s words carried. The Freedom Rider had been dedicated to nonviolence, and here he was carrying the scars of police brutality and ready to admit that the peaceful approach wasn’t working. If Smith was at the tipping point, it was a clear sign of how much suffering and anger there was in America.
+
+Kennedy made the mistake of trying to dismiss Smith’s anger and steer the conversation toward the other voices in the room, but everyone knew that it was Smith that Kennedy needed to understand. The other guests knew they were living fortunate lives and didn’t have the moral heft that Smith carried with him.
+
+That day, Smith was the witness to how badly the government had let down its black citizens. As Baldwin remembered, Smith represented the dignity and hope of black America. It was far past the time for “cocktail party chatter,” as the Freedom Rider put it. They needed to talk about how a fundamental moral change was going to take place.
+
+# The 1963 meeting was a clash between witnesses and policy that still goes on today.
+
+For nearly three hours, Robert Kennedy was forced to listen uncomfortably to an emotional barrage. It wasn’t the level-headed, clear-eyed discussion that Kennedy had hoped for, so when it was all over, he considered the meeting an unequivocal disaster.
+
+Belafonte and Clark tried to console him afterward, but Kennedy felt hurt and upset that no one was willing to talk about laws, facts and policies. Instead, people wanted Kennedy to bear witness to what was going on in the parts of the nation he hadn’t seen first-hand – the places where Jerome Smith had been – and to recognize how the issue of racism was more a moral issue than a legal one.
+
+Essentially, this meeting in 1963 was a conflict between policy and witness, and it’s still going on today.
+
+In August 2015, while Hillary Clinton was campaigning for the presidency, she met with some of the leaders of the Black Lives Matter (BLM) movement. They wanted to know what she was prepared to do about the ongoing mass incarceration of black people and the widespread racism in policing. Revealingly, Clinton said, “I don’t believe you can change hearts; I believe you can change laws.”
+
+Unsurprisingly, this wasn’t the response that the BLM representatives wanted to hear, but if we look at what followed in both Clinton’s campaign and Kennedy’s career, we can see that this conflict can result in positive changes.
+
+A couple of months later, at Clark Atlanta University, Clinton’s message changed dramatically. She spoke about being heartbroken by a young black woman who told Clinton she felt like an outsider in her own country. She mentioned that it was crucial to use the “the power of the feelings” that come from nonviolent activism. It’s also important to recognize that after the Clinton episode, the BLM movement produced a document called *A Vision for Black Lives: Policy Demands for Black Power, Freedom and Justice*.
+
+And though Kennedy may have felt bitter when the 1963 meeting finished, it wasn’t long before the emotions of that afternoon began to change his perspective. He even put himself in Jerome Smith’s shoes and recognized that he’d probably feel differently about America if he’d been treated as Smith had.
+
+But Kennedy’s transformation went further than that. When he became a Senator for New York and later a presidential candidate in 1968, he visited the poorest neighborhoods in America and saw families in black ghettos and in poverty-stricken Appalachian towns that shook him to his core and motivated his desire to change federal policies. Kennedy became his own witness and an authentic voice for change.
+
+# We need more Robert Kennedys – politicians who know that helping the black community helps everyone.
+
+Tragically, Robert Kennedy was shot dead after a campaign speech in Los Angeles, on June 5, 1968, just a couple of months after Martin Luther King, Jr. was assassinated. When it happened, the author was only nine years old, but he remembers thinking how Robert Kennedy was the first white man he believed honestly cared for black folk.
+
+The author also believes that politicians need to return to that room in 1963 and learn, as Robert Kennedy did, about how the nation as a whole can benefit from addressing the issue of black equality.
+
+The current Trump administration is exposing white supremacy for all to see, and it’s driving liberals crazy. Trump’s willful disregard for facts and knowledge, his embrace of ignorance as a basis for power, is straight from the white supremacist playbook. The only difference is, rather than making black people suffer from this attitude, he’s treating the entire nation as such.
+
+Liberals point to Bernie Sanders as being the far better choice for leadership, yet Sanders was also woefully ignorant of the black experience. This is something he tried to fix as the campaign went on, yet time and again, Sanders tried to shift the conversation away from race to the plight of the working middle class.
+
+In effect, these were the same campaign promises that Reagan and Nixon pushed forward: the interests of the white middle class above all else. And like most politicians, they treated the issues like a competition – to focus on black issues would be taking away from white issues.
+
+But the truth is, when equality is more widespread, everyone benefits.
+
+Minneapolis councilwoman, Andrea Jenkins, is the first transgender black elected official in the United States. According to her, the civil rights movement of the sixties is what made advances in the LGBT community possible. And yet little has changed in the larger reckoning around racism and discrimination in the United States.
+
+Interestingly, Robert Kennedy’s grandson, Joseph Kennedy, a congressman in Massachusetts, made an impassioned speech following the 2016 election. In it, he acknowledged the continued racism, bigotry, homophobia and xenophobia in America and tried to remind people of how strong the nation could be when it is truly united. It was the steps made in women’s rights and civil rights – the steps toward genuine equality – that fulfilled the promise of a perfect union.
+
+# Black artists, as well as athletes, are still being progressive with their work today.
+
+A lot has changed in the music industry since the days of Harry Belafonte. There used to be a very concerted effort in the black community to keep a positive media image at all times. Things like racial insecurities, misogyny or materialism were kept private – that is, until hip-hop arrived and made these things very public.
+
+Belafonte has been vocal over the years in calling out black entertainers or even politicians like former Secretary of State Colin Powell, who, in his eyes, didn’t do enough to forward the black cause. While he’s even been critical of Jay-Z and Beyoncé, the truth is there are a great many entertainers and athletes carrying the Belafonte torch.
+
+Jay-Z has spent a great deal of money bailing out Black Lives Matter protesters, as well as providing scholarships for underprivileged students and supporting the families of the victims of racial violence. And while hip-hop has sometimes been at odds with the image older generations were carefully cultivating, artists like Common, Talib Kweli and Jay-Z have brought their experiences as authentic witnesses to the mainstream. By providing access to the dreams and desires of poor black people, they are a vital part of the conversation about race in America.
+
+One of the strongest voices in defiance of the overwhelming white domination in the United States has been that of athletes.
+
+Whenever black citizens have spoken out against racism and inequality, they get branded as being “un-American,” “ungrateful” or even traitors to American values. Which is ridiculous since one of the most important American values is the right to protest against injustices.
+
+Nevertheless, when American football player Colin Kaepernick took a knee during the American anthem, as a way to pay homage to the many victims of police brutality, he was joining the ranks of Muhammad Ali, who gave up his championship title in protest at the Vietnam war, and the black Olympians of 1968, who are now recognized as heroes for raising their fists and flashing the Black Power symbol when receiving their medals.
+
+Even though Trump has called politically engaged athletes “sons of bitches,” Kaepernick and those who have followed his lead will, according to the author, most certainly be on the right side of history.
+
+# There are significant black intellectuals working today, though not always harmoniously.
+
+James Baldwin set huge standards for black intellectuals. Few could hope to write as well and so strikingly reveal the truth about the moral issue of racism in America.
+
+Nevertheless, Baldwin had his critics, including the Black Panther leader, Eldridge Cleaver, who was especially venomous in denouncing Baldwin – perhaps because of his homosexuality, which Cleaver saw as a “sickness.” But the clash between Baldwin and Cleaver also reveals a general conflict between intellectuals and radical activists that we can still see today.
+
+According to none other than the celebrated author Toni Morrison, the writer Ta-Nehisi Coates is a modern-day James Baldwin. It’s a comparison of which the author Michael Eric Dyson also approves, even though the vocal cultural critic Cornel West believes otherwise.
+
+Coates has a very different style to the thrilling, twisty prose of Baldwin, but his clean and graceful writing is still brilliantly effective in its analytical dissection of white morality and the hunger for truth. Much of his acclaim, including a MacArthur Fellowship, came following his 2015 book *Between the World and Me*, which Morrison called “required reading” as it picked apart the lies behind American white supremacy.
+
+But just as Baldwin had his Cleaver, Coates has his own impassioned critic in fellow black intellectual Cornel West. At the heart of West’s concerns seems to be a refusal to endorse anyone who doesn’t share his loathing of Barack Obama, which the author considers to be highly irrational. You could also describe West’s habit of blaming other black leaders for black problems as a form of nihilism.
+
+One could argue that West’s criticisms come from his own delusional bitterness or self-righteousness. How else to explain West attacking Coates on Twitter in such a way that his accusations of Coates being cowardly and self-obsessed were supported by white supremacist Richard Spencer.
+
+Whatever the case, if we’re going to focus on progress, activists and intellectuals should be learning from one another. Writers like Baldwin and Coates, as well as Erin Aubry Kaplan, who offers a much-needed female perspective, are great at helping activists by clearly revealing what’s at stake.
+
+# Hamilton, Get Out and Black Panther offer remarkable commentaries on the black experience.
+
+Artists like Harry Belafonte and his mentor, the actor Paul Robeson, made it clear a long time ago that pop culture has the ability to both enlighten and empower.
+
+Robeson used his platform as one of the great actors of his time to call for social change in such a defiant way that it earned him a blacklisting and cost him his career. Belafonte learned from this and was more sly in defying white norms while inspiring the black community.
+
+Recently there has been an abundance of pop culture that has resonated powerfully with the mainstream and has promoted a different way of thinking about America.
+
+The musical *Hamilton *has radically recast the Founding Fathers, who in reality saw whiteness as the default color of America and considered Africans to be “domestic insurrectionists” worth three-fifths of a white person. In Lin-Manuel Miranda’s musical, the founders are people of color who use words and ideas as powerful, transformative tools.
+
+Another audacious piece of pop culture is Jordan Peele’s *Get Out*, which casts the white suburbs of America as a terrifying place where blackness is appropriated and used for white purposes. *Get Out *not only shows how America’s white upper crust has worked to silence black voices, it also accurately suggests that America is far from being part of a post-racial world.
+
+But perhaps most audacious of all is *Black Panther*, a movie that reinforces James Baldwin’s idea that race is a fiction and color is far more of an imagined political identity than it is a biological concern. In *Black Panther*, the fictional land of Wakanda creates the backdrop for an unapologetic reveling in black artistry.
+
+In Wakanda, there is no such thing as gentrification; there is no whiteness to ask permission from or to get in the way of a person’s beautiful black destiny. *Black Panther* is prophecy at its glorious and uninhibited best – a place where black people can just live their lives. As Iowa is for white people, Wakanda is for black Americans – and so much more.
+
+# Final summary
+
+The key message in these blinks:
+
+**In 1963, an important meeting took place that opened the eyes of Robert Kennedy to the real plight of black Americans and saw him develop the empathy that he would show as a senator and a presidential candidate in 1968. It shows how listening to authentic witnesses can lead a politician to become more engaged as an agent of social change. Today, a great many black artists are speaking the truth about the black experience, but we need more people like Kennedy who are aware of the reality surrounding racism and the difference between the moral and political problems.**
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****The Soul of America *****by Jon Meacham**
+
+*The Soul of America *(2018) takes readers on an enlightening tour of America’s tumultuous past. From the final moments of the Civil War to the long overdue civil rights and voting legislation of the 1960s, the book reveals the United States for what it has always been: a nation of deep and lasting conflict. By looking to America’s past, we can see both where today’s political divides stem from and why the nation will likely be able to persevere.
+
+
+Source: [What Truth Sounds Like by Michael Eric Dyson](https://www.blinkist.com/en/nc/daily/reader/what-truth-sounds-like-en/)

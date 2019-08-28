@@ -1,0 +1,218 @@
+![Rocket Men](https://images.blinkist.com/images/books/5b3abab1b238e100071d7d78/1_1/470.jpg)
+# Rocket Men
+*Robert Kurson*
+
+>Rocket Men (2018) tells the riveting story of Apollo 8, the moon mission that put the United States ahead of the Soviet Union in the Space Race. In 1968, NASA chose to risk everything. They had to beat the Soviets to the moon, and they had just four months to do it.
+
+
+# What’s in it for me? Discover the passion and resolve behind the Apollo 8 mission.
+
+The romance of the final frontier – space – is undeniable. Books have been written, films shot and graphic novels composed, and, in many of these science-fictional depictions, space travel seems like a cinch. More often than not, aliens pose more of a problem than costs and calculations.
+
+But, in the real world, what humankind needs to achieve manned spaceflight is hard graft and strength of will.
+
+That’s what the incredible story of Apollo 8 shows. The United States was locked in rivalry with the Soviet Union and falling rapidly behind in the Space Race. But they decided to gamble, to push themselves to the limit and to show that they had the capability to send the first manned mission to the moon’s orbit and back.
+
+Every part of the mission came together just right, and, to this day, the success of Apollo 8 remains an inspiration. The astronauts and ground team never wavered in their dedication, despite the pressures of the audacious and ambitious four-month completion time frame.
+
+What’s more, what began as a competition with the Russians gave humanity something much greater. We were able to understand our place in the universe and to see that, despite political rivalries on Earth, there’s far more that unites than divides us.
+
+In these blinks, you’ll learn
+
+- what made the crew of Apollo 8 much better than the astronauts of Apollo 7;
+
+- why 69 miles from the moon’s surface is an ideal distance; and
+
+- the story of the most stressful publicity photo op of all time.
+
+
+# The Space Race began as a rivalry between the two largest Allied powers, the Soviet Union and the United States.
+
+Cast your mind back to 1946. The Second World War had come to an end. The Allied forces, led by the Soviet Union and the United States, had been victorious. But relations between the two countries hadn’t just deteriorated; they’d become distinctly sour. In that year, Joseph Stalin declared that the Soviet Union would soon surpass the West in science and technology, and an ideological battle began.
+
+By the end of the 1950s, it was clear that Stalin had made no idle boast. The Soviet Union already had the upper hand.
+
+The symbolic peak of the Soviet Union’s success was the launch of the famous Sputnik satellite into orbit. Though small, this technological step, taken in October 1957, was significant for humankind. But the technological clout of the Soviets gave many people pause. After all, rockets that were powerful enough to launch satellites into space would be powerful enough to launch missiles across the world.
+
+To make matters worse, the United States was lagging behind. When they attempted to send their own satellite into space that same year, it was a massive failure. The rocket rose just a few feet above the launch pad before crashing back down and exploding.
+
+And then, in April 1961, the Soviets confirmed their dominance. Russian cosmonaut Yuri Gagarin became not just the first human to be fired into space; but they also achieved the very tricky task of getting him to orbit the Earth, and then to return safely again.
+
+It was clear after Sputnik that if the Americans wanted to keep up, they would have to push themselves to the limit. Their efforts had mixed results.
+
+To begin with, in September 1958, president Eisenhower created the National Aeronautics and Space Administration (NASA).
+
+Thanks to NASA, astronaut Alan Shepard became the first American in space when he flew the first mission of its Mercury program. Shephard’s mission was a success, but somewhat underwhelming when compared to the Soviet’s accomplishments. He had made it to space, and he had made it back, but he’d only managed to do it after Gagarin.
+
+That same May, President John F. Kennedy stood before Congress and proclaimed that the United States would not stop. Its audacious goal was to send a man to the moon and bring him home safely before the end of the decade. This sounded impossible – but striving to achieve the impossible pushed the United States to catch up to the Soviet Union.
+
+# A successful moon mission was regarded as a much-needed unifying event in a divided United States.
+
+1968 must rank as one of the most significant years in history. Counter culture and progressive movements rocked the world. In the United States, many Americans were disturbed by their government’s actions abroad, while at home, racial tensions were bubbling over.
+
+The Vietnam War had begun in the expectation that US forces would soon conquer Communist North Vietnam.
+
+But, in January 1968, US and South Vietnamese forces were caught off guard by North Vietnamese soldiers and guerrillas. The Tet Offensive was a coordinated attack on over 120 population centers and military bases in South Vietnam.
+
+The American public was shaken to its core. President Lyndon B. Johnson had recently claimed that US victory was in sight. The Tet Offensive revealed these words to be nothing but empty rhetoric.
+
+The administration had been caught out and they knew it. Ten days after the Tet Offensive began, US Secretary of State Dean Rusk exploded in anger at reporters.
+
+They had been asking him questions about the war, when suddenly he burst out, “Whose side are you on?”
+
+The interaction showed how deeply the war had divided America. In general, older people, who were used to trusting their government, were supportive of the war effort. Younger generations, though, weren’t afraid to question the government’s behavior and take to the streets in protest if necessary.
+
+Simultaneously, the civil-rights movement in the United States was gaining ground. In February 1968, a commission examining the causes of a series of American race riots earlier in the decade came to a grim conclusion. It claimed that the country was on the verge of becoming “...two societies, one black, one white – separate and unequal.”
+
+And then, in April, civil-rights leader Martin Luther King, Jr. was shot dead on his balcony at the Lorraine Motel in Memphis, Tennessee. That same night, 130 US cities erupted in violence. Sixty-five thousand army and national guard troops were mustered in response.
+
+It wasn’t the only high-profile assassination that year, either. In June, the pro-civil rights presidential candidate Robert Kennedy was shot down at Los Angeles’s Ambassador Hotel. Kennedy’s distraught supporters at the hotel couldn’t believe what they were seeing. A cry of “Not again!” rang out.
+
+It would have been too much to expect a single space mission to unite such a divided country. But, at the very least, an attempt at a moon landing would be a historical endeavor all Americans could rally behind.
+
+# The Apollo 8 mission allowed NASA to work out what a landing on the moon would take.
+
+A clear mission for the next stage of the NASA space program was formed. Apollo 8 would be launched from Earth and orbit the moon. What’s more, there would be astronauts on board.
+
+Now, the orbiting part is critical. Down here on Earth, we are very familiar with the side of the moon that faces us. In fact, in 1609, the Italian scientist Galileo Galileo used his telescope to make detailed sketches of the moon’s surface. But no human had set eyes on the far side of the moon. Apollo 8 would make that happen.
+
+Apollo 8’s success would be a blow to the Soviets, too. In 1959, an unmanned Soviet spacecraft had only managed to take a few grainy pictures. But it was thought that there would still be plenty more to see. There’s no weather on the moon, so the evidence of past events doesn’t simply disappear. Every scar, impact crater and piece of debris remains in place. The astronauts would have access to this remarkable record of lunar history.
+
+On top of that, the hard work for launching and bringing Apollo 8 into the moon’s orbit would pay off. All the scientific calculations, training and planning of mission rules would lay the foundation for future missions.
+
+A successful Apollo 8 mission would also mean NASA could lay the groundwork for a future moon landing since it would get so close to the moon’s surface.
+
+The astronauts would be able to scout potential landing locations and take detailed, up-close photographs.
+
+Therefore, even though Apollo 8 wasn’t to land on the moon, its orbit path was chosen and calculated as though it were. The magic figure was 69 miles above the moon’s surface – theoretically close enough to descend to the moon and return without wasting too much fuel in a landing craft, but far enough away to keep the orbiting command module from crashing.
+
+It was no easy task. Trying to position a spacecraft 69 miles above the lunar surface would belike trying to hit the fuzz of a peach, suspended 28 feet in the air, with a dart.
+
+But it was critical that they make the attempt. If Apollo 8 could do it, then moon-landing missions would be able to do it, too.
+
+It was a big task for a space-mission program that had been languishing. It was a leap into the unknown, and it would have to be made quickly.
+
+# Apollo 8 had a mere four months to prepare for launch.
+
+Like all other scientific organizations, NASA prefers schedules that are methodical and well thought out. But such diligent scheduling had to be tossed out the window in Apollo 8’s case.
+
+Time was of the essence. Throughout 1968, there had been indications that the Soviets would soon be capable of sending a man to the moon.
+
+First of all, on April 4, 1968, a top-secret US intelligence report on the Soviet space program was published. It was a shock to the system. There was no doubt that the Russians were close to attempting a flight around the moon with a manned spacecraft. In fact, the launch was expected to happen in the second half of 1968.
+
+Secondly, in November, the Soviets succeeded in launching Zond 6, which made an unmanned flight around the moon.
+
+The timing could not have been worse for NASA’s Apollo program. They were still reeling from the Apollo 1 disaster, as was the rest of the country.
+
+The aim of Apollo 1 had been to orbit Earth. In January 1967, astronauts Gus Grissom, Ed White and Roger Chaffee were taking part in a simulated launch for the mission. However, a spark in the spacecraft’s electrical system ignited a fire. This spread rapidly in the oxygen-rich environment. Tragically, all three astronauts were trapped in the command module and died.
+
+Prior to that, NASA’s safety record had been irreproachable. But afterward, it became a commonly held belief that the frantic push to get to the moon had contributed to the astronauts’ deaths.
+
+It wasn’t the only high-profile catastrophe. On April 4, 1968 – the very same day the intelligence report was released – a second test of the Saturn V rocket ended in disaster. The Saturn V was a critical component; its task would be to launch the unmanned Apollo 6 spacecraft. However, during the test flight, the rocket shook so violently that pieces of the spacecraft came flying off and two of the five engines prematurely shut down, and an essential engine failed to reignite.
+
+# 
+
+Apollo 8 jettisoned used parts during its mission, going from a takeoff weight of 6.2 million pounds to a return weight of 12,000 pounds.
+
+# The Apollo 8 astronauts were the perfect crew for the mission.
+
+Before Apollo 8 could be launched and fired toward the moon, it was clear that plenty of testing had to be done. NASA couldn’t risk another disaster.
+
+And so, in October 1968, Apollo 7 was launched into Earth’s orbit. The idea was to test the systems that would later be used for Apollo 8. The mission achieved all its objectives, but it wasn’t entirely smooth sailing. Indeed, the astronauts not only encountered several technological difficulties while on board; they also came down with nasty head colds – all of which combined to create rocky communications with mission control. In fact, the astronaut’s attitudes got so bad after liftoff that the director of flight operations, Chris Kraft, viewed them as little more than insubordinate.
+
+Thankfully, the crew of Apollo 8 were consummate professionals. Each was highly motivated in his own way for deeply personal reasons.
+
+Jim Lovell had wanted to explore space his entire life. While at high school in Milwaukee, Wisconsin, he read mountains of science fiction, as well as a number of books about rocketry. In fact, in his junior year of high school, he even built a rocket with some friends.
+
+Bill Anders was deeply passionate about geology and exploration.
+
+Frank Borman came at things from a different direction. He just wanted the United States to beat the Soviet Union in the Space Race. This motivation was grounded in his own experience visiting postwar, Soviet-occupied Germany in 1949. He had seen the dreadful conditions in which East German refugees lived. Whole families were living in cramped quarters in barracks as they made their way to the West. It was this experience that strengthened his belief in America as a necessary force for good in the world.
+
+But the three men weren’t just individuals operating alone. They also worked extraordinarily well as a team.
+
+Borman and Lovell had made their first trip to space together on Gemini 7. The orbital flight had lasted two weeks. It was thought that so much time, in such cramped quarters, would inevitably lead to a clash, because the two men couldn’t have been more different. Lovell was known for his warmth and friendliness. Borman was much sterner, a real no-nonsense kind of guy.
+
+But in practice, the two had a riot. They got on so well that people later assumed they had been lifelong friends.
+
+And while neither of these two men had flown with Anders before, they were immediately impressed by his work ethic. In fact, Borman felt that he had never met a more diligent worker or a person with more integrity during his entire time at NASA.
+
+# It was an extraordinary technical feat to get Apollo 8 to the moon and back.
+
+In the Space Race, the prize was the moon. But the Americans knew they weren’t ready to land there just yet. But then engineer George Low struck upon a solution. They would attempt a simplified mission. They would get Apollo 8 to the moon’s orbit by December 1968, putting off the actual business of a lunar landing for another occasion.
+
+Nonetheless, even this “simple” version was still going to be incredibly complicated. NASA’s calculations and planning had to be accurate and meticulous. Additionally, the astronauts would have to execute the designed procedures perfectly.
+
+One striking example of this was the maneuver known as Lunar Orbital Insertion (LOI).
+
+As Apollo 8 passed “behind” the moon, it would be necessary to fire its engines at precisely the right moment so that it could enter lunar orbit. Even the slightest discrepancy in timing or miscalculation of engine thrust would result in the craft either drifting off into space or crashing into the moon’s surface.
+
+Furthermore, when Apollo 8 went behind the moon, the astronauts would lose communication with mission control. Both they and those back on Earth would only know if the LOI maneuver had been successful if communication were lost and then reestablished at precisely the times predicted. In the end, they got their calculations exactly right.
+
+To add further anxiety to the mix, Apollo 8 went into space loaded with equipment that hadn’t been tested in space.
+
+For instance, NASA had developed a heat shield to keep the astronauts safe from the temperatures that would peak at 5000 °F when their craft reentered Earth’s atmosphere. This heat was generated by the friction between the atmosphere and the craft, and though they believed the shield could take it, there was no way to simulate the exact conditions. The first layer of the shield was designed to absorb the heat and burn up, flying off the craft in tiny pieces during reentry. A second layer would then protect the astronauts.
+
+Therefore Bill Anders was rightly terrified by what he saw during reentry: baseball-sized chunks appeared to be coming off. But NASA had got that right, too. The pieces were really grain-sized but as they were coated in ionized haze, they looked much larger than they actually were.
+
+The success of Apollo 8 would have been impressive under any circumstances. But the fact that nearly every step of the mission worked out as planned was a truly astounding feat.
+
+# 
+
+Apollo 8 had to travel 240,000 miles to the moon, a moving target which itself traveled 150,000 miles between Apollo 8’s launch and rendezvous.
+
+# The astronauts received incredible support, both professionally and personally.
+
+Getting to the moon’s orbit is no easy task. Although the astronauts were undoubtedly talented men, they could not have made it without the support of many, many others.
+
+For starters, the support of the astronauts’ wives was unwavering and dedicated. Each astronaut had to spend a great deal of time away from his family, leaving their wives in charge of the important task of taking care of the kids.
+
+And the wives were unwavering in their support during missions, too. Susan Borman, for instance, had NASA relay a message to her husband during the mission, using a private code that only the two of them would understand: “The custard is in the oven at three fifty.” But this wasn’t about cooking - She’d taken on the “custard” of domestic life and child-rearing so he could focus entirely on his jobs, first as a test pilot and then as an astronaut. The message meant that everything was fine back home and he could focus entirely on the Apollo 8 mission.
+
+During the flight of Apollo 8, the astronauts’ wives also did an incredible job of staying calm and not revealing how terrified they were, even to their own children, which is especially impressive considering how much attention they were getting from the international media.
+
+For instance, Valerie Anders and Susan Borman were made to pose for a photo for NASA while they were listening to radio communications between ground control and Apollo 8 during one of the riskiest parts of the mission. So there they were, all dressed up prim and proper in their pearls for the *LIFE *reporter and photographer, but forced to hide the horrible anxiety they were no doubt feeling. Would their husbands successfully make it out of lunar orbit?
+
+Aside from the wives, many other committed individuals have remained largely unrecognized. The astronauts were well aware that they were just three men in a much larger machine. NASA scientists and administrators, mission control and many others also played key roles.
+
+The astronauts acknowledged their debt the moment they returned to Earth. Aboard the USS *Yorktown –* the Navy ship that had recovered the astronauts from the ocean, where they’d landed – Borman was given a microphone. He addressed the crew and thanked them: “...thousands of people made this possible, and I guess we’re all just part of the group.”
+
+However, not every part of every team can be credited all the time: as the public face of the mission, it would be the three astronauts who got the accolades for years to come.
+
+# The Apollo 8 mission gave us two moments that changed the way humanity thinks about Earth.
+
+These days, the immediate political significance of the Apollo 8 success is lost on us. Sure, it put the United States ahead in the Space Race, but the Soviet Union no longer exists and the US government isn’t interested in space travel anymore. Apollo 8 might have been a resounding success from a scientific and technological perspective, but those are small fry now.
+
+However, Apollo 8’s flight produced two enduring achievements that changed the way people think about Earth.
+
+Bill Anders’s photograph,* Earthrise*, an extraordinary image of Earth rising beyond the moon’s horizon has rightly become one of the most famous pictures of all time.
+
+Owing to Apollo 8’s rotation during flight, the crew didn’t always get to see much out of the craft’s small windows. Then, suddenly, as they were orbiting the moon, the Earth appeared in Anders’s window. It was a sublime sphere of blue, white and brown against the blackness of space. He grabbed the camera and shot as fast as he could.
+
+What he gave us is the vision of what the astronauts were confronted with at that moment. This blob, the home of all known life, seemed so fragile and small. They were struck by Earth’s singularity, and by the deep affinities between all human beings across national borders.
+
+That feeling – never before felt by humans – was captured in the image, and the reaction to it since has been immense.
+
+The second great moment of the mission – the crew’s televised Christmas address – contributed to this feeling of oneness. The astronauts were aware that people all over world would be watching their broadcast from lunar orbit. They were unsure what to do, but they searched for a message that could convey the sublimity of their flight.
+
+In the end, the crew decided to show images of the moon through Apollo 8’s windows and to share their own impressions of space.
+
+Then, as they passed over the famous lunar plain known as the Sea of Tranquility, the astronauts took turns reading selected passages from the Bible that detailed God’s creation of the universe. They closed their broadcast wishing a blessing upon everyone “on the good Earth.” It was a humbling moment.
+
+It just goes to show that, even though the Apollo 8 mission had been driven by a desire to best the Soviet Union in the Space Race, its rewards were much greater. We were moved and shaken by the power of our shared humanity – a feeling that transcended the science and technological advancement that had brought us there.
+
+# Final summary
+
+The key message in these blinks:
+
+**The United States found itself lagging behind in the Space Race almost from the start. So they formulated a plan to launch Apollo 8 quickly. This risky mission would involve orbiting the moon and returning the astronauts safely to Earth. The extraordinary commitment of all involved not only made it possible; it turned the mission into an astounding success with broad cultural ramifications.**
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****An Astronaut’s Guide to Life on Earth *****by Chris Hadfield**
+
+Test pilot and astronaut Chris Hadfield was the first Canadian to space walk, and this is his story. He offers insight into life in the space business, from training and lift-off to space research and coming home. He outlines the surprising challenges astronauts face, both off and on this planet, and offers some of the wisdom he gained from leaving our natural home and coming back down to Earth. Even if you never make it to the Milky Way, you’ll find that we have a lot to learn from spacemen.
+
+
+Source: [Rocket Men by Robert Kurson](https://www.blinkist.com/en/nc/daily/reader/rocket-men-en/)

@@ -1,0 +1,246 @@
+![The Gulag Archipelago 1918-1956](https://images.blinkist.com/images/books/5b4d1a93b238e10007b7ecce/1_1/470.jpg)
+# The Gulag Archipelago 1918-1956
+*Aleksandr Solzhenitsyn*
+
+>The Gulag Archipelago (1973) is a literary chronicle of the Soviet work camps known as gulags, which existed between the years 1918–56. Drawing from his own experience as a prisoner, as well as the reports, memoirs and letters of hundreds of others, author Aleksandr Solzhenitsyn provides a chilling account of the constant dread and horror of life in the gulags, while also charting the psychology and organization behind the government-sanctioned prison system.
+
+
+# What’s in it for me? Find out what life was like in the brutal gulag prisons of Stalin’s Russia.
+
+Aleksandr Solzhenitsyn’s *The Gulag Archipelago* holds an interesting place in literary history. While rightfully regarded as a vitally important document of the horrible acts committed by the government under Stalin’s rule, it’s also a great work of literature, both unflinching and deeply poetic. Therefore, Solzhenitsyn’s work is not your average non-fiction account of life in a prison camp – it’s also an attempt to capture the bleak absurdity and desperate humanity of it all.
+
+The central literary device Solzhenitsyn uses is the metaphor of Stalin’s gulag network as a chain of islands – otherwise known as an archipelago – separate and out of view from the rest of Russia. This allows Solzhenitsyn to take an anthropological approach, describing to the reader what life was like on those strange and brutal islands.
+
+These blinks will take you through some of Solzhenitsyn’s thoughts and stories about the gulag system that brought misery to millions.
+
+In these blinks you’ll find out
+
+- the function of the Organs in Stalin’s regime;
+
+- how many years of hard labor you could get for stealing potatoes; and
+
+- why escape from the gulags was virtually impossible.
+
+
+# The Archipelago rose with the October Revolution, spread from Solovki prison, and was firmly rooted after World War II.
+
+The gulags, or forced labor camps, of the Soviet Union were not unlike an archipelago – a series of islands unto themselves, spread throughout the country. These islands were invisible to much of the world, but any soul who entered one would discover they were all too real.
+
+There were thousands of islands in the Gulag Archipelago, scattered here and there across the Russian motherland – from the Bering Strait in the east to the Bosporus in the west. But you won’t find tickets to these destinations being sold at any travel bureau.
+
+The reality of these spellbound islands remains a mystery to all, even though the first peaks of the Gulag Archipelago emerged in 1918 – the year of the Great October Socialist Revolution, led by Vladimir Lenin.
+
+Lenin would go on to take control of the Soviet government, calling for “decisive, draconic measures” only months after the revolution in order to “tighten up discipline.” And so the islands began to form.
+
+Those familiar with communist politics will not find the gulags particularly surprising. After all, Karl Marx and Friedrich Engels, writing in their *Communist Manifesto*, called for the old bourgeois system of compulsion to be destroyed. In its place, *a new system of compulsion* for the working class. Since the old system included prisons, it was only logical that this new system would come with a new kind of prison.
+
+On September 5, 1918, the Gulag Archipelago was born when the following decree was published: “Secure the Soviet Republic against its class enemies by isolating them in *concentration camps.*”
+
+True to its name, the very first gulag in the Archipelago appeared on the Solovetsky Islands in the White Sea, where an old monastery was turned into a prison camp. This first camp, the Solovki gulag, was the model from which all future camps would take their cues.
+
+From there, the Archipelago grew through the dense forests of taiga and barren lands of tundra – places where mostly hares, deer, foxes, and wolves had called home. Now, these animals would appear as curious neighbors to the inhabitants of these quickly sprouting islands.
+
+While the origins of the Gulag Archipelago can be traced back to before World War I, it was following World War II that these islands hardened into the massive workforce they would become.
+
+After World War II, the Soviet Union faced a pressing economic concern to grow and build, and what better workforce to take on this task than all the manpower sitting in the gulags? Not only did you not have to pay them, but they had no families to look after and so could be easily moved from place to place. You also didn’t have to worry about housing, schools, hospitals or even food and bathing.
+
+# You get to the Archipelago by being arrested by the Organs.
+
+“Me? What for?” This is the question millions of Russians asked before they were sent to an island on the Archipelago. But few, if any, ever received an answer.
+
+Before they knew what was happening they were being escorted through the front gate of their new home – their previous lives now but memories.
+
+Everyone at the Gulag Archipelago worked, and would very possibly die doing so. Another thing they all had in common was the arrest that put them in there.
+
+Those who worked for the organization running the gulags were known as the Organs. These were the people who arrested you, whether you were at your job on the factory floor or an operating table in the hospital.
+
+The Organs could be disguised as anyone: a religious pilgrim, cyclist, taxi driver, bank teller or the manager of a movie theater. They could show up at any time, too – although arresting people at night had its advantages since it was easier for someone to disappear under cover of darkness. Be it day or night, alone or in a crowd, it didn’t matter – if the Organs wanted you, they would get you.
+
+It also didn’t matter that there was no crime to be found guilty of. If the Organs had any guiding philosophy, it was to fight the *internal enemy*. This was anyone who’d dare to oppose the dictatorship of the proletariat.
+
+But guilt or innocence meant nothing to the Organs, for their main concern was the arrest quotas they had to meet. But if they were able to get someone to confess to a crime – even if it was a crime they made up – this was a job well done for the Organs.
+
+For Stalin, there was no such thing as a lack of enemies, so he expected the Organs to deliver a certain number of arrests. What Stalin especially liked to see were people from religious organizations, since any religious activity was considered “counter-revolutionary propaganda.” Even the teaching of religion was considered a political crime, and those arrested under these terms were known as *tenners* – meaning they received the maximum sentence of ten years.
+
+But religious offenders were only a fraction of the arrests made by the Organs.
+
+Independent and influential thinkers were targeted, as well as those who’d once had a small private businesses – who were falsely suspected of hoarding gold. Others were simply accused of having an illegal radio receiver.
+
+# 
+
+*“Just give us a person - and we’ll create the case!”*
+
+# Interrogations in the Gulag were accompanied by violence and torture.
+
+The use of torture has had its ups and downs throughout Russia’s history.
+
+Under the seventeenth-century rule of Tsar Alexei Mikhailovich, it was considered a useful tool, while his successor, Peter the Great, considered it a barbaric practice. At the end of the eighteenth century, under Catherine the Great, it was similarly forbidden. But under the banner of socialism in twentieth-century Russia, torture returned with a vengeance.
+
+In fact, many of the false accusations and fabricated legal cases practiced by Soviet authorities can be seen as a return to medieval standards.
+
+The violence and torture carried out by the Organs was committed in the name of performing interrogations, but these interrogations were never part of an investigation or a tool to get to the bottom of a crime. Instead, they were meant to weaken people to such as state that they’d confess to whatever charges had been brought against them.
+
+Those being “interrogated” might be a professor who’d frequently cite Lenin and Marx, but too often fail to mention Stalin. Or a young woman who went to see a movie in the company of foreigners.
+
+So what kind of torturous methods were used as standard practice by the Organs?
+
+First, there were the psychological tactics, like using sleep deprivation to make the accused more vulnerable, before escalating to humiliation, intimidation, persuasion and aggressive language.
+
+Then there was the physical violence: cigarette burns, placing the accused in a bedbug-infested box, squeezing heads with iron clamps, slowly crushing testicles, being lowered into a vat of acid – all of this in addition to the standard practice of starvation and beatings.
+
+All of this took place despite the fact that, according to the Code of Criminal Procedure, Article 136, torture was unlawful. It stated that “the interrogator does not have the right to extract testimony or a confession from an accused by means of compulsion or threats.”
+
+If the accused were to bring this up and ask to see the law, the interrogators would say that it wasn’t supposed to be available to defendants, or that there were no copies available.
+
+If there was any question as to why such barbaric acts were being committed, there was always the Communist ideology to fall back on: the whole bourgeois class had to be destroyed.
+
+# 
+
+During the 1920s, the best hypnotists waived their careers to join and serve the GPU – the Russian secret police – and take part in interrogations by hypnotizing the accused.
+
+# Sealed steel ships traveled between the ports of the Archipelago.
+
+If you were to take out a map of Russia and put a pin in every railroad junction, railroad terminal and provincial capital, what do you think you’d get? That’s right – a precise map of all the ports of the Gulag Archipelago.
+
+As you may have surmised, the ships that would travel to these island ports and drop off prisoners weren’t boats, but trains with sealed prisoner cars.
+
+If you were to find yourself a passenger in one of these prisoner cars you’d be surprised by just how many fellow travelers there were in your compartment: 15, 20, maybe 30 people or more all vying for space and oxygen in a car with no seats or windows.
+
+To hold all these people in such a manner, the cars were prepared with reinforced floors, ceilings and walls. Each compartment was thoroughly tested for potential holes or weaknesses so there was no chance of prisoners escaping.
+
+And just to be extra certain, platforms were built for guards armed with machine guns to watch over the prisoners.
+
+If you were to see one of these trains from the outside, you’d think, given the lack of windows, that the train was carrying supplies or some sort of non-human cargo. Surely you’d never suspect the horrible reality.
+
+Special care was also given to the loading of the prisoners, so that ordinary citizens wouldn’t accidentally stumble upon the disturbing sight of these people being treated like cattle.
+
+Sure, the general public knew that regular arrests were being made, but they’d still be horrified to see *thousands *of prisoners being treated in such a manner. This is why the loading was always done at night.
+
+Attention was also given to making sure the prisoners were kept in a state of constant terror. This was achieved by cutting prisoners’ hair off, frequent pat downs for any possible tools of escape and being routinely counted.
+
+Then there was the denial of water. To avoid having to deal with toilet issues, prisoners wouldn’t receive access to water for days at a time. This wasn’t so much a method of torture, but a practical concern: If they’re given water once, they’ll have to urinate once. Twice, and they’ll go twice. This issue could be avoided altogether by not allowing any water at all.
+
+Just how long do the prisoners in these over-packed cars have to cope with their confinement? Depending on the destination, the journey could be several days or several weeks.
+
+# The life of the natives of the Archipelago was one of work, starvation, and death.
+
+The moment you arrived at your first camp, you officially became a native of the Gulag Archipelago. You were reborn into a new existence as a prisoner, which will likely be your identity for the rest of your life.
+
+But before the coming of death, the day-to-day routine of the Archipelago people consisted only of work, each and every day, from morning to night.
+
+Depending on your island, you might have worked in a quarry breaking up rocks, in a mine digging for coal, copper or lead, or perhaps in a factory smelting ore and casting metals.
+
+Then there were those who worked on the railroad, digging out tunnels through mountains or laying track. Others did agricultural work, while the most traditional gulag labor was logging.
+
+No matter what your task, work began before sunrise and ended once the sun went down.
+
+Outside of work, there was nothing. It was a life of starvation and deprivation. In fact, it wasn’t really a life at all, but rather a slow kind of dying.
+
+What little food there was consisted of a pot with some water, and if you were lucky, there might be a few small potatoes in there, or maybe some cabbage, beet tops, vetch or bran.
+
+As for the clothing of the native Archipelago people, you had the clothes you came in with – what they allowed you to keep, at least. Prisoners would get a peacoat when their street clothes inevitably fell apart after a week of work, and it wouldn’t take long before your clothes were so patched-up that the original color of your garments was no longer discernible.
+
+The few hours not working were spent in barracks. Whether in a tent or a hole in the ground, there was always the constant presence of insects to deal with.
+
+There was little that separated life in the gulag from that of an animal. And while death was a constant presence, the prisoners all knew that it was the only way they would get an early release. With so much death around, there was even a special brigade whose job it was to pile up the bodies and dig common graves.
+
+# The Archipelago washed ashore loyal communists, women and even children.
+
+In examining the lives of the different people who washed ashore on the islands of the Gulag Archipelago, three peculiar, but not unusual, groups emerge: women, children and those loyal to the Communist cause.
+
+Loyal communists stood out because the gulag life was particularly hard for them to cope with.
+
+These loyalists included former interrogators, prosecutors, judges, and camp officials. There were also theorists and dogmatists who’d at one time or another defended the system that brought them to the stark reality of the gulag. This fall from grace was a shock that their hearts could not bear.
+
+In their desperation to hold on to their beloved motherland, they’d try in vain to rationalize their misfortune. Obviously, a terrible mistake had been made. They’d somehow ended up in prison with all these criminals who surely deserve to be there, while they, of course, did not. What they couldn’t come to terms with was that no one deserved to be there.
+
+Then there were the women of the Archipelago, who were constantly harassed.
+
+When a woman first arrived, she’d be stripped naked for a lice inspection and have her armpit and pubic hair shaved. Then she and the other newly arrived women would be paraded naked down the corridors so the camp staff could decide which woman they wanted.
+
+If a woman refused to sleep with the staff, she’d be forced to do extra work, which inevitably brought them crawling back to submission. Only the old and the “unattractive” would escape the advances of the staff men, while the other women had no defense against unwanted men in their bunk.
+
+While you might not expect the Gulag Archipelago to be a place for children, there were many: in 1927, 48 percent of all prisoners were between the ages of 16 and 24.
+
+These kids weren’t necessarily taken away from their families. Many were orphans or juvenile delinquents who, having lost their families during World War II, ended up being sent to the work camps. If you were over the age of 12, you could earn yourself an eight-year sentence at the Archipelago for stealing potatoes, while taking a cucumber is five years hard labor.
+
+In the city of Tallinn, a six-year-old boy was sentenced to a prison camp in 1945.
+
+# All prison camp labor was worthless. The only thing the Archipelago produced was corrupted souls.
+
+Seeing as prisoners worked 12 hours every day and were paid nothing, you might be wondering just how efficient and productive the Gulag Archipelago was at turning out things like building materials and agriculture.
+
+The answer is that the labor being done in the gulags was worthless.
+
+Yes, it served its political purpose for Stalin – intimidating the nation and “tightening up discipline” as it was intended to do. But otherwise, it was all essentially useless.
+
+While the prisoners were performing back-breaking labor that no one else would willingly do, in desolate places where no one else would willingly live, they were not skilled laborers. They also lacked the kind of incentives for doing good work that capitalism provides.
+
+What the prisoners were good at was not caring about their work and making mistakes. They excelled at breaking spades, destroying cranes and ruining their shoes. Poorly made bricks crumbled and thin coats of paint quickly peeled off, while fence posts were sure to fall over, door handles would inevitably fall apart and the legs of tables and chairs would invariably break.
+
+The one thing the Archipelago reliably produced was corrupted souls.
+
+Even the purest person imaginable would be unable to withstand the struggle to survive in the gulag, and it was only a matter of time before they broke down. Imagine what you would do if you were starving and a meager amount of bread was thrown onto the ground. There was only enough for one out of every three prisoners, so your will to survive meant fighting your fellow inmates for a scrap of dirty bread. No matter who you were before the gulag, chances are you’d beat and claw at your neighbor to live a little bit longer.
+
+Naturally, there were those who tried to escape the Darwinian struggle of the Archipelago, but geography and Stalin’s society made it next to impossible.
+
+Even if you could make it out of the camp, there was really no place to go. You would face the barren wasteland of tundra, or the endless, inhospitable taiga. If you were lucky enough to find a nearby house, the residents were sure to turn you in for the handsome reward of being in Stalin’s good graces.
+
+# 
+
+*“Gradually it was disclosed to me that the line separating good and evil passes … right through every human heart *–* and through all human hearts.”*
+
+# There were the committed escapers and those who wished to tell of the Archipelago life.
+
+Since a successful escape was so unlikely, when someone did disappear from the camp, the staff wouldn’t do much more than shrug. For them, a prisoner was treated with less interference than a stray cow wandering off the farm.
+
+Ultimately, we didn’t hear from escaped prisoners, so there’s no way of knowing how many died in the wilderness or made it to safety. If they did survive, they didn’t tell their stories, as doing so would put them in danger of repercussions.
+
+But there were prisoners who were determined to escape, one way or the other.
+
+During the first year of life in the Archipelago, most people spent a lot of time thinking about escape, but the committed escapers thought of nothing else. It would be on their minds during every waking hour, and it would haunt their dreams at night.
+
+For committed escapers, daytime in the Archipelago was spent preparing for escape. Since this undertaking would most likely kill them, what they were really preparing for was death. Everyone had seen at least one bullet-ridden body get dragged back into camp. Sometimes, the body of an escapee would be so full of bullets that only the head would be brought back, where it was put on display as a warning of what was to come for any other would-be escapees.
+
+There was always the potential of being shot for any small misstep. Even guards could be quickly punished if they mistakenly expressed sympathy for a prisoner. But if a guard killed a prisoner? There was no punishment for that.
+
+Some of the prisoners were also committed to documenting the Gulag Archipelago experience and making a record for posterity.
+
+The author spent eight years in prison camps, during which time he wrote a poem which he would recite to himself once a month. He never forgot those words.
+
+While there were many writers in the Archipelago, few managed to create surviving manuscripts. Some lost their pages, while others lost their lives before they could finish their important work.
+
+# Prisoners were “released” from the Archipelago into exile, and with Stalin’s death, the Archipelago sank into the waters once again.
+
+Prisons have existed in our civilization for a long time. But even before the dungeon cells and labor camps, there was another punishment: exile – the forced expulsion from the tribe.
+
+From the works of writers like Leo Tolstoy and Vladimir Lenin, we know what Russian exile was like, all the way back to the days of czardom. As described by Tolstoy, exile conditions were tolerable. For Lenin, who was exiled to Siberia in 1897, no forced labor meant that he was able to write his political essays.
+
+Exile still existed during Stalin’s time, and for those prisoners who did survive, it was an internal exile that awaited them upon their “release.”
+
+This state of exile was essentially another land between the Gulag Archipelago and the Soviet motherland, where the human refuse of the Archipelago were sent to live out the rest of their years. Often this land of internal exile was in the steppes of the taiga, where small colonies lived, surrounded only by the harsh and barren grasslands, and where nothing edible grows.
+
+But every story has an ending, and just as the islands of Gulag Archipelago once rose from nothing, they would eventually return to nothing.
+
+This receding began on March 5, 1953, with the death of Josef Stalin. Soon after, many natives of the Archipelago were being released back into society – which presented its own share of problems.
+
+After so much time adjusting to the life of the gulag – the place where they expected to die – now they were expected to leave it all behind and re-adjust:  get a job, a residence permit, bread cards… Then there were the unexpected reunions with families and friends, sons and daughters.
+
+The natives of the Archipelago had always hoped their story would be told. Throughout history, we can see that the truth is eventually exposed for all to see. But few residents of the Gulag Archipelago would have dared guess that this truth would see the light within their own lifetime.
+
+# Final summary
+
+The key message in these blinks:
+
+**Under Stalin’s rule, the Soviet Russian government operated a massive system of prison work camps that stretched throughout the nation, like a series of small islands. In this way, it could be called the Gulag Archipelago. The harsh, unforgiving environment of these prison camps was home to hundreds of thousands of people who’d been falsely arrested for made-up crimes. These people suffered torture, starvation, endless years of exhausting work and miserable imprisonment and many would die before the system collapsed in the wake of Josef Stalin’s death.**
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****The Great Leveler *****by Walter Scheidel**
+
+*The Great Leveler* (2017) takes a look at the inequality faced by different societies throughout history. It highlights war, plague and other major catastrophes as a leveler of the unequal distribution of power and property, prompting the question: can equality be achieved in a non-violent manner?
+
+
+Source: [The Gulag Archipelago 1918-1956 by Aleksandr Solzhenitsyn](https://www.blinkist.com/en/nc/daily/reader/the-gulag-archipelago-1918-1956-en/)

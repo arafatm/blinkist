@@ -1,0 +1,248 @@
+![I'm Judging You](https://images.blinkist.com/images/books/5b7d0ff3b238e1000722f817/1_1/470.jpg)
+# I'm Judging You
+*Luvvie Ajayi*
+
+>I’m Judging You (2016) provides a uniquely humorous take on all the ways modern society can produce annoying, absurd and downright terrible people. Whether it’s misusing hashtags on social media or being an unbearable sexist monster, author Luvvie Ajayi is ready to call out their awfulness and provide readers with some pointers on how to avoid her judgemental wrath.
+
+
+# What’s in it for me? Get some free advice from a popular voice in pop culture.
+
+Nigerian-born Luvvie Ajayi has been making waves as a pop-culture and humor writer for a number of years. Her weekly recaps of the television show *Scandal *were even appreciated by Shonda Rhimes, the show’s creator. But as her first book makes clear, Ajayi has more on her mind than just binge-worthy television.
+
+Ajayi is full of humorous yet truthful insights on a whole range of today’s most pressing subjects, including racism and the dangerous effects of social media. As an early adopter of Facebook and Twitter, she’s seen these platforms go from small curiosities to major factors in US election campaigns. And as a woman of color in America, she’s keenly aware of how the issues of racial and gender discrimination continue to plague the nation.
+
+So take a tour of modern America through the eyes of a fearless commentator to learn about how things stand and what we can do to improve them.
+
+In these blinks you’ll find out
+
+- the difference between a friend who’s a *Lannister *and one who’s a *Frenemy*;
+
+- the various facepalming ways that people misuse hashtags; and
+
+- why you need to retire your Hotmail account.
+
+
+# There are three kinds of dinner scrooges to beware of.
+
+Let’s be clear about one thing: no one’s perfect. While the author is quick to point out when someone’s behaving terribly, she also knows her own faults can sometimes make her part of the problem.
+
+For example, Ajayi is chronically late to just about anything you might invite her to – something that’s certainly brought her a fair amount of shame in the past, like the time she fell flat on her face while sprinting to catch a plane.
+
+Now, while Ajayi might show up late to a scheduled dinner, there are other folks who should also feel ashamed of their behavior, and they’re called *dinner scrooges*.
+
+Dinner scrooges come in three varieties: The first being the kind of person to devour massive amounts of food and then proposes splitting the check evenly. Or, if they don’t eat it all, they’ll order more so that they can take it home. It’s like they want others to subsidize their next couple of meals!
+
+The second dinner scrooge is the annoying person who busts out the calculator to figure out exactly how much they owe. They’ll often stress how much *less *they ate than everyone else and be a cheapskate when it comes to tipping.
+
+Then there’s the one who’ll come up with a reason to vanish early and “forget” to leave any money for the bill. If this happens once, you can give them the benefit of the doubt. But if it happens twice, you definitely have a dinner scrooge in your midst.
+
+Dinner scrooges can make dining out with friends a very frustrating experience, and Ajayi would prefer it if future dinners were prix fixe menus and everyone paid cash. After all, there are shows in her Netflix queue waiting to be watched, and she doesn’t have time to spend an hour figuring out the bill for yet another overpriced, bland dinner.
+
+# There are nine types of bad friends who can challenge us with their terrible behavior.
+
+Difficult dinner companions are just one unfortunate aspect of having a social life. There are also nine types of friends that can really test our patience.
+
+At number one is the* Competitor*, the kind of friend who’s always trying to outdo you and make any bit of good news in your life about them. Got a new job? They got promoted. Got a new boyfriend? They just got engaged. Eventually, you’ll wonder if this friend wishes you well at all!
+
+Bad friend number two is the* SOS Pal*, who only gets in touch when they’re in dire straits. Months might go by where you don’t hear from them, but the moment something goes wrong in their life, you’re sure to get a call. Yet find yourself needing some friendly counseling and they’re nowhere to be found.
+
+Coming in at number three is the* Adventurer*, the friend who might get you arrested someday. Sure, they can be fun and exciting, but they enjoy risk-taking and spontaneity so much that it’s only a matter of time before you’re in real trouble.
+
+Number four is the* Lannister*, the friend you can’t trust. This is the one who’s managed to stay in your circle even though they’ve stolen money or slept with another friend’s bae. At this point, you’d never leave them alone in your home, but you might grab lunch sometime.
+
+Number five is the* Surface*. Yes, they’re your friend, but what do you really know about them? The Surface is so guarded that you don’t know what they do for a living despite being friends for decades!
+
+Number six is the* Frenemy*, the kind of friend who spends more time throwing shade your way than being supportive or caring. It may very well be time to drop this fool from your life altogether.
+
+Number seven is another classic bad friend: the* Enabler*. Every time you meet up, it’s yes, yes, yes from them, no matter how bad your idea is. A good friend challenges you, especially when you’re being a total idiot!
+
+Number eight is the* Flake*, the kind of friend who’s thoroughly unreliable and undependable. This is the friend who never shows up and always sends texts that read “OMG, was that today?” Every time you have to wonder, why do I even bother?
+
+Finally, there’s the* Holy Roller*, the friend who’s so religious that you can’t talk about anything without getting some seriously disapproving attitude. They can be such a wet blanket that you hope for the day they’ll come down from their high horse.
+
+# Think before you get plastic surgery or follow society’s unhealthy beauty standards.
+
+Two words serve as a clear sign that we’ve taken cosmetic surgery too far: anal bleaching. That this procedure exists is proof there are no limits to how superficial we can be.
+
+The sad truth is that skin-lightening procedures of all kinds can be found around the world, as our idea of beauty is tied to light skin tones. Just do an image search for the word “beauty” and see how white the results are.
+
+Even in Nigeria, people are using toning creams to lighten their skin. It’s official: society is fucked up! But just because a procedure exists, or is popular, doesn’t mean you should do it. Procedures such as skin lightening that are tied to our messed-up standards of beauty are, generally speaking, a bad idea.
+
+Ajayi isn’t opposed to plastic surgery altogether. It’s just that too many people aren’t using it in a sensible, moderate fashion. More thinking needs to be done before you go under the knife so that you don’t come out with lips that look like you’re suffering from a food allergy, or skin so tight it must be painful to blink.
+
+Don’t be like Lil’ Kim and go from being a black woman to an Asian mermaid. Don’t turn your A cups into triple Ds. Don’t become a fun-house version of yourself. As a general rule of thumb, it’s probably a bad idea to do anything that would make your photo ID look like it belongs to another person.
+
+Remember, society’s standards of beauty aren’t just messed up, they’re also fleeting. What’s popular today isn’t necessarily what’s going to be popular tomorrow. There was a time, not too long ago, when big butts were a source of ridicule and embarrassment for women – now they’re celebrated!
+
+Something else to keep in mind: If you had the body of your dreams, you could very well have ended up a terrible person. Ajayi is built with very little in the booty department, but she’s sure that if God had given her the “yansh” of Jennifer Lopez or Serena Williams, she wouldn’t be the “semidecent” person she is today. She’d be appalling people with the scant amount of clothes she’d be wearing and have zero friends and zero character as a result.
+
+# Being racist doesn’t require malicious intent.
+
+Sexist, racist, homophobic and hypocritical people – these are the shitty human beings that Ajayi has no end of judgments for.
+
+We tend to think of racists as those horrible, tiki-torch-carrying people at the South Carolina rally in 2017. But the truth is, you don’t need to be carrying a torch or wearing a white robe to be racist. You can be a very well-intentioned person and still have straight-up racist tendencies.
+
+Racism is woven into the very fabric of the United States of America. The systems in the US were built long ago on the blood, sweat and tears of black and brown people to prop up the wealthy and the powerful.
+
+Unfortunately, many of these systems are still in place, and it gives the white and the Christian a privileged life that other people will never experience. Every day, non-white people experience acts of racist aggression – some will be overt, while others can be quite casual.
+
+A woman who thinks she doesn’t have a racist bone in her body might clutch her purse when a black person stands near her. Or someone in an interview might say “Oh, you’re so well spoken,” in a way that’s horribly condescending.
+
+People who consider themselves liberal are capable of committing casually racist acts. Some will claim they don’t recognize color, for example. This is not only absurd but dangerous. Denying a person’s differences isn’t the same as treating them as equals, no matter their color, religion or other characteristics. Even someone who’s colorblind will recognize the difference between a white and a black person!
+
+You might think race is a construct that you’d rather not play along with, but the language we speak and the money we use are also constructs, and they have strong meaning in life. Race matters too, and as actress Kerry Washington says, “I don’t want to live in a world where my race isn’t a part of who I am. I just don’t want it to define my trajectory in life.”
+
+These are things that white people need to be aware of, and it certainly doesn’t help to deny that they exist. Be aware of how privileged you are, of how marginalized others are and how we need a new system that doesn't automatically treat young black boys like criminals.
+
+# Men need to be more aware of today’s rape culture, and white women need to be more inclusive around feminism.
+
+Here’s something every man should know: women don’t appreciate being yelled at as they’re walking down the street. What some men fail to realize is that there’s a very serious culture of sexual violence in the US, causing many women to feel vulnerable. The last thing they need is an aggressive stranger yelling at them.
+
+There’s still a general attitude that women are not equal to men – that they’re sex objects whose primary purpose is to service men. It doesn’t help that the political system is dominated by men that want to regulate what women can and can’t do with their bodies, furthering the sense of oppression and the idea that women must bend to the will of men.
+
+It’s up to men to change the way the system is run. Predators are more protected than women, while classes are still being taught to teach young women how not to be raped, rather than teaching young men how to treat women with respect and that sex without sober consent is rape.
+
+And what about feminism? Recently, there’s been a resurgence in the feminist movement, but it’s still largely a movement for white women.
+
+Anyone can be a feminist, they just have to agree that everyone has the right to live on their own terms and that gender shouldn’t be a determining factor in a person’s life. Feminism isn’t about hating men, and neither should it be about promoting a particular type of straight, white, Christian woman. Yet this is the image that the feminist movement has often focused on.
+
+There’ve been numerous articles written about whether Beyonce can be called a feminist because of the outfits she wears. People think that high-heels are a man-made invention, and therefore a real feminist can’t wear heels.
+
+Come on people! There’s no gender, sexuality, job or clothing requirements to be a feminist. Let’s drop the gatekeeper attitudes and get down to what’s really important – equality!
+
+# Don’t use religion as a tool for homophobia, sexism or hate.
+
+Luvvie Ajayi has long been a faithful Christian, but that doesn’t mean she hasn’t felt strongly judgemental about organized religion, especially in the way it was used as a tool of oppression.
+
+Sure, there were deadly wars waged by religious leaders in centuries past, but religion is still being used today to oppress the gay community and prop up racist ideas. The hypocrisy has got to stop!
+
+Christians often point to Leviticus 18:22 when suggesting that homosexuality is a sin – something that’s extremely hypocritical as there are a lot more supposed sins outlined in Leviticus that they don’t mention.
+
+It also says that you shouldn’t eat pork or shellfish, that you shouldn’t wear clothing made out of more than one material and that your hair shouldn’t look “rough.” That’s just a few of the 70+ rules in Leviticus. Elsewhere in the good book, there are rules against getting divorced, getting a tattoo and endorsements for polygamy.
+
+The Bible also describes what Jesus looked like. It shouldn’t come as a surprise that the description of this Jewish man from Nazareth isn’t anything like the popular image of Jesus, which absurdly suggests that he had blue eyes and long, straight, blond hair.
+
+Nevertheless, there are plenty of powerful Christians who cling to this image while forgetting that Jesus preached for people to love thy neighbor. Instead, they spread Islamophobia and point to another gem in the Bible: that women should be considered the property of men.
+
+It’s true that organized religion isn’t perfect, but belief in a higher power brings peace to a lot of people, and that should be respected as well. Ajayi wrestles with the fact that the Bible was written by men – and is therefore flawed – but she’s also taken a lot of comfort from her faith.
+
+# We need to be better at how we use social media.
+
+Few things on social media can get Ajayi’s blood boiling like hashtag abuse.
+
+Sure, hashtags can be useful in collecting posts related to important movements like #MeToo, but there are far too many people online who are either clueless or purposefully wrongheaded in their use of hashtags.
+
+Here’s a list of things to avoid: hashtagging every word in a sentence, or meaningless words like #the; ending or sandwiching a word with hashtags, such as #Blessed#; using 50 hashtags or hijacking an unrelated hashtag to get your post more views; and putting an apostrophe in your hashtag as this breaks the tag. If you tag #I'mWithHer, you're actually just tagging #I.
+
+But the list of shameful internet behavior doesn’t begin and end with hashtag abuse. People are routinely shameless when they get online. Sure, nowadays marriages can happen as a result of two people meeting on the internet, but there are a lot of people who need to learn how not to be a creep.
+
+Here are some simple steps for how to reduce your creepiness and be a better social media friend.
+
+Don’t poke anyone on Facebook. Zuckerberg should have gotten rid of the poke long ago since it’s only used by the kind of dude who “accidentally” touches someone’s butt in a bar. Friends don’t poke friends. Cheating dogs, however, do poke strangers and it’s definitely a sign that you’ve got no game.
+
+Stop being so gullible! This starts by not thinking everything you read online is true. Even if someone in your circle, or a supposedly trustworthy news source, posts a crazy clickbait story, it doesn’t mean you should promote it further.
+
+We all need to strengthen our bullshit detectors, question what we see online and be more vigilant against fake news. One simple step is never to trust anything written in the Comic Sans font, ever.
+
+And quit sharing disturbing news on social media, especially when it’s a death in the family or something particularly personal. No one should have to find out a friend or relative has passed away while scrolling through their timeline, and no one should be taking selfies at a funeral in front of an open casket. Have you no manners?!
+
+# There are five pitfalls to avoid to be a successful communicator online.
+
+A lot of online entrepreneurs can easily prove themselves to be clueless by making some simple mistakes. The first, of course, is the use of Comic Sans. That has got to stop ASAP.
+
+The second is the continued use of a Hotmail or AOL email address.
+
+In the 90s, Hotmail accounts were all the rage. Now that address is a red flag that suggests you’re not to be trusted at all. Who would want to do business with someone who appears to be frozen in time? And having an AOL account is like walking around in a pair of platform shoes.
+
+The third mistake is the use of annoying marketing tactics.
+
+Too many people seem to treat marketing as an excuse for harassment. If you have something you’re trying to sell, don’t beat people over the head with it or approach them like you’re their lifelong friend. Over-aggressive and inappropriate marketing is an instant turn-off.
+
+Fourth is the use of pompous language.
+
+You could call this “Kanye West syndrome.” It’s when you see someone referring to themselves as a visionary, trailblazer, guru or some other grandiose term. Sure, it isn’t easy to write a catchy bio in just a few short sentences, but these are all words that people should use only to describe someone else. When used to describe yourself it comes across as pretentious and unintentionally ironic.
+
+Finally, if you really want to ace your online communications, you should avoid being an oversharer.
+
+There are many different kinds of oversharer, but here are some of the most common.
+
+The *everything sucks oversharer*. No one’s timeline looks less appealing than the one who goes on and on about how every day is the worst. All it brings to mind is that this person needs to learn how to cope or they should start seeing a therapist.
+
+There’s the *mundane oversharer*. Typical update: “Just woke up. Gonna have breakfast.” Yawn.
+
+Then there’s the *work oversharer, *who seems to think the world needs to know what time her next conference call is scheduled for.
+
+Lastly, there’s the *body fluids oversharer, *who thinks her bout of food poisoning needs explaining in intimate levels of detail.
+
+Your social media experience is only as good as the people you follow, and everyone’s timeline would be better off without these people.
+
+# Internet fame is dubious, and it’s produced seven different kinds of questionable personality types.
+
+Shakespeare once wrote that all the world’s a stage, and we’re just the players, but even he would be amazed at how appropriate those words are now. With everyone carrying around a camera in their pocket, we can all post episodes of our own reality show every day.
+
+This has led to some people becoming internet personalities by receiving endorsement deals and a certain level of fame and money. For others, it’s led to desperate measures to try and attain this dubious level of fame.
+
+Internet fame has become less like traditional fame, which usually comes with some level of talent and creativity, and more a kind of infamy or questionable notoriety. Usually, it’s the cream that rises to the top, but now it’s more like the dirt.
+
+Sure, it’s human to want love and validation, and getting likes and followers can scratch that itch, but it’s scary what people will do to get their fifteen seconds – never mind minutes – that comes with being internet famous. People will lie, cheat and steal to come up with funny or heartbreaking stories or videos that they hope will propel them to infamy.
+
+One couple manufactured an elaborate pregnancy and miscarriage story in order to get their fleeting moment of online notoriety, while one of the author’s online friends was caught lying about her globetrotting vacations to get more likes in her circle.
+
+If someone does get a taste of fame, you’ll usually find them falling into one of seven different kinds of personality type.
+
+There’s the* Number Dropper*, who can’t go for long without mentioning their half-a-million followers.
+
+The* Brand *is all about staying on brand, which is why they’ll wear the same outfit every day.
+
+The *Quasi Famous *got recognized in public *once*, and now they’re constantly worried about losing their privacy. In reality, 99 percent of people are unaware of who they are.
+
+Next is the* Powerful Threatener*, who uses their status as an online influencer to make sure no one dares cross them, or else they’ll feel the wrath of their followers’ rage.
+
+The* Mismatched* has an online personality that’s entirely different to their offline one. They might be cute and wholesome on their YouTube channel and a rageaholic off camera.
+
+The* Revolutionary *will have you know they’re single-handedly solving every problem in the world, and loves to talk about things like “paradigm shifts.”
+
+Finally, the* Pioneer *spends all their time complaining about how everyone steals ideas from them, yet never seems to be doing much work aside from whining.
+
+# The 2016 election has shown how we need to do better.
+
+Luvvie Ajayi wrote the bulk of this book before the 2016 US election, so her comments on racism, feminism and fake news turned out to be remarkably relevant when the book was released.
+
+But the election and its aftermath showed just how crucial it is that we pay attention to these issues.
+
+Leading up to the election, people had two choices: Hillary Clinton, arguably the most qualified person to ever run for office, and Donald Trump, a man who bragged about sexually assaulting women and is, in Ajayi’s opinion, not much more than a “hapless idiot”.
+
+It’s worth noting that 53 percent of white women voted for Trump, regardless of his misogynistic attitudes, while 94 percent of black women voted for Hillary. Since then, the “crybaby demagogue” that is Trump has gone on to promote a culture of hate and intolerance in the country – one that we must combat by doing better.
+
+Fortunately, there are a great many ways to do better, and some of them aren’t particularly difficult.
+
+For starters, stop telling sexist and racist jokes. You might think they’re harmless, but they perpetuate harmful stereotypes and narrow-minded attitudes.
+
+If your friend is the one telling the joke, ask them to stop. Let’s put the days of being passive and looking the other way behind us. Start speaking up and standing up for equality, justice and tolerance.
+
+Let’s do better by teaching our children that being different isn’t a negative thing. Teach them that beauty comes in all colors and shapes and that a woman’s voice isn’t less important than a man's. Make sure that the next generation grows up with the knowledge that no matter what color, gender, sexuality or religion, all people should be treated with equal respect.
+
+# Final summary
+
+The key message in these blinks:
+
+**There are many ways that we can do better. We can be less selfish as friends, more considerate users of social media, more aware of our privileges and do more to acknowledge the very real racism, sexism and homophobia that continues to affect the lives of so many. Internet fame has changed the way that people view success, and all of this has gotten worse, as evidenced by the 2016 election. But through actions both big and small, we can do better.**
+
+Actionable advice:
+
+**Do something that matters.**
+
+Maybe you’re not in a position to donate millions of dollars or hours of your time, but there are definitely things you can do to create real change. Start by being more aware of what people who aren’t exactly like you have to go through. If you’re white, meet more non-white people. If you’re a man, start treating women more equally. With these small acts, you’ll be on your way to making the world a little bit better.
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**What to read next:*****How to Be Black *****by Baratunde Thurston**
+
+Luvvie Ajayi isn’t the only humorist taking on the difficult racial issues facing America. As the comedian Baratunde R. Thurston puts it, he has over thirty years of expertise in being black, so he’s more than qualified to share his wisdom with readers who may be lacking such knowledge.
+
+Not unlike Ajayi’s bitterly funny essays, Thurston’s writing uses humor to expose the many hypocrisies, injustices, absurdities and blatant racism that black people are forced to contend with every day. So, if you like your cultural commentary with a razor-sharp wit, we recommend checking out the blinks for *How to Be Black*.
+
+
+Source: [I'm Judging You by Luvvie Ajayi](https://www.blinkist.com/en/nc/daily/reader/im-judging-you-en/)

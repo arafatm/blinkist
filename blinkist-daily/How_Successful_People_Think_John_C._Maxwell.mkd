@@ -1,0 +1,212 @@
+![How Successful People Think](https://images.blinkist.com/images/books/5b7d2c88b238e100077602ae/1_1/470.jpg)
+# How Successful People Think
+*John C. Maxwell*
+
+>How Successful People Think (2009) argues that success is about attitude. More than just staying positive, John C. Maxwell suggests that if you want to make it, it’s time to start thinking realistically and empathetically. Full of fascinating historical examples and practical advice gleaned from today’s most successful people, this detailed roadmap will help you achieve your goals while avoiding the most common mental pitfalls.
+
+
+# What’s in it for me? Learn to think your way to success.
+
+The world’s most successful people have one thing in common: they aren’t afraid to think outside the box and carve out their own path.
+
+But the journey along that road can be lonely. After all, we’re a sociable species by nature. We like fitting in, and the price of social acceptance is falling in with accepted ideas. Going against the grain, questioning common notions and striking out on your own isn’t likely to win you many friends.
+
+Yet just think where we’d be if everyone had always kept their brilliant ideas to themselves! To claim, as Copernicus did, that the earth wasn’t at the center of the universe must have struck his contemporaries as some form of madness. But he was right, and we’re forever in his debt for having stuck to his guns.
+
+That goes to show just how important creative thinking and tenacity are when it comes to success. But, as John C. Maxwell shows, you don’t have to be an Einstein or Galileo to have great ideas. In fact, everyone can learn to think creatively – all it takes is knowing the right techniques and a bit of practice!
+
+In these blinks, you’ll discover
+
+- why learning to be empathetic will help you achieve success;
+
+- what Alfred Nobel did after reading his own obituary; and
+
+- what Paul McCartney and John Lennon can teach you about collaboration.
+
+
+# Big picture thinkers are constantly learning and know how to empathize with others.
+
+General Electric CEO Jack Welch regularly tells his employees that existing relationships with clients are more important than individual sales. Why? Because he knows that, when it comes to being successful in the long run, it’s sometimes necessary to leave the nitty-gritty behind for a moment and consider the bigger picture.
+
+But how can you start cultivating big picture thinking? By making sure you’re always *learning*.
+
+Big picture thinkers are always looking for opportunities to learn. They’re constantly on the go, visiting new places, meeting new people and honing new skills.
+
+The author has a handy technique that puts him in the right mindset to do that: he starts his day by looking at his schedule and asking himself what learning opportunities are likely to present themselves.
+
+Once he’s noted down the activities that are most likely to teach him something, he mentally primes himself to be on high alert. That means he’s much more likely to be receptive to what’s going on around him.
+
+So when he once had dinner with National Football League (NFL) coach Dave Wannstedt, for instance, he was well prepared. He used the time to ask him all sorts of questions about teamwork and left the restaurant brimming with new insights.
+
+That’s something you can take up too: spend a couple of minutes each morning looking over your itinerary and ask yourself what opportunities to learn new things you’re likely to encounter.
+
+Making an effort to become a big picture thinker is important because it gives you a window into how other people see the world. In other words, it makes you more *empathetic*.
+
+And that’s good for your relationships: whether it’s your clients, husband or wife, children or friends, empathizing with those around you will help you understand what they want and need.
+
+Seeing the big picture ultimately helps you think beyond your own narrow interests and take those of others into account.
+
+# Set and achieve clear targets by thinking realistically and making sure you do your homework.
+
+What is reality? Don’t worry, this isn’t a philosophy lecture! In fact, there’s a pretty simple answer: reality is the difference between your desires and how the world actually is.
+
+If you want to succeed in the real world, you have to leave your daydreams behind and start thinking *realistically*.
+
+That means setting targets and drawing up a game plan that’ll put you in a position to hit them.
+
+Consider a businessman who isn’t a realistic thinker: He’s positive and full of hope about the company’s future. That’s a great attitude to have, but there’s a problem – he doesn’t have a strategy. And without a strategy, his company’s likely to fail.
+
+In the end, he’s a bad leader. Realistic thinking, by contrast, promotes excellent leadership. That’s because facing up to the way things really are forces you to clearly define your aims and formulate a plan of action that’ll get you there.
+
+Realistic thinking also helps simplify things. Stripping away all the unnecessary details and vague hopes and dreams makes you more efficient.
+
+But what if you’re an optimist, rather than a realist, by nature? Then you should start by doing your homework. That means getting to know the facts.
+
+Say you’re a business leader mulling over your next move: ask yourself what you’d do if your revenue dried up, a customer didn’t pay or the bottom fell out of the market you’re in.
+
+Spend time researching these scenarios – after all, your realistic thinking won’t amount to much if you’re basing it on insufficient information.
+
+It’s important to clear your mind of all preconceptions, prejudices and second-hand opinions when you’re doing this kind of background work. Instead of making assumptions, get to know the facts yourself.
+
+Chances are, you’re not the only person facing this particular situation. Your thinking needs to be *solid,* it doesn’t have to be *original*. You can learn a lot by looking at what other people have done in similar circumstances.
+
+As the author puts it, some of his best thinking was done by others.
+
+# Increase your options and make yourself more attractive by embracing creative thinking.
+
+Whatever line of work you’re in, creativity is pure professional gold.
+
+Einstein once said that “imagination is more important than knowledge.” He was right. Your ideas are far more important than your role in a company or your job title.
+
+That said, Einstein was a genius – creative thinking was second nature to him. That might not apply to everyone, but there are techniques you can use to jumpstart your creativity.
+
+The first point to remember is that creativity doesn’t just mean having lots of original ideas – you can start thinking creatively by simply considering a greater number of options.
+
+That’s one hallmark of creatives: they take as many possibilities into account as they can, which in turn gets the creative juices flowing and stimulates the imagination.
+
+So if you’ve got a great idea, ask yourself what changes you could make to improve it. Think of it like a fishing net – the wider you cast it, the more fish you’re likely to catch.
+
+The reason that’s so important is that the best thinkers aren’t looking for the only answer – they’re looking for the *best* answer out of many. The added bonus? It’ll help you craft a backup plan in case your preferred solution doesn’t work out.
+
+Creative thinking also makes you and your ideas more attractive to other people.
+
+No wonder! Creativity is your intelligence having fun. People admire intelligence and are attracted to fun – it’s an irresistible combination.
+
+Leonardo da Vinci is one example of someone who had fun with their brilliant mind. The diversity of his ideas and interests is truly breathtaking: painter, architect, musician, engineer – he was the very definition of the *Renaissance man*.
+
+That doesn’t mean you have to paint the *Mona Lisa *and design helicopters in your spare time, however.
+
+Set your mind free and explore your creativity in your own field and you’ll find that people will be irresistibly drawn to you!
+
+# 
+
+*“Creativity and innovation always walk hand in hand.”*
+
+# Think unselfishly and you’ll make yourself part of something bigger.
+
+Adopting new modes of thinking boosts your chances of success, but there’s also a way of thinking about the world that can change your entire life: unselfish thinking.
+
+Taking that up might just redefine your concept of success itself.
+
+That’s because helping others is hugely rewarding. In fact, few things are anywhere near as fulfilling. Spend a day serving others unselfishly and you’re pretty much guaranteed a sound night’s sleep.
+
+Take it from Alfred Nobel, who learned that the hard way.
+
+As he was reading the newspaper one day, he was shocked to find his own obituary. It was a mistake, of course, but it was an illuminating experience.
+
+So what did it say? The paper mainly talked about how the inventor’s most famous brainchild – dynamite – had been responsible for so many deaths.
+
+Nobel was appalled at the idea that this was how people would regard his legacy. Wracked by guilt, he decided to make a more positive contribution to the world by supporting peace.
+
+The idea of the Nobel prize – an award given in recognition of noteworthy achievements in various fields – was born in 1895. It just goes to show that even if you’ve pursued selfish ends your whole life, you can always turn things around!
+
+But the best thing about unselfish thinking is that it lets you become part of something much bigger than yourself.
+
+That’s something the pharmaceutical corporation Merck and Company showed in the mid-1980s.
+
+The company decided it wanted to achieve more than rack up ever-greater profits. After successfully developing a cure for river blindness – a disease afflicting millions in the developing world – the firm decided to give the drug away for free.
+
+After all, those who needed it the most were the least able to afford it. It became the cornerstone of the company’s credo that people are more important than profits.
+
+The lesson here is that it’s always better to be *part *of something fantastic than aiming to *be* fantastic yourself.
+
+# 
+
+*“Getters generally don’t get happiness, givers get it.”*
+
+# Popular thinking is often wrongheaded – disregard it if you want to get the best outcomes.
+
+It’s easy to get caught up in the crowd and thoughtlessly accept other people’s ideas about the world. That applies as much to business leaders falling in line with a company’s traditions as it does to new parents acting on the old wives’ tales their parents told them.
+
+Thinking for yourself can be a risky business. Stray too far from the herd, and you’re unlikely to make many friends. If everybody accepts something as true, then it must be, right?
+
+Well, no. Think of the belief that the earth was the center of the universe. Pretty much everyone thought you’d have to be mad to question that idea. Then along came the astronomer Copernicus in the sixteenth century and mathematically proved that our solar system revolves around the sun.
+
+Conventional wisdom is often downright deadly too. Before Joseph Lister pioneered antiseptic procedures in the nineteenth century, surgeons were convinced that there wasn’t any point in washing medical instruments.
+
+Humans often seek safety in numbers, but history shows that’s not the best way of determining what’s true.
+
+But how do you break your habit of relying on others’ assumptions? A good place to start is cultivating the habit of thinking things through for yourself before following others.
+
+Once you start considering what’s best rather than what’s popular, you’ll already be well on the way to success.
+
+Take the weeks immediately following the 9/11 terror attacks: there was a widespread perception that it wasn’t safe to fly or visit New York.
+
+The author saw things differently. Flights to the city were dirt cheap, security was at an all-time high and the price of hotels and theatre tickets had plummeted because of low demand. It was actually a *fantastic *time to take a city break!
+
+So a month after the tragedy he boarded a plane with his family and flew to New York. They enjoyed a wonderful experience that they’d never have been able to afford otherwise – all because they’d avoided the trap of popular thinking.
+
+# 
+
+*“The difficulty lies not so much in developing new ideas as in escaping from old ones.”*
+
+# Boost your thinking process by collaborating with others, whoever they are.
+
+Say you need to pick up a new skill – how would you go about it? Spend some time figuring it out by yourself or ask someone already in the know to teach you the ins and outs?
+
+If you’re likely to go with the former, it might be time to reconsider.
+
+Whether learning a new recipe, putting the finishing touches on that golf swing or mastering a new piece of software, you’ve got a much better chance of getting the hang of things if you learn from someone with experience.
+
+Collaboration is the mother of innovation – shared thinking trumps solo thinking every time.
+
+That might sound slightly counterintuitive. After all, brilliant thinkers are often depicted as brooding soloists going it alone. But that’s not the case – innovative breakthroughs rarely happen in a vacuum. More often than not, they’re the result of people working together.
+
+Einstein often said that his achievements were founded in the labors of other men. Or think of the work of brilliant duos like scientists Pierre and Marie Curie or musical wunderkinds Paul McCartney and John Lennon.
+
+When people combine their unique talents and ideas, the results can be incredible.
+
+But before you can start working with others, you need to adopt the right mindset.
+
+So what’s that all about?
+
+Well, as the author of *How to Become CEO *Jeffrey J. Fox puts it, you have to be on constant high alert for good ideas, regardless of how likely or unlikely the source is.
+
+That means dropping prejudices and really *listening* to people. The next great idea might come from your taxi driver or your children. The point is that you’ll never know unless you’re receptive.
+
+Just as important is striving to adopt a mentality based on collaboration rather than competition. Cooperation happens when your aim is to *complete* the ideas of others, rather than one-up them.
+
+So next time you’re in a meeting with colleagues, don’t focus on selfishly getting ahead – work toward achieving the team’s goals.
+
+# Final summary
+
+The key message in these blinks:
+
+**Success is all about attitude. You’ve probably heard about the benefits of positive thinking, but there’s more to it than that. Leading a happy, fulfilled life is about learning to think collaboratively and unselfishly. It’s about asking what you can do*****for*****and*****with*****others rather than simply trying to get ahead yourself. That means opening your mind to creativity and avoiding following the crowd. Once you start doing that, you’ll be mentally prepared for success.**
+
+Actionable advice:
+
+**Plan your life, not your day.**
+
+Lots of people don’t think further than the day ahead. They wake up and go through their mental checklists of what they have to get done that day. What they’ll be doing a month or year from now rarely crosses their mind. But long-term planning is vital to success. So take a cue from the author and begin the month by reviewing your calendar. Think about what you want to accomplish over the next thirty days: what projects you want to complete, what your objectives are and how much time to set aside for family and friends? This perspective will help you find the time you need to get the things that matter most done and make you happier and more successful!
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****The 21 Irrefutable Laws of Leadership *****by John C. Maxwell**
+
+*The 21 Irrefutable Laws of Leadership *(1998) explains what it takes to become a great leader. These blinks highlight many of the traits, skills and characteristics that have given leaders around the world the power to attract loyal followers and lead them toward success. Find out what Ray Kroc, Winston Churchill and Mother Theresa all have in common – and what you can do to become a better leader yourself.
+
+
+Source: [How Successful People Think by John C. Maxwell](https://www.blinkist.com/en/nc/daily/reader/how-successful-people-think-en/)

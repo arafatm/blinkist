@@ -1,0 +1,218 @@
+![Rich Dad’s Guide to Investing](https://images.blinkist.com/images/books/5b70ac9fb238e10007ba456e/1_1/470.jpg)
+# Rich Dad’s Guide to Investing
+*Robert T. Kiyosaki*
+
+>In Rich Dad’s Guide to Investing (1998), Robert Kiyosaki lays out how rich people make investments. Drawing on the advice of his “rich dad,” a family friend who amassed great wealth, he shows that wealthy people make fundamentally different decisions to poor and middle-class people. Kiyosaki explains how you can change the way you approach financial decision making and find the path to riches.
+
+
+# What’s in it for me? Approach investing like a rich person would, and become rich yourself.
+
+Which sounds better: being financially comfortable or being rich? Deep down, most people want to be filthy rich – but they also tend to feel that the future is already decided for them, and that they’ll never actually *be *rich.
+
+But how rich you are or aren’t is up to you: if you make the decision to be rich, and adopt the mind-set of the rich, there’s no reason at all why you can’t achieve that goal.
+
+First, however, there are a few things you’ll need to learn, as there are no “get-rich-quick” schemes that actually work. In practice, becoming rich means investing in financial education and literacy until analyzing financial statements becomes second nature. It also means learning how to create and grow a business, and then using the experience and money you’ve accumulated to make more and better investments.
+
+The first step, though, is to get in the right frame of mind, and go from saying, “I’ll never be rich,” to “I’m going to be rich, and this is how!”
+
+In these blinks, you’ll learn
+
+- that the rich don’t invest in the same things as the poor and middle classes;
+
+- why it’s better to invest your pre-tax earnings than save your taxed income; and
+
+- why “get an education, work hard, save money” is bad advice.
+
+
+# The richest 10 percent have 90 percent of the money because they invest in a way that the poor and middle classes do not.
+
+Maybe you've heard of the 80-20 rule, which states that 80 percent of our success comes from 20 percent of our efforts? Well, that might be true for overall success – but for money, the rule is 90-10, because when it comes down to it, 10 percent of people have 90 percent of the money.
+
+The rule applies in many walks of life. Think about Hollywood stars, and then think how many actors are waiting tables between gigs. Yep, 10 percent of actors earn 90 percent of the money. The same goes for athletes, musicians and, of course, investors. A Wall Street Journal article confirmed this, noting that 10 percent of the population own 90 percent of all the shares in the United States.
+
+Why is it that rich people can accumulate so much wealth? Well, one reason is that some investments are simply off-limits if you’re poor.
+
+Back when he was a young man with little cash, the author asked his rich friends if he could get involved in their business deals. But, despite their friendship, the answer was always no – not because they didn't want to help him out, but because it would have been illegal.
+
+In the United States, the US Securities and Exchange Commission restricts certain investments to accredited investors – that is, people with a net worth of $1 million, or a consistent annual income of $200,000. Anyone who is worth, or makes, less than that simply isn't allowed to get involved.
+
+Now, there are good reasons for preventing people without much money in the bank from making potentially risky investments. But these rules also prevent poorer people from making the best investments – the investments of the rich.
+
+So how can you break into that top 10 percent? In the following blink, we'll find out what it takes to think like a rich person.
+
+# The first step toward being rich is to adopt the mind-set of the rich.
+
+“Get an education, work hard, save money. Then you’ll be fine.” Sound familiar? This sentence sums up the standard middle-class approach to financial security and, more likely than not, you were probably told something similar by your parents.  
+
+But here’s the thing: this advice will never make you rich. Rather, it will keep you in the 90 percent that only has 10 percent of the money.
+
+So how do the rich approach financial gain? They certainly don’t toil away at one job until retirement; instead, they purchase businesses and make investments.
+
+Why is that? Well, for starters, because employees inevitably have less money to invest; that’s just the way the US tax system is set up.
+
+For example, let’s say you want to save $1,000 from your salary. Well, first you have to pay tax, so in order to save that $1,000, you’ll have to earn, say, $1,300. Inflation will reduce your savings’ value every year, and you’ll pay tax on the interest you earn. Doesn’t sound like a recipe for wealth, does it?
+
+Business owners, on the other hand, have more money to invest because it comes out of their pre-tax earnings. Unlike the employee who has to save out of taxed income, a business owner first buys assets and *then* pays taxes.
+
+As such, an employee has less money to invest in assets that can generate wealth. It doesn’t sound fair, but it’s the way the system works – it’s hard for an employee to become rich because she gives so much money to the government first.
+
+And there’s another reason why business ownership and investment are better paths to riches: investors often face *less* risk than employees.
+
+Lots of people rely on employment, savings and pensions for their financial security. But the old notion of a stable job for life just doesn’t apply in today’s job market. Employees get fired all the time. What happens to a company’s share price when it lets lots of employees go? Very often, it goes up! So being on the investor’s side of the table is usually less risky than being on the employee’s.
+
+# 
+
+*“The rich don’t work for money. They know how to have money work for them.”*
+
+# Financial literacy can unlock riches.
+
+Can you explain the difference between assets and liabilities? Or calculate a company’s price-to-equity and debt-to-equity ratios?
+
+Many people shy away from investing because the terminology sounds like a foreign language. If you want to get into that 10 percent, however, it’s time to invest in your financial education.
+
+First off, it’s important to understand the difference between assets and liabilities. Rich people never confuse the two, but others mix them up all the time. And that’s one of the reasons rich people tend to make better financial decisions.
+
+Let’s take a common example. You’ve probably heard a homeowner say something like, “My home is a great asset.” Sounds sensible enough, right? But, usually, it’s downright wrong. Something is only an asset when it generates positive cash flow – that is, when it brings in money.
+
+Say your house is worth $200,000, with a $150,000 mortgage. Where does the cash flow? Not in, but out, through your mortgage, fees, insurance and so on. Sure, maybe one day you’ll sell it for a tidy profit – but you have no guarantees, so it’s actually a liability.  
+
+Understanding assets and liabilities is a great first step. But to successfully make the investments of the rich – to develop real estate or buy into a business – you need to have a deep understanding of financial terminology.
+
+Let’s say you want to buy shares in a growing tech business, and you want to understand whether it’s a good deal. How can you figure it out? Well, the share price tells you little, so to really understand value, you’ll need to calculate and analyze measures like *debt-to-equity ratio, return on equity, cash-on-cash return *and* financial leverage. *
+
+All in all, if you don’t even know that your mortgaged house is a liability, not an asset, it’s no surprise that you might think the investments of the rich are too risky. Anything seems risky if you can’t understand it.
+
+So spend time developing your financial education – it may be the best investment you ever make.
+
+# 
+
+“*The primary difference between a rich person and a poor person is the words he or she uses.”*
+
+# There are different kinds of investors, requiring different skill sets and attitudes.
+
+When we think of investors, we often imagine besuited Wall Street bankers, or bustling men shouting on a trading floor. But the word “investor” can be applied to a range of people, from bond traders to business founders.
+
+The taxonomy of investors begins with *accredited* and *qualified investors*. These two are outsiders.
+
+We’ve already met the accredited investor: someone with a high salary or established wealth who meets the legal requirements for the widest possible choice of investments.
+
+Qualified investors are just as wealthy as accredited investors, but they’re also financially educated. They’re equipped to analyze a business’s financials, or the reasons behind market movements.
+
+But both are always on the *outside*. Sure, they may buy shares and prosper that way, but they have little control over their assets.
+
+In contrast, an *inside investor* creates assets instead of buying them.
+
+The inside investor builds her own business, be it a real estate agency, a tech start-up or something else entirely. That business can become a valuable asset, and she can use it to generate income, or eventually sell it.
+
+To truly be the top dog – a *sophisticated investor* – the inside investor has to use the experience of building her own business to learn how to analyze other companies from the outside.  
+
+The sophisticated investor knows how to make tax and the law work to her advantage. We’ll take a look at how in the final blink.  
+
+But first, let’s look at how you can become an insider and start accessing the investment opportunities of the rich. It’s time to get down to business.
+
+# If you aren’t yet rich, become an inside investor; starting a business is an achievable route to wealth.
+
+Many people think, “I could never start my own business.” But just 120 years ago, 85 percent of Americans were independent farmers or small shopkeepers. In other words, the vast majority of Americans were businesspeople – and you can be one, too.
+
+Anyone can start a business and become rich. If you want to become an accredited or qualified investor, you already need to be wealthy. But starting a business only requires a bit of creativity.  
+
+The author is a case in point. As a child, he created his first business from nothing. He saw that a local store was discarding old comic books and persuaded them to let him take the discards. He then opened a profitable comic library, charging school friends a 10-cent membership fee. From nothing but a good idea, he built an asset.
+
+One reason many people hold back is time and money. You’ve got to pay the bills, so you don’t want to give up your job, right? How the heck are you going to find the time to start a business?
+
+But it’s entirely possible to start a business part-time, and some of the world’s finest business leaders did just that.
+
+Michael Dell started Dell Computers by working part-time in his university dorm room, and eventually got so rich that he decided to drop out. Jeff Bezos started Amazon part-time, working out of a garage, and today his company is worth over $500 billion. Imagine if he hadn’t had the courage to start things up in his spare time.
+
+Once you have a business, you have options. You can reinvest the cash it generates into other assets; you can grow the business and sell it; or you can take it public. All three can be routes to riches you’ll never experience as an employee.  
+
+All of us have the potential to start a business, but maybe we don’t know how. In the next blink, let’s take a look at the key principles for making a business work.
+
+# Master mission, leadership and team and you can build a great business.
+
+Did you know that Bill Gates didn’t invent the software that made him the world’s richest man? He merely bought it from a group of programmers. He built a great business, not a great product – and that was the key to his success.
+
+Building a business is a matter of mastering three things.  
+
+First, a business needs a spiritual mission to guide it.
+
+Henry Ford embodied this. His mission wasn’t to make money, though that’s exactly what he did, and in vast quantities. Ford’s mission was to bring the car to the masses and “democratize the automobile.” He pursued this mission relentlessly and the riches followed.
+
+Finding a guiding spiritual mission, one that aligns with your financial goals, will help keep you on the right track.
+
+Second, every leader needs a team.
+
+Maybe you’re an accountant, an insurer or a lawyer. But you are unlikely to be all three, and all are important if you want a successful business. A common factor among rich business leaders is the knowledge that money spent on their team is an investment – one that will almost certainly make them richer.
+
+Third, every team needs a leader.
+
+Anyone who, like the author, served in the military, knows that troops won’t follow a poor leader. Leadership is a skill unto itself. It’s not simply about being the best; rather, it’s about bringing out the best in other people.
+
+How can you acquire leadership skills? One great way is to volunteer. In many groups, no one wants the responsibility of leading. So, whether at work, at a religious institution or in your community, speak up and volunteer to lead – it’s a great way to get feedback and learn where you can improve.
+
+There is one more personal skill that is essential if you want to succeed in business, and we’ll take a look at it in the next blink.
+
+# Every successful entrepreneur can communicate and sell.
+
+Raising capital, advertising, negotiating, motivating your team and making sales – what do all these aspects of business life have in common?
+
+All are crucial for success, and all require top-notch communication skills. So how can you become a better communicator?
+
+Well, investing time in a sales-training program is a proven approach.
+
+Good places to look are network-marketing organizations, as they often have great programs. Joining and sticking with one for at least five years can work wonders. Shy people, scared of failure, come out the other end with the two key skills of a salesperson: the ability to communicate the value of a product with ease, and fearlessness in the face of rejection.
+
+Master these two qualities and you will likely be a powerful communicator. This trait will shine through, not just when you’re selling your product or service, but when you have to deal with an investor, negotiate better terms or rouse your team.
+
+If you’re serious about being a top communicator, don’t just think about your words; your physical appearance is just as, if not more, important.  
+
+Studies of public speakers show that 55 percent of their impact comes from body language, 35 percent from how they speak and just 10 percent from their words.
+
+If you think about the business leaders you know, they probably all look the part, right? And this can go a long way indeed.
+
+A banking friend of the author once told him that his bank had just brought in a new president because of his appearance. The new appointee simply looked and spoke like the president of a bank should. The board would run the bank, but the president’s outward appearance would generate new customers.
+
+Learning to communicate and look the part will pay off in lots of ways. Just like improving your financial literacy, it’s an investment worth making.
+
+# Once you’ve mastered business, you can become a sophisticated investor.
+
+So you’ve started a business, and it’s going well. Now it’s time to use the income and the experience you’ve accumulated and take things to the next level. It’s time to become a sophisticated investor. * *
+
+As a sophisticated investor, you’ll take more control over management, corporate structure, investment decision making and taxes. The result? Maximized returns.
+
+Let’s look at a restaurant owned by Bill and Jane, two hard-working Americans. They operate as a sole proprietorship, which means that they have one income source. They pay normal, personal income tax and they are liable if anything goes wrong – like a sick customer filing a lawsuit. All their eggs are in one basket.
+
+No disrespect to Bill and Jane, but the sophisticated investor knows better. He would have two corporations: Bill would own the restaurant itself and Jane would own the building it’s in. This way, risk is spread.
+
+If a customer falls sick and sues the restaurant, the real estate is legally separate and protected. Meanwhile, under this corporate structure, expenses like health insurance and legal fees are allocated as business expenses and paid pre-tax. Tax itself is paid at lower, corporate rates – less risk, less tax, more financial return.
+
+Whatever you want to invest in, as a sophisticated investor, you know how to make your money work for you.
+
+An average person’s plan for retirement might consist of squirreling away $15,000 a year in a 401k plan and hoping for an 8-percent return.
+
+The sophisticated investor is more likely to invest in real estate, some stocks and shares and a business venture. With the experience brought by building a business, and by investing in his financial literacy and education, he can make the investment decisions of the rich: spotting the best opportunities, understanding what’s really risky and what isn’t.
+
+The average approach sees you work for your money. The second approach sees your money work for you. Don’t be average.
+
+# Final summary
+
+The key message in these blinks
+
+**If you want to be rich, you must think and act like a rich investor does. That means focusing on building a business and investing in assets, not focusing on employment and savings. In doing so, you can build and control an investment portfolio that generates income and grows your wealth.**
+
+Actionable advice:
+
+**Decide whether you want to be secure, comfortable or rich.**
+
+Take some time to truly reflect on what your priority is: to be secure, to be comfortable or to be rich. One is not better than the other, but they represent very different choices and outcomes. Talk to your partner or family, and sketch out pros and cons. Being certain in your decision to prioritize becoming rich will give you the mind-set you need. You’ll find yourself shifting from saying “I can’t afford that” to “How can I afford that?”
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****Rich Dad, Poor Dad *****by Robert T. Kiyosaki**
+
+*Rich Dad, Poor Dad *(1997) combines autobiography with personal advice to outline the steps to becoming financially independent and wealthy. The author argues that what he teaches in this *New York Times* bestseller are things we’re never taught in society, and that what the upper-class passes on to its children is the necessary knowledge for getting (and staying) rich. He cites his highly successful career as an investor and his retirement at the early age of 47 as evidence in support of his claims.
+
+
+Source: [Rich Dad’s Guide to Investing by Robert T. Kiyosaki](https://www.blinkist.com/en/nc/daily/reader/rich-dads-guide-to-investing-en/)

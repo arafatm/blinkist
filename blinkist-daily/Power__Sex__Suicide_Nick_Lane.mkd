@@ -1,0 +1,192 @@
+![Power, Sex, Suicide](https://images.blinkist.com/images/books/5b43f33eb238e10006085e6d/1_1/470.jpg)
+# Power, Sex, Suicide
+*Nick Lane*
+
+>Power, Sex, Suicide (2005) reveals the incredible role that mitochondria play in the evolution of complex life forms. The book looks at various functions of multicellular organisms, including energy generation, cellular relationships and life cycles, and demonstrates the influence of mitochondria in each of these areas.
+
+
+# What’s in it for me? Learn about an unassuming but essential contributor to your existence.
+
+What is the secret to life?
+
+There are many ways to tackle this age-old question, and depending on what you’re looking for, the answers will either leave you satisfied, content or frustrated.
+
+For some, there is a less metaphorical and more scientific response: mitochondria. Mitochondria lie at the center of all multicellular life, and they play a vital role in shaping our existence. In these blinks, we take a look at our most crucial and complex biological processes, and explain how mitochondria are central to each of them.
+
+You’ll also discover
+
+- who Mitochondrial Eve is and how you’re related to her;
+
+- how many different cells are in the human body; and
+
+- why there are two sexes.
+
+
+# Mitochondria lie at the center of all multicellular life.
+
+Some 4 billion years ago, when life on Earth was just beginning, all that existed were algae and single-cell bacteria.
+
+Six hundred million years ago – a mere sixth of the time that life has existed on Earth – more complex forms of life started to develop. These complex lifeforms are called *multicellular* *organisms* – they are a combination of numerous cells that have a variety of functions.
+
+Not only did these new multicellular organisms have more cells, they also had *different *types of cells that fulfilled various functions. These multicellular organisms are *eukaryotes*, and each of their cells contains a nucleus. These *eukaryotic cells* are what humans and animals are made up of. More simple organisms, such as bacteria, are known as *prokaryotes*. *Prokaryotic cells* contain no nucleus.
+
+For a long time, biologists thought that prokaryotes evolved into eukaryotes, which then transformed into complex entities such as humans. However, this isn’t exactly the case. These two types of cells are distinct from each other; for instance, eukaryotes are ten to 100 times larger than prokaryotes.
+
+The biggest difference, though, is that complex multicellular organisms are made up of eukaryotic cells, which all have – or once had – *mitochondria*. Mitochondria live inside cells and produce energy.
+
+So, if all complex life forms consist of eukaryotes, and eukaryotic cells only exist when they’ve come in contact with mitochondria, then it follows that mitochondria are at the center of all multicellular life.
+
+Since all that existed in the beginning were prokaryotes such as algae and bacteria, it’s likely that eukaryotes came into existence via a merger between two prokaryotes: one being a mitochondria and the other a host cell. We’ll take a more detailed look at this later on.
+
+# 
+
+*“Speaking as a multicellular eukaryote, I might be biased, but I do not believe that bacteria will ever ascend the smooth ramp to sentience. . .”*
+
+# Mitochondria give us power.
+
+Before modern science emerged, the sixteenth-century Swiss alchemist Paracelsus imagined our existence as a “flame of life.” Though intended as a metaphor, it turns out Paracelsus was actually close to the scientific fact.
+
+While humans don’t burn like candles, the process of respiration and combustion are one and the same. The act of breathing provides our cells with oxygen, which we use to burn glucose. This process is known as *cellular respiration*.
+
+In eukaryotic cells, a majority of the chemical reactions needed for cellular respiration occur inside the mitochondria; through this process, we produce a lot of energy.
+
+Mitochondria are unbelievable powerhouses. By way of comparison, humans – which are made up of mitochondria – generate, in relative terms, 10,000 times the amount of energy produced by the sun!
+
+More specifically, the sun generates about 0.2 microjoules (0.0000002 joules) of energy per gram per second. Meanwhile, humans produce 2 millijoules (0.002 joules) per gram per second – all without even getting off the couch. How is this possible?
+
+Mitochondria produce power by pushing protons through membranes within a cell, which creates an electric charge. During cellular respiration, the membranes function like a dam and a reservoir of protons builds up, thus storing energy in the cell. Then, the stored-up protons can slowly be released to produce *adenosine triphosphate* (ATP), or what’s known as the “energy currency of life.”
+
+This process was coined *chemiosmotic coupling* by British biochemist Peter Mitchell, who won the Nobel Prize in 1978 for his work on this topic.
+
+# Unlike eukaryotes, bacteria could never have transformed into complex entities.
+
+Bacteria have evolved since they first came into existence some 4 billion years ago. They have survived all kinds of environments – cold, hot, dry, damp – and are now varied and sophisticated.
+
+Nevertheless, they are still single-celled organisms. Eukaryotes, in contrast, have evolved into complex entities that can think, see, hear and experience sentience, among many other abilities. Given that eukaryotic cells have evolved, we must ask ourselves: what’s stopping bacteria from transforming?
+
+The first reason is that bacteria aren’t able to evolve into eukaryotes, and thus into complex life forms, through natural selection alone. The difference between prokaryotes and eukaryotes is just too great.
+
+In addition to the differences in physical size, the bacteria’s genome is magnitudes smaller than that of eukaryotes. What’s more, this significant dissimilarity can’t be explained solely by the slow and gradual process of evolution.
+
+Instead, the birth of complex organisms was due to a highly unlikely unification of two prokaryotic cells. During this rare occurrence, one prokaryote physically engulfed the other, the latter being mitochondria in its early stages.
+
+Additionally, bacteria can’t evolve into complex organisms because they are constrained by factors that eukaryotes don’t have to face.
+
+To adapt to their environment and survive natural selection, bacteria had to replicate quickly. The speed of DNA replication is important, but it depends on the amount of DNA that needs to be copied. Generally speaking, bacteria have small genomes because copying a larger set would cost more time and energy, which would be contrary to their need for quick replication.
+
+Having small genomes means that bacteria are less complex, which is why they could hardly hold the code for something as multifaceted as a human being.
+
+A further constraint is that bacteria don’t contain mitochondria.
+
+Without mitochondria, bacteria have to rely on their outer cell membrane for respiration. The problem is that the bigger the cell surface area, the more energy this process requires. Therefore, bacteria do not grow too big because they need to save energy for reproduction.
+
+Eukaryotes, on the other hand, are free from this pressure because they possess mitochondria, which means their energy generation capability has been internalized. With the ability to acquire more mitochondria, eukaryotic cells could keep growing while generating and maintaining a sufficient amount of energy.
+
+# Eukaryotes grew in complexity as their energy efficiency rose.
+
+Since the development of the first eukaryotic cell, life forms became more and more complex. But why? It’s not as if evolution has a goal or endgame. In contrast to how an embryo is preprogrammed to develop into a child and then an adult, evolution by natural selection lacks such a roadmap.
+
+So did complex life come about by chance? Was it natural selection? There is no clear answer to this question, but one of the main reasons eukaryotes have grown and become more elaborate is their energy and by extension, mitochondria.
+
+In contrast to bacteria, becoming bigger makes eukaryotes more energy efficient. This immediate reward is a great incentive for eukaryotes to grow. Think of it like an economy of scale, where the more energy you produce, the more you save.
+
+Now let’s consider a complex organism, like rats, for example. Rats are used in research labs not only because they’re very similar to us (we share comparable organs and body layout and function), but also because their lifespan is a sped-up version of ours. Rat organs work at a faster pace: they breathe more quickly, their hearts beat faster – in essence, they metabolize more rapidly. Rats use more energy in relation to their mass per unit of time than larger creatures such as humans.
+
+This tells us that the rate of metabolism is relative to size. Generally speaking, as the mass of a eukaryotic organism increases, energy demand also rises; however, it does so at a slower pace.
+
+Therefore, the bigger organisms become, the fewer resources they spend on simply trying to survive. It’s this trait of eukaryotes that might have allowed them to become bigger, and thus more complex.
+
+# 
+
+Humans have 200 different cell types and more genes than a rat.
+
+# Mitochondria determine cell death and sex development.
+
+Multicellular organisms are made up of billions and billions of cells. Every cell has an important role that contributes to the organism's well-being. If they were left to act on their own accord, cells would have no reason to be so giving. So what keeps them from selfishly multiplying in numbers? Well, evolution has a “molecular police force” in place. Known as *apoptosis*, this force relies on programmed cell death, or “cell suicide.”
+
+Apoptosis is controlled by mitochondria. The mitochondria in cells are what determines when it’s time for a cell to expire.
+
+This ability is perhaps more nefarious than it first appears.
+
+Consider that, in the earliest years of multicellular life, mitochondria may have used this death penalty for their own benefit. Instead of a harmonious merger, what if eukaryotes were formed as a result of a union between a host cell and a parasitical mitochondria?
+
+Imagine mitochondria entered a prokaryote host, lived off its waste products, kept tabs on the host cell’s health and then decided to kill the host cell so that it could move onto the next one. That sounds more like murder than suicide!
+
+If we take this parasitic relationship as true, then it could mean that mitochondria are a determining factor in the development of the sexes.
+
+To begin with, the chemical signals sent by mitochondria to initiate apoptosis are identical to those that trigger the genes that create sex cells – sperm for males and eggs for females.
+
+Furthermore, as eukaryotes evolved, a chemical dependency grew between the mitochondria and their host cells. This meant that mitochondria weren’t able to kill their hosts and live by themselves.
+
+If cells remain healthy and divide, then their mutually beneficial relationship with mitochondria would allow them to proliferate, too. If, however, a cell fails to split, the mitochondria are trapped. They can’t escape by killing their hosts because that would also lead to their own death.
+
+In this situation, the only way mitochondria could survive is if their host merged with another cell, thereby allowing its DNA to recombine with what was now a  partner cell.
+
+This is, in its very essence, sexual reproduction.
+
+# 
+
+Every day in our human body, 10 billion cells face the death penalty of apoptosis.
+
+# Mitochondrial DNA marks the starkest difference between the sexes and traces back through our ancestry.
+
+Biologically speaking, there are two sexes: female and male. What distinguishes one from the other? Many biologists would point out that differences in chromosomes are a distinguishing feature between females and males. Typically, females have two X chromosomes, whereas men have one X and one Y chromosome.
+
+However, there is a bigger difference between the sexes, one that is found in the passing on of mitochondrial DNA.
+
+The first question we need to ask is: why are there different sexes? According to many biologists, the advantage of two sexes is the recombination of DNA from different sources. It facilitates variety and helps mend damaged genes.
+
+That may explain why cells need other cells – but why do they have to be different? In other words, why do males produce small, mobile sperm and females large, immobile eggs? Once again, the answer takes us back to mitochondria.
+
+There are some 100,000 mitochondria in human eggs, compared to only around 100 in sperm, making it unlikely that male mitochondria will be passed onto offspring. During intercourse, parental DNA is recombined, but only the female sex passes on organelles, which include mitochondria.
+
+This is important because if the child were to receive both the male and female mitochondria, the two types would end up fighting each other and the host cells would suffer as a result. In order to prevent this tension, it is vital that all mitochondria in a single body are identical.
+
+Thus, mitochondrial DNA can be used to map our ancestral line.
+
+Since offspring only receive maternal mitochondria, which remain largely unaltered, the DNA of your mitochondria is almost identical to that of your mother’s. And her mitochondrial DNA is more or less the same as her mother’s mitochondrial DNA, and so on.
+
+With this knowledge, scientists have traced back the ancestral lineage of all living humans to one lone woman called Mitochondrial Eve, or African Eve, who lived in Africa some 200,000 years ago. This incredible discovery laid the foundation for the *Out of Africa* theory, which supposes that all modern human beings originated in Africa.
+
+# The cause of aging and death can be found in mitochondria.
+
+It’s generally accepted in biology that the bigger something is, the slower its metabolic rate, and thus the longer its lifespan. Of course, there are exceptions to this rule; birds, for example, live much longer than this rule predicts.
+
+But for the most part, this law rings true. So, if lifespan is predicated on metabolic rate, which is a measure of how quickly our body consumes energy, then it’s clear that mitochondria play a central role in determining our lifespans.
+
+More precisely, mitochondria cause aging and thus, ultimately, death.
+
+A theory first put forth in 1972 by American scientist Denham Harman posits that aging is related to the leakage of *free radicals*. Free radicals are molecules or atoms that have one, unpaired electron and are thus unstable. They are toxic and can damage living tissue and parts of the cell, like the DNA.
+
+But they are also byproducts of metabolic activity. During cell respiration, other molecules in our cells react with oxygen, which results in the leaking of free radicals. Since most of these chemical reactions occur inside mitochondria, free radicals pose a threat to the well-being of the mitochondria.
+
+When mitochondria are harmed, cells start to degenerate and aging begins. The pace of aging and the inception of age-related illnesses correlates to the rate of leaking free radicals, In other words, the faster the metabolism, the more quickly free radicals leak and the shorter the life of an organism.
+
+This is what’s known as the *mitochondrial theory of aging*, which isn’t without its flaws and criticisms.
+
+For instance, the theory predicts that antioxidants, such as vitamin C, would be able to stop oxygen from reacting with the other molecules residing in our cells. Consequently, it means that the leakage of free radicals would stop and that aging would be inhibited. This prediction, however, is simply incorrect.
+
+Regardless, the theory’s main argument – that there is a link between aging and mitochondrial leakage of free radicals – seems to hold true.
+
+And thus, we can all agree that mitochondria are at the center of life and death.
+
+# 
+
+*“We each hold within ourselves a ticking clock, and the speed at which the clock ticks is determined by our genes.”*
+
+# Final summary
+
+The key message in these blinks:
+
+**Mitochondria enabled the evolution of complex, multicellular life and they play a vital role in an organism’s metabolism and energy production. Mitochondria are also involved in cell coordination, as well as the process of aging and thus death, and offer fascinating insights into the origins of humans as a species.**
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****Oxygen *****by Nick Lane**
+
+*Oxygen* (2002) is a guide to the element that is so essential to our very existence that we sometimes forget it even exists. These blinks explain how oxygen enables and boosts life on earth while simultaneously threatening it.
+
+
+Source: [Power, Sex, Suicide by Nick Lane](https://www.blinkist.com/en/nc/daily/reader/power-sex-suicide-en/)

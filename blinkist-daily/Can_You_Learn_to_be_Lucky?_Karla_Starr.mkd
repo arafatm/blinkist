@@ -1,0 +1,200 @@
+![Can You Learn to be Lucky?](https://images.blinkist.com/images/books/5b70e210b238e10007ba458b/1_1/470.jpg)
+# Can You Learn to be Lucky?
+*Karla Starr*
+
+>Can You Learn to Be Lucky (2018) explores how unseen biases dictate our personal behavior and world events in ways that are often quite predictable. By understanding the mechanisms behind seemingly lucky events, we can learn how to harness luck to our advantage.
+
+
+# What’s in it for me? Learn how to be luckier.
+
+Life is full of lucky happenstance. Maybe you attend a heavy metal concert, strike up a conversation with a fellow fan, discover he’s an entrepreneur and, months later, find yourself working for his start-up. Or perhaps you feel exceedingly lucky to have sat next to Todd in lectures because he’s turned out to be the man of your dreams.
+
+But, in reality, a lot of these apparently lucky outcomes have totally predictable causes. For instance, sociability is a predictor of opportunity (you wouldn’t have landed that job had you been too shy to talk). Similarly, proximity is a predictor of acquaintanceship (you fell for Todd because you met him, not because he was the dreamiest guy in the lecture hall).
+
+You can’t control everything in life. But luck is often more predictable than you might think, and we can all adapt our behavior, prepare for randomness and nudge the system so it works in our favor.
+
+So let’s dive in and find out why lucky people are lucky, and how you can learn to be lucky yourself.
+
+In these blinks, you’ll learn
+
+- how looking the part and making a good first impression will increase your luck;
+
+- why figure skaters who perform last are more likely to win; and
+
+- how to overcome your natural inhibition and be more confident and curious.
+
+
+# Appearing last could help your chances of being lucky.
+
+You’ve doubtless heard someone account for a serendipitous event – be it a job opportunity, a promotion or a romantic encounter – by saying, “I was just in the right place at the right time.” Well, it turns out there is a lot of truth to this cliché. At the very least, the “right time” part is crucial.
+
+Counterintuitive as it might seem, luck often depends on coming last.
+
+In any situation where a number of people, objects or performances are judged against each other, being among the last to be judged increases your chances of success.
+
+For example, an analysis of European figure-skating championships between 1994 and 2004 found that the first skater to perform had a 3 percent chance of winning, whereas the final performer had a 14 percent chance. The same pattern has been found in everything from synchronized-swimming championships to the Eurovision Song Contest.
+
+Why is this? Well, the human brain is wired to work this way. It relies on context, on the information and emotions that are currently available to it.
+
+Just consider house hunting. The first properties you view will be judged against your ideals because your mind isn’t yet stocked with real-life examples of real estate to compare them to. But, over time, as you see more properties, your brain will receive information about what is actually out there. You’ll start to think, “Well, this house seems pretty good compared to the first nine I looked at.”
+
+House hunters viewing their first property never say, “This house is perfect! We’ll take it!” They wait until they’ve seen a number of houses before settling on one they like.
+
+In the same way, figure-skating judges are reluctant to award an early competitor a 5.9 or a 6 (the highest marks available) because this will make it impossible to give later competitors a higher mark. By the end, competitors are more likely to pick up those high marks, however, since the judges know there is no one else coming who could trump them.
+
+So going last is lucky. If you can choose a job interview slot, go last. Want to pick up that hot guy at the bar? Make your attempt late in the evening.
+
+# 
+
+*“When there is a fixed number of entries, go last.”*
+
+# Humans like familiar things, so looking the part and being in the right place will increase your luck.
+
+A social psychologist named Robert Zajonc once ran an experiment in which he exposed Westerners to foreign characters – Chinese logograms, for example – and then asked them how much they liked each character. Overall, the participants favored those characters that they had seen most frequently.
+
+This experiment is a demonstration of the *exposure effect*, which predicts that people will like things they’re familiar with. This effect has an obvious evolutionary explanation. As Zajonc put it, “If it’s familiar, it hasn’t eaten you yet.”
+
+So we tend to like what we know, and, in general, we’re most familiar with whatever we regularly get physically close to. For instance, one classic study shows that the physical proximity of two police recruits during training classes is positively correlated with the likelihood of their later becoming friends. Another study reveals that school children sitting in the center of a classroom make more friends than those on the edges because their central location makes it easier for other students to talk to them. So if making connections doesn’t come easily to you, don’t linger on the edges of that party or networking event. Get into the thick of it!
+
+But merely being around other people isn’t sufficient to spark friendships or profitable business connections. You also need to look the part. That’s because people instinctively use first impressions as a guide to decision-making.
+
+A study once examined whether musicians’ appearances affected how they were assessed. Judges were shown a series of videotaped violin performances, each by a female artist. Some of the violinists wore short skirts and tight tops, while others wore formal concert dress. The trick was that each performance was dubbed with the same musical recording. Nonetheless, judges consistently rated those in formal concert dress to be more technically proficient.
+
+Other studies show that doctors can increase their trustworthiness ratings simply by putting on a white coat over their suit.
+
+We can’t help but use our gut feelings to guide our decision-making. Thanks to years of observation, we simply *feel* that doctors wearing white coats can be trusted and that violinists in formal concert dress are the real deal. More often than not, our estimation of a person’s trustworthiness is based on a lightning-fast mental assessment – a first impression.
+
+So, whether with your Linkedin profile, your clothes or the strength of your handshake, try to make that first impression a good one. It really does matter.
+
+# Humans are predisposed to favor attractive people, meaning beautiful people get lots of luck.
+
+Most of us can think of people we know who are beautiful and seem to find success with ease. We all have that good-looking friend who was the college quarterback, always got the girls and is now raking in millions at Goldman Sachs. Beautiful people simply seem to have all the luck.
+
+And, in truth, beautiful people do have a lot of luck because humans are predisposed to favor attractive people.
+
+Since we can’t directly assess the quality of someone’s genes, we tend to make guesses based on the information that *is* available. An attractive, symmetrical face and nice, shiny hair are indicative of solid genes, so we tend to prefer people who possess such qualities. Our brains seamlessly make a series of logical leaps – from “this person is beautiful” to “this person must have good genes” to “this person is likely to be smart and well-adjusted.”
+
+If you’re of the opinion that beauty is a cultural construction, consider this. According to multiple studies, people of different genders, cultures and races tend to agree on who's hot and who's not. What’s more, babies do, too. When shown two faces – one that’s stereotypically beautiful and one that’s stereotypically ugly – six-month-olds spend more time looking at the attractive face.
+
+So attractive people tend to be favored by others, which really does make them luckier. This starts at an early age. One study found that parents with attractive babies – as judged by other people – are found to be more nurturing toward their children than the parents of less genetically-blessed offspring.
+
+The beautiful get extra help throughout life. In one study, researchers left university applications in phone booths, as if they had been left there by accident. Some of the applications, which included photos and addresses, were from attractive applicants, while others were from plainer candidates. Significantly more applications were mailed back to the attractive students than to their plain counterparts.  
+
+So how can those of us who aren’t physically stunning improve our luck? Well, we have control over our clothes, how much time we spend at the gym and whether we use makeup, of course.
+
+However, getting *too* worked up about your appearance can cause poor self-esteem. And as we’ll see in the next blink, confidence is also important when it comes to luck.
+
+# 
+
+*“Our preference for beauty is hardwired and appears to stem from a deeply hardwired evolutionary advantage.”*
+
+# Confidence creates opportunities for lucky breaks, but it’s more dependent on social conditioning than we might think.
+
+If you have the confidence to get up and talk to that cute guy across the bar, you’ll be more likely to get lucky than if you sit in the corner, nursing your mojito.
+
+Confidence is about focusing more on reward than risk. Now, our brain has both an activation system, which encourages us to do things based on potential reward, and an inhibition system, which uses stress and anxiety to stop us from doing things based on potential risk. When we shift from activation to inhibition, we go from “go and talk to him – you might get a date out of it!” to “you’ll only embarrass yourself – it’s time to accept that you’ll die alone.”  
+
+People who are able to push activation over inhibition are luckier because they are more likely to get into the situations – talking to potential partners, demanding a promotion – that create opportunities for luck.
+
+However, for many people, this switch is easier said than done. The world is full of hierarchies, and there is plenty of evidence that people’s behavior conforms to their perceived place in the hierarchy.
+
+Consider why the rich guy from a successful family tends to be outspoken and confident. Research shows that, in the first four years of life, a child born into a professionally successful family receives 560,000 more pieces of encouraging feedback than discouraging feedback. In contrast, a working-class child receives just 100,000 more. And if a baby is born into a family on welfare, it’ll receive 125,000 more discouragements than encouragements.
+
+Low standing in the social hierarchy can mean low confidence and, therefore, less luck. But it’s possible to escape this trap. Girls are often told that they are less good at math than boys, and studies of women often find worse math results than for men. In one study, however, women about to take a math test were told to imagine themselves as “a stereotypical male.” This caused discrepancies in male and female performance to almost disappear completely. The women’s newfound confidence resulted in an obvious increase in mathematical ability.   
+
+If you’re naturally confident, lucky you! If not, here’s a trick that can help. Students who wrote for 15 minutes about one of their strengths – independence, say, or creativity – went on to perform better, over the course of a year, than a control group. Take time to remind yourself of your strengths. You got this!
+
+# To be truly successful, hard work isn’t enough. Rather, you need multiple pieces of luck to come together.
+
+A Swedish psychologist named Karl Anders Ericsson once found that the world’s best musicians had, on average, practiced for 10,000 hours. This has led to a rather simplistic idea that’s been popularized by the writer Malcolm Gladwell – that you can become an expert in any field by practicing for 10,000 hours or more.
+
+It’s a seductive theory. You, too, could have been a world-class performer, if you’d only stuck with those oboe lessons instead of drinking Pinot Grigio with your friends! But it’s not really true. Hard work and practice aren’t enough. You also need the right genes.
+
+Researchers exploring the link between genes and athletic performance have found that genes can account for anywhere between 31 and 85 percent of variation between athletes. So the difference between an Olympic medalist and an “also ran” doesn’t depend on practice alone; it’s also genetic.
+
+You need the right resources, too, not to mention the right location. It’s entirely possible that someone with the perfect genetic makeup for competitive skiing is living in a favela in Brazil. Of course, that person would be unlikely to ever hit the Winter Olympic Games, for geographical and financial reasons.
+
+Studies of top swimmers show that they tend to come from families with a decent income. If they didn’t, they’d be unable to travel around to competitions. They also tend to come from places like southern California, where the sun shines all year round and there are plenty of pools.
+
+To add to genes, resources and location, you also need mental toughness. Reaching the very top in any field depends on *never* saying, “I quit.”
+
+The likes of Tom Brady, a superstar quarterback, are capable of looking at a loss and criticism as a learning experience time and time again, relentlessly focusing on improvement and exercising unyielding self-control. Master this, and you’ll be that much closer to becoming a five-time Super Bowl winner.
+
+It’s easy to believe in hard work. A gold medalist is more likely to talk about her years of training than her superior genetic makeup, and she may neglect to mention that she grew up next door to a track and was raised by parents who paid for exclusive coaching. Sure, hard work is important. But it’s not enough on its own.
+
+# 
+
+*“To reach the pinnacle of human performance, it’s not enough for one thing to go right: Everything has to go right.”*
+
+# Self-control is an essential component to success.
+
+How do you spend your downtime? Working tirelessly on a side project that, someday, may lead to major success? Or watching Netflix in your sweatpants?
+
+Self-control, and investing time and effort in activities that are only rewarding in the long-term, is a great way to generate successful, apparently lucky outcomes.
+
+Meet Derek Sivers. He’s a millionaire who set up a company called CD Baby back in the 1990s. Sivers had created a credit-card account to sell CDs of his own music. CD Baby was born when a friend asked him if he would help set up a website for independent bands to sell their CDs. The site was created over the course of a weekend and later sold at a value of $22 million. What luck! A chance conversation that led, decades later, to a multimillion-dollar payout!
+
+Except it wasn’t really luck. Among his friends, Sivers was known as “the robot.” He had a long attention span and was happy to block out the world and work nonstop for a weekend if he wanted to master a new skill. When, in 1993, he first heard of the internet, he didn’t just start exploring it; he taught himself HTML so he could create his own websites.
+
+Unfortunately, it’s hard to improve your ability to self-regulate your behavior, so don’t get too despondent if you struggle with willpower. Our brain finds it easier to do things that we’ve done many times before – that’s why adults who have tied a tie every morning for ten years can do it on autopilot. Doing things that don’t come naturally, like tying a tie for the very first time, or teaching yourself HTML instead of watching old episodes of *Friends*, requires us to use the most energy-demanding part of our brain, the prefrontal cortex. If learning new skills feels like hard work, that’s because it really is.
+
+The good news is that, though arduous, self-improvement isn’t impossible. We can all get better at self-discipline by employing tricks like physically moving short-term temptations away (no more cookies in the cupboard!) and picturing the eventual reward of long-term decisions (do I want another cocktail now, or a house in ten years?).
+
+So cultivate your self-discipline, and when a lucky opportunity pops up, you’ll be well placed to capitalize on it, just as Derek Sivers was.
+
+# Connecting with other people will help generate new opportunities.
+
+Who you know is more important than what you know. Yes, it’s a cliché but for a good reason as it contains an element of truth. You may be the best in the world at what you do, but if you don’t make the right social connections, you won’t get any lucky breaks.
+
+In 1989, sociologist Katherine Giuffre tried to get an idea of how social connections affected success by examining the people and relationships within the New York fine art photography scene.
+
+She found three groups. First, there were strugglers – people who were unsuccessful in their careers. Second, there was a group of photographers with stable, long-term connections with the same curators and artists. They were doing okay, but their careers weren’t taking off. And then there was the third group – successful photographers regularly receiving attention from major art journals. This group was different. Its members had more social ties and knew more people, who, in turn, knew still more people. In short, they had a huge network.
+
+Giuffre noted that a lot of art delivered by the first two groups was simply filtered out into obscurity. The art wasn’t necessarily worse – in some cases, it was mind-blowing – but the photographers lacked the right social connections to get ahead.
+
+So a fine art photographer who can strike up a positive, engaging conversation with anyone is more likely to get ahead, and the same goes for all of us.
+
+But most of us can’t effortlessly chat up a journalist at a gallery opening. We enter into social interactions with nervousness or inhibitions, or we misinterpret the meaningless gestures of our interlocutor. We see them cross their arms and interpret it as “stay away,” not simply “I forgot my sweater today.”
+
+This kind of caginess can easily inhibit real connections, so, to get around it, you should demonstrate expressive interest in other people. Make crystal clear that you are genuinely interested in the other person. Send unmistakably friendly signals, like smiles and leaning in, and make open, welcoming gestures. If you are unmistakably pleasurable to be around, people will open up and warm to you quickly. Remember that humans are social animals. Just as we’re hardwired to enjoy sex and food consumption, we’re instinctively drawn to friendly smiles and welcoming body language.
+
+# Staying curious about new things will increase your chances of finding luck.
+
+Tony Hsieh’s first business failure came when he was nine years old. His business plan was simple. Acquire a box of worms. Let them reproduce. Sell the new worms for a profit.
+
+Sadly, his due diligence didn’t identify a risk: all the worms might escape, along with any prospect of profit (this happened). But Hsieh wasn’t deterred from an entrepreneurial life. He was relentlessly curious and loved to explore new opportunities. He started a newsletter as a child and sold advertising space. At Harvard, he learned about bartending and – less conventionally – how to milk cows. He turned a profit by buying McDonald’s burgers for $1 and reselling them in dorms for $3.
+
+Hsieh never set out to be CEO of an online shoe retailer. In fact, when an entrepreneur first pitched him the idea of Zappos, Hsieh demurred. He wasn’t particularly passionate about or interested in shoes. But, as ever, he was curious. The market opportunity intrigued him. And it’s good that it did, because, by 2008, Zappos was turning over $1 billion in sales. Eventually, Amazon acquired the company, making Hsieh a multimillionaire.
+
+Many people *aren’t* curious, and, as a result, they neither get nor take any shots at success. As we’ve seen, our default mental setting is to stick with the familiar. The unknown – for instance, turning up at a party where we don’t know anyone – often feels threatening. Our brain switches to inhibition mode and we do nothing.
+
+Being cautious, or curious, about new things is self-perpetuating. If you *don’t* go to that party, you are missing a chance to get better at handling new things, and your commitment to the status quo strengthens. If you *do* go to that party, perhaps you’ll meet someone new, who will invite you to another party, and then another, until you eventually meet someone special – your future spouse, perhaps, or a new friend or an entrepreneur with a great business idea.
+
+So try to recognize that while your brain’s default is to stick to the familiar, you *can* make the decision to do something new. And there are ways to make that easier. You can build your social network because friends often help us do new things. Or you can save money, so you have a cushion if you want to take some risks. Or you can reduce your stress levels and work on your confidence so that taking that leap into the unknown feels easier. Say yes to things. Stay curious. In the end, you might just get lucky.
+
+# 
+
+*“Make it your mission to approach the unknown and find its rewards.”*
+
+# Final summary
+
+The key message in these blinks:
+
+**Life often feels random, as though luck is what separates the best from the rest. And it’s true that many events are outside of our control. But when we start to understand how our brains work, and how invisible biases and patterns influence our behavior, we can learn how to be luckier. So do your best to position yourself for luck. Expand your social network, stay curious and say yes to new opportunities.**
+
+Actionable advice:
+
+**Maximize your lucky opportunities by regularly trying new things.**
+
+Try out and learn different activities as much as possible. Learn computer programming, study French or try out a new sport. Maybe you’ll stumble upon a world-class talent you never knew you had, or meet your next business partner in class. At worst, you’ll get a better idea of what you truly enjoy doing!
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****How Luck Happens *****by Janice Kaplan and Barnaby Marsh**
+
+*How Luck Happens* (2018) debunks the myth that luck is something we have zero control over, revealing that we certainly can influence the level of luckiness in our lives. Packed with examples and practical advice, this book shows how luck can be improved in the workplace as well as the dating scene.
+
+
+Source: [Can You Learn to be Lucky? by Karla Starr](https://www.blinkist.com/en/nc/daily/reader/can-you-learn-to-be-lucky-en/)

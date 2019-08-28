@@ -1,0 +1,273 @@
+![The Consultant’s Handbook](https://images.blinkist.com/images/books/5ba24782862c4300071847f9/1_1/470.jpg)
+# The Consultant’s Handbook
+*Samir Parikh*
+
+>The Consultant’s Handbook (2015) is an indispensable field guide to the world of consultancy. Packed with top tips, illuminating examples and hands-on advice, it’s the perfect explainer for consultants past, present and future, as well as anyone keen to pick up some consultancy tricks to boost their performance in adjacent industries.
+We’re thrilled to announce that the author has worked together with Blinkist to create this book-in-blinks for you.
+
+
+# What’s in it for me? Learn the principles of success in the consulting business.
+
+What is consulting? A high-impact service delivered across a wide variety of specialist domains. But all consultants have a common interest: To leverage their skills, knowledge and experience to get the best for their clients. This is something that countless people, from management consultants to software developers and even travel agents do almost every day.
+
+And there’s a common set of principles that can help you to do that. After all, if you want to make it big, you’ll have to satisfy your customers, learn to fight your corner, take the views and expertise of others on board and structure interactions with clients as efficiently as possible.
+
+With more than 25 years of professional experience directing consulting engagements across the globe, Samir Parikh has distilled these principles into The Consultant’s Handbook.
+
+Packed with practical advice and engaging, real-world examples, it provides the ultimate crash course in delivering high-performance results in a competitive marketplace.
+
+In the following blinks, you’ll learn
+
+- how to make a good first impression and establish your credibility with clients;
+
+- when to argue your case and when to defer to your client’s own expertise; and
+
+- how to structure a killer project proposal.
+
+
+# Consultants leverage their experience, expertise and networks to get results for their clients.
+
+Consultancy is a term that’s become grossly inflated in recent years. Today, it’s hard to get a handle on what it really means.
+
+So let’s start with a definition.
+
+Consultancy means using two ingredients – your expertise and experience – to help your clients realize their goals. These pillars can support a *basic consulting proposition*.
+
+You can see how this works by imagining an architect who’s been commissioned to design a house. The architect uses two things to fulfill his client’s brief: his architectural knowledge and his experience building similar houses.
+
+Whether you lean more heavily on expertise or experience varies from situation to situation. If the architect is fresh out of school, he won’t have much hands-on practice behind him and will emphasize the things he learned during his studies. On the other hand, someone with 20 years in the industry is likely to lean on a wealth of experience from past projects.
+
+But there’s also another aspect to consultancy – harnessing the collective efforts of your organization to act in your client’s best interests.
+
+This is especially true of bigger consultancy firms. An essential part of their brief is deploying their networks and resources as efficiently as possible to address a client’s needs.
+
+They achieve this by cultivating a knowledge-sharing culture. Databases and networking help pool information about previous cases and make it available to those who need it.
+
+Finally, there’s the question of how interests align. The consulting company’s interest may be to sell the client additional services, but this may not be what the client needs.
+
+As a consultant, it always best to act in your client’s best interests. Focusing on short-term gains will end up annoying clients and undermining their trust in you. That means jeopardizing future collaborations.
+
+Most importantly, acting in their interests preserves your consultancy firm’s credibility. That’s not as gratifying as instant profits, but it’s integral to your company’s long-term success.
+
+# Consulting assignments require careful preparation.
+
+Say you’re the manager of a company that’s deciding which consultancy firm to hire. How would you feel if the consultants you’d invited for a preliminary meeting turned up not knowing any of the basic information about your company? Not great, right?
+
+That’s why any consulting assignment should always start with thorough preparation.
+
+Of course, getting to grips with the nitty-gritty takes time. How deep you dive into the details depends on various constraints and the nature of your first meeting.
+
+So if you’re short on time, aim to research your client’s company, their key issues and some possible solutions – call it basic preparation.
+
+That’s usually a matter of no more than two hours. Here are the things you’ll want to take into account.
+
+First off, the company’s locations and the industry and market in which it’s active. Next up: basic financial information like revenue and profits, its business units, competitors and product palette. Finally, you’ll want to read relevant press releases and learn the names of key executives.
+
+Commit that to your memory and you’ll be well-placed to follow the conversation and understand your client’s needs in your first meeting. This makes a good impression. Knowing the basics means your client will take you seriously. Turn up underprepared, by contrast, and they’ll start wondering if they’ve made a mistake.
+
+If you’re working on a bigger project, you’ll need to delve a bit deeper and conduct a more detailed preparation, meaning basic preparation plus some extras. These include strategy, aims, notable trends in the industry, company history, sales channels, more advanced financial data and customer feedback.
+
+Lastly, there’s engagement-specific preparation. That’s a way of preparing for a meeting on a specific topic.
+
+Sometimes your client will invite you to a meeting addressing one particular issue. That could be team performance or efficiency in a certain area.
+
+In those cases, your prep work will need to go beyond familiarizing yourself with the company in general – you’ll also need to be ready to deal with the issue at hand.
+
+That doesn’t just mean research, however. A great way of preparing yourself is to think of useful questions that you’ll need to ask as well as anticipating what your client might ask you.
+
+Preparation also plays an important role in the topic we’ll be addressing in the next blink: establishing credibility.
+
+# Consultants can establish their credibility by carefully positioning themselves.
+
+Whatever field you’re offering your consulting services in, there’s one essential thing you simply cannot do without: trust.
+
+That’s why it’s so important to position yourself as a credible source of professional advice from the get-go.
+
+So how do you that? Well, start with a well-crafted personal introduction.
+
+This doesn’t mean selling yourself and your colleagues by claiming how fantastic you are.
+
+What you should be doing is providing an objective overview of your experience and what you can bring to the project. That means making distinct claims and backing them up with evidence.
+
+Lay out how many projects you’ve completed and how long you’ve been consulting. Telling it like it is makes your introduction much more tangible. It can even pay to formulate the exact words that you’re going to use beforehand so that you’re well prepared.
+
+Make sure your introduction is also relevant and concise and you’ll be onto a winner. Your client will know you’re not wasting their time and will get a good picture of how your experience and expertise fit their needs.
+
+But it’s not just yourself you’ll be introducing – it’s also your organization.
+
+You won’t be working on your client’s project alone, so it’s a good idea to introduce your team and explain how its skills are suited to the work at hand. Include references to qualified people who will support the work behind the scenes, if needed.
+
+Or simply ask your client if they have any questions about the credentials of your organization after your brief summary. Answer these questions well and you are bound to build credibility.
+
+# Find the right balance between structure and flexibility to maximize the efficiency of meetings.
+
+Consultancy involves a lot of back and forth. Addressing your client’s needs and issues requires plenty of interaction. That usually comes in the form of meetings.
+
+So it’s important to make sure you’re getting the most out of meetings. The way to do that is to have a clear structure that helps you ensure the key issues are being addressed.
+
+If you don’t have that, it’s easy to end up in endless, rambling meetings in which key points end up being left out. And don’t rely on your clients to bring a well-structured approach to the discussion. It’s up to you.
+
+The first step to boosting the efficiency of your meetings is to agree on your objectives before you start.
+
+Why are you meeting and what do you want to achieve? Agree on that with your team before your client arrives and you’re bound to have a much more productive session.
+
+That brings us to team organization.
+
+You want to avoid that awkward situation when several people try to answer the client’s question at once. Delegating responsibilities before the meeting lets you head off potential communication problems. Agree on the points that you plan to emphasize as well as any discussions that you would prefer to avoid.
+
+You’ll also want someone taking notes during the meeting to make sure everyone’s on the same page once you’re done.
+
+Finally, there’s the matter of the meeting’s structure. Begin with introductions before agreeing on the context. Next comes the body – the point at which you’ll address issues and work out solutions. Conclude with a summary and a clear list of next steps.
+
+That said, be ready for the unexpected. Your client might suddenly toss a new idea or question into the mix. If you want to deal with them without losing your balance, you’ll need to be flexible.
+
+Remember, your job is to act in your client’s best interests. To do that, you need to understand what it is that they want.
+
+And that’s something that can change. So be prepared to add new issues to the agenda when a client brings them up.
+
+Say you’re in a meeting and agreeing on the context. You specify that your aim is to present your potential solutions, but the client suddenly says he’s especially interested in product development. That’s something you should make sure you address even if it wasn’t on your agenda originally.
+
+# Make sure you send your client a clear, structured and precise proposal.
+
+The first step to winning an assignment is successfully positioning yourself as a credible source of authority. But you shouldn’t overlook the written proposal you’ll be submitting for your consulting services either.
+
+So what should that proposal look like?
+
+Well, the key is to keep things straightforward. The proposal should tell the client what you’re planning on doing and how you’re going to go about that.
+
+Start with an *executive summary.* That’s basically a couple of paragraphs in which you present the condensed version of your proposal. It’s worth paying careful attention to this as it’s often the only part a client reads!
+
+Next up is the introduction. This is your chance to outline the overall structure of the proposal.
+
+Then there’s the main body. Here you’ll want to describe the problem at hand and talk about how you’re going to tackle it, the time frame, price and the expected benefits for the client. Cite your relevant credentials and references here to add meat to the bones of your proposal.
+
+Good proposals come in different shapes and sizes, but they have one thing in common: they’re *realistic *and *precise*.
+
+That’s because overly optimistic commitments and failing to define clear terms can negatively affect your project later on.
+
+When you focus on your client’s actual needs rather than trying to offer them the world, they’re much less likely to end up feeling disappointed.
+
+Take it from a Dutch consulting firm which learned that the hard way.
+
+It was commissioned by a company in the banking sector to work on a project which the latter estimated required 20 consultants. What did the consultancy do? They prepared a highly ambitious proposal for a project to be delivered by 60 people!
+
+The client wasn’t impressed. The company wanted someone to help them with a specific task, not to turn the whole operation on its head. “We asked for an apple,” they said, “you gave us a pumpkin.”
+
+Precisely defining your terms will also save you a lot of hassle in the long run.
+
+Say you’ve been hired to deliver a risk management solution. Your definition might not match your client’s. If you don’t define what *you* mean by risk management, there’s every chance that your client will expect you to do more work due to their broader definition.
+
+# Consulting is all about knowing when to stand firm and when to give way.
+
+Standing your ground when you know you’re in the right is an important and admirable trait. But you also need to know when to give way and acknowledge that your clients may know things that you don’t.
+
+As you’ve already learned, your job as a consultant is to act in your client’s best interest. That includes speaking up when you think they’re making a mistake.
+
+When that happens, you’ll need to do a couple of things. First off, be confident in your own expertise and argue your case. The best way of doing that is to offer constructive criticism. That’s all about logical reasoning.
+
+In brief, there are two kinds of arguments that you can build: deductive or inductive arguments.
+
+Deductive arguments are about arriving at a conclusion by whittling away other possibilities in an analytical manner.
+
+Say your client needs a car and has three specific requirements. A deductive argument would work like this. There are five cars on the market that fulfill the first of these requirements; three of those are also within budget, but only one of them can be delivered within your desired time frame – that’s your solution. The answer was found analytically through a process of elimination.
+
+An inductive argument follows a more persuasive logic and starts with the solution. Here you’ll present your answer to a problem and explain the reasoning supporting that conclusion.
+
+Both types of arguments can be effective depending on the situation. Sometimes, you might find it useful to use both.
+
+You can use deductive arguments, for example, to show why your solution is the perfect answer to your client’s needs and then use inductive arguments to support your case.
+
+But remember, no matter how well you can argue your case, there’ll be times when you’ll need to accept that your client might just know better than you do.
+
+Your client might have a good reason to be skeptical about your proposal. After all, they know their trade and company better than anyone else. They are also in the best position to judge whether the approach that you are proposing will be embraced by the people in their organization.
+
+That means your best bet is to combine confidence with humility. It’s worth taking a step back and asking yourself why your client has rejected a particular solution before moving on to another idea.
+
+# Remember the 50-50 rule to ensure client satisfaction.
+
+Few things influence the way people understand the world today more than the internet. That also goes for your clients. Their satisfaction doesn’t just shape your current relationships but also the way your future clients will view you. After all, reviews of your service are only ever a few clicks away.
+
+So what’s the best way of managing client satisfaction? Well, you should start applying the “50:50” rule. That means devoting half your attention to results and the other half to your client’s experience.
+
+Let’s break that down a bit, starting with results. Your first aim is to achieve results by successfully applying your skills and expertise to a problem.
+
+That’s about adopting a roadmap that guides you through the assignment and a set of tools that help you deliver the result. Taken together, that’s your *methodology*.
+
+Good methodology isn’t a one-size-fits-all solution – it’s about tailoring your approach to a distinctive issue. Over time, you’ll build up invaluable experience and stock your toolkit with ever more precise gadgets that’ll help you get the job done.
+
+To effectively address your client’s problem you’ll need to agree on a time frame and a budget and stick to them. Your expertise and ability to use resources efficiently are key to achieving your goal.
+
+But results are only part of the story. It’s just as important to manage the client experience.
+
+Think of the last time you flew somewhere. What would you consider if you were asked to rate your experience – there’s more to it than whether the flight arrived on time, right? Cabin service, the quality of the food, comfort and the efficiency of the luggage delivery are all important too.
+
+The same applies to your services. That’s especially true in ultra-competitive industries in which a number of companies can successfully deliver the same results. Provide your clients with a satisfying all-round experience and you’ll set yourself apart from the crowd.
+
+Take an example from Western Europe.
+
+A consultancy firm was on track with its project. Everything was going well, and the company was convinced it was going to hit its targets.
+
+The client wasn’t so sure, however, and a worried executive called the firm several times a day to ask how things were going. The calls persisted even after she’d been reassured that everything was fine.
+
+Recognizing her worries, the consultancy firm decided to send her a status report at the end of each day. That was something the client appreciated, and soon enough, the calls stopped.
+
+That’s a good example of providing great customer service. Take the time to make sure your clients are happy, and they are bound to stay loyal to your firm.
+
+# 
+
+*“What happens in delivery is the real test and is the door-opener to future collaboration.”*
+
+# Plan for potential resistance to make sure you get your assignment done as efficiently as possible.
+
+Consulting teams aren’t always welcome in the offices of the companies that have hired them. It’s easy to see why. Consultants often recommend significant changes which, if implemented, can result in layoffs. Then there’s a more primal factor – people don’t like outsiders telling them what to do.
+
+That means that anticipating potential resistance and uncooperativeness is an essential part of your work as a consultant.
+
+Dealing with resistance is a tricky balancing act. Your aim shouldn’t be merely overcoming it but also acknowledging its sources.
+
+So when you come up against opposition to your plans, ask yourself why people are resisting.
+
+Take a London-based company which hired a consultancy firm to improve its accounting system.
+
+The system had been designed and implemented years before by the in-house IT department.
+
+When the consultants arrived, they were faced with a dilemma. The staff working in the IT department were highly critical of the project, continuously raising concerns and objections. Dealing with these was not only time consuming but was blocking the progress of the work.
+
+What, the consultants asked themselves, could be done to improve the ongoing relationship?
+
+They realized that the IT department took great pride in the system it had designed. Its members were anxious about what would replace it as well as the fact that it was being implemented by outsiders.
+
+The consultants arranged a meeting with the department’s head and acknowledged the value of the existing system while highlighting the reasons a new one was needed. They then reassured him that his team would be the owners of the new system and would play an important driving role in the success of the project.
+
+It was a savvy approach – soon enough the IT department was on board, and the project was able to move forward.
+
+Flexibility is another valuable technique that’ll help you head off potential problems.
+
+It’s all about meeting your clients on their own terms. If they’re extremely professional, repay them with the same level of professionalism. If they’re down to earth and friendly, you should be too!
+
+# 
+
+*“The better the concerns can be addressed, the lower the wall of resistance will become, but we must start by attempting to establish the underlying cause.”*
+
+# Final summary
+
+The key message in these blinks:
+
+**Whether you’re working in a consultancy or simply trying to polish up your ability to advise clients, there are a couple of basics well worth committing to memory. First off, remember that your aim is to always act in your client’s best interest. To do that you’ll need to be well-prepared, flexible and tuned into their needs. Add your expertise and experience into the mix and you’ve got a winning formula that’s guaranteed to leave your clients satisfied and looking forward to the next project with you.**
+
+Actionable advice:
+
+**Use the** **“logic tree” approach to solve problems.**
+
+Next time you find yourself confronted with a thorny problem, draw up a logic tree. That’s essentially a graph in which you try to trace an issue back to its source. Say your client’s company isn’t profitable. That’s the problem. What’s causing it? Well, it might be low revenues or high costs (or both!). Those are your branches. Now ask why revenues might be low and costs high – those are the next branches of your “tree.” Keep going and you’ll eventually find the root cause.
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****Million Dollar Consulting *****by Alan Weiss**
+
+The blinks to this fully revised fourth edition of the 1992 classic, *Million* *Dollar* *Consulting*, walks you through everything you’ll need to compete – and win – in the highly lucrative and busy world of consulting. *Million* *Dollar* *Consulting* offers you the tools you need to attract clients, organize your pipeline, and grow your current consulting business into a million-dollar one.
+
+
+Source: [The Consultant’s Handbook by Samir Parikh](https://www.blinkist.com/en/nc/daily/reader/the-consultants-handbook-en/)

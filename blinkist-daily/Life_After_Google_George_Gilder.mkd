@@ -1,0 +1,198 @@
+![Life After Google](https://images.blinkist.com/images/books/5b79c570b238e100077000e9/1_1/470.jpg)
+# Life After Google
+*George Gilder*
+
+>Life After Google (2018), shows how the future may instead lie in the “cryptocosm” and its blockchain architecture, which allows everyone to exert individual control of data and security online. Since the dawn of the internet, there have been tremendous progress in technology and the way people live their lives. And at the heart of it all is Google, a company that has managed to build a global way of thinking around their business model and vision. But it’s also falling rapidly out of favor with users for its lack of security precautions. Google may once have dominated, but we should prepare for a world that is no longer defined by it.
+
+
+# What’s in it for me? Understand the building blocks of the future.
+
+There’s no escaping the world of Google.
+
+In the 20 years since it was founded, it has completely redefined the way we interact online and with the world, even becoming a verb along the way.
+
+But is its tapestry of big data and free access really such a great thing? And will it be able to hold on to its position of power in the future? Because, as it turns out, though it holds data on almost everyone on the planet, it doesn’t actually keep it all under proper lock and key.
+
+But if Google’s heyday is coming to a close, then what will replace it? This is where cryptocurrencies, blockchain and bitcoin come in.
+
+These blinks detail the world that Google has built and why it’s no longer tenable, before explaining how and why the cryptocosm’s focus on security is changing, and will continue to change, the world.
+
+You’ll also learn
+
+- what a “Siren Server” is;
+
+- why you probably shouldn’t worry about Artificial Intelligence; and
+
+- who Satoshi Nakamoto is – or isn’t.
+
+
+# Google's system of the world revolves around big data and advertising revenues, with massive servers to support it all.
+
+Of all the information giants on the market today, it is Google that has defined our current *system of the world*, the set of ideas that inform a society’s technology and institutions, and shape the lives of its citizens.
+
+Let’s start with Google’s vision of knowledge, which is built around *big data*. Google doesn’t use traditional methods for increasing knowledge, where step-by-step progress is made by working from previous ideas. Rather, its vision is to first gather *all* of the information in the world in one place – the *cloud* – before analyzing it using sophisticated algorithms and extract new information.
+
+To enable this, Google has built an enormous database of information, a digital rendition of the real world, starting with the internet before growing to include everything from books and languages to maps and even faces through facial recognition software, which you comb through when you use Google. And since Google wants access to *all* information, any sort of privacy runs contrary to its model.
+
+Next is Google’s vision of value. The company makes 95 percent of its revenue through advertising; instead of paying with money to use Google, you pay with your time and attention. Of course, most people don’t want to look at adverts – which explains why the use of ad blockers increased 102 percent between 2015 and 2016 alone. Google, however, is famously subtle, placing sponsored links at the top of searches where they blend in and don’t seem so obtrusive.
+
+To manage and facilitate the online architecture that all this data and advertising requires, Google has built their own enormous data center near the town of The Dalles, Oregon. It currently houses 75,000 computer servers and handles 3.5 billion searches per day – that’s 1.5 trillion every year!
+
+These servers have enabled Google to expand with web services like Gmail and Google Docs, while simultaneously creating a new yardstick for tech companies: the more storage and processing you can offer, the better you are.
+
+But is this really the case? Jaron Lanier, widely considered to be the inventor of virtual reality, refers to these huge centers as “Siren Servers,” invoking the Greek myth where sailors are drawn to their death on the rocks by the alluring song of the Siren bird-women. Is he right to call them so? Could these very same centers, which have given Google and others apparent market dominance, be pulling them toward an early grave?
+
+# Big data doesn’t have to lead to dangerous AI, as many would argue.
+
+In January 2017, a “secret” gathering took place in Monterey Bay, California, attended by some of the pioneers of the information age, such as Google cofounder Larry Page. Their intention was to discuss and prepare to inform the world of the developing risks in the growing field of *Artificial Intelligence*, or *AI*.
+
+But most of the attendees were actually helping develop AI in Silicon Valley – why would they want to warn people of its dangers?
+
+These Silicon Valley pioneers believe that an AI-dominated future is inevitable. If they don’t develop it, someone else will. So the most good they can do is be involved and try to keep people informed of its dangers.
+
+But are these dangers real? To find out, we first need to look into the history of mathematics.
+
+In 1930, at a conference in his hometown of Königsberg, Germany (present-day Kaliningrad, Russia) mathematician David Hilbert presented the idea that all science could eventually be reduced to mathematics in a *complete system* – a system with a single unifying theory that covers everything, everywhere, with no uncertainty.
+
+However, the previous day at the same conference, the much younger mathematician Kurt Gödel had demonstrated that there can be no absolutely complete logical system. Any logical system, including any mathematical one, depends on premises that simply *can’t* be proved within it – you always need an outside authority. This is why humans can not only discover systems, they can *create* them too, and this is in fact how computer programming works: you create a system by defining rules for it from the outside.
+
+For AI to be dangerous in the way that Silicon Valley believes, AI would have to be a complete system. If it were to be complete, then once it had all the data in the world – a primary objective of Google, as we have seen – it could teach itself simply from the data it gathers, without the need for human input, quickly outpacing human intelligence and gaining dominance over us.
+
+But we needn’t fear this because, as Gödel demonstrated, all logical systems are incomplete. This means that if AI really is a threat, it must be programmed that way first. It couldn’t do it entirely on its own because it would need an outside authority – namely us humans, the ones who program it.
+
+All these fears of a tyrannical AI are really only the paranoid thoughts of scientists and engineers about the consequences of their own supposedly superior intelligence.
+
+# 
+
+*“Machines based on mathematical logic cannot exhaust the human domain; they can only expand it.”*
+
+# If they want to embrace progress, American academic institutions should follow the Thiel Foundation’s example.
+
+In 2013, the Guatemalan Universidad Francisco Marroquín became the first university in the Americas to allow payments with the cryptocurrency *bitcoin*. This forward-facing move shows how some academic institutions are embracing progress more than others.
+
+Many American universities, on the other hand, would rather focus on reactionary measures that end up halting progress instead of enabling it.
+
+Harvard University, for example, has made several resolutions in recent years to combat climate change by distancing themselves from fossil fuels. But this is too focused on teaching students how to stop things instead of how to be innovative, look forward and come up with the solutions of the future.
+
+Other universities focus on nurturing their own reputation more than education. In the 20 years that Stephen Trachtenberg was president of George Washington State University, the price of tuition more than doubled from $27,000 to almost $60,000, with apparently no improvement of education standards and Trachtenberg claiming that a degree from the university serves instead as a “trophy.”
+
+Luckily, there are some institutions fighting against these trends. Named after founder and entrepreneur Peter Thiel, the Thiel Foundation awards the Thiel Fellowship, a $100,000 grant to encourage promising students in their early 20s or younger to quit college and pursue their own unique projects, with the aim of creating businesses and entrepreneurs rather than academics.
+
+It was led for its first five years by Danielle Strachman and Mike Gibson, who in 2015 together went on to found the 1517 Fund, a similar project that invests in Thiel Fellows and other young company founders.
+
+It’s named after the year that Martin Luther posted his 95 Theses on a church door in Wittenberg, Germany, which ignited the Reformation. In October 2017, the 1517 Fund posted their own “New 95.” These put forward the message that the education system wasn’t enabling scientific breakthroughs and progress, and should therefore be rebelled against.
+
+In 2013, the Thiel Fellowship was granted to Austin Russell for his company Luminar, which builds laser-radar chips vital for self-driving cars. In 2017, Toyota announced it would be purchasing chips from Luminar for its own cars.
+
+And in 2014, the fellowship was granted to Vitalik Buterin, a college dropout who attended the secret meeting in Monterey Bay mentioned in the previous blink, to help set up the blockchain platform Ethereum.
+
+This technology – blockchain – is set to change the world. But what exactly is it?
+
+# Bitcoin and blockchain technology mark a new era of online security.
+
+In October 2008, a mysterious character known as Satoshi Nakamoto revealed the first cryptocurrency: the bitcoin, which has since come to steadily change the world we live in.
+
+To understand bitcoin, we need to dive into an emerging online world that the author calls the *cryptocosm*.
+
+In the cryptocosm, personal data is decentralized from any universal and easily targetable central hub, and is instead held by every individual.
+
+Each user has two *keys* specific to their online account, one *public* and one *private*. Whenever you send a message to a user, it is encrypted using the public key, but in such a way that it can only be deciphered with the user’s private key, so only they could ever read it. When they encrypt a response, they use their private key again, leaving a unique digital signature that proves their identity securely without revealing any personal information.
+
+These signatures are integral to bitcoin and its *blockchain* technology.
+
+Roughly every ten minutes, a *block* is created, which logs all the information about the most recent activity of bitcoins. This includes the digital signatures relevant to every transaction of bitcoin. It also includes a time-stamp, showing exactly when the block was made.
+
+The time-stamp is created through *mining*. A new block can only be created once a complicated and time-consuming algorithmic problem has been solved by using the processing power of many computers from across the network. This is mining. When it’s complete and the problem is solved, a *proof of work* is generated, which time-stamps the block that’s just been built. And, as compensation for the mining, new bitcoins are generated.
+
+Since the time-stamp can only be created once the mining has really been done, it can’t be forged. And since creating it involves many computers, it is verified by multiple users. This makes the information in the block trustworthy and unhackable.
+
+Bitcoins get around. Every transfer and creation of one is registered in the next block created. All of these blocks are connected in a chronological chain which is unsurprisingly called a *blockchain*, and which is public. Each block has a unique fingerprint and leaves traces in all subsequent blocks, meaning anyone can trace a bitcoin’s trajectory all the way back to when it was first created.
+
+The fingerprints also make it near impossible to edit the information inside any one block, since you’d have to edit all the previous blocks as well. Meaning that the bitcoin ledger – the record of all its transactions – is almost completely unhackable, and every transaction is thus very secure.
+
+No wonder so many businesses are pouncing on the technology!
+
+# 
+
+*“Consider it a virtual domain where titans of finance can retreat to conduct their business out of the reach of governments.”*
+
+# Ethereum and Blockstack are successfully employing blockchain technology for their own ventures.
+
+In 2016, Australian computer scientist and businessman Craig Steven Wright came out claiming that he was the real Satoshi Nakamoto. Some believed him, but many remained skeptical.
+
+One of these skeptics argued that it would have been much easier for Wright to prove his identity by posting “Craig Wright is Satoshi Nakamoto” with Satoshi’s private key than to try to convince people in person instead. For this reason, it was considered unlikely that Wright was Satoshi Nakamoto.
+
+Who was this young skeptic calling out the supposed creator of bitcoin? None other than the college dropout we learned about earlier: 24-year-old Vitalik Buterin, founder of another important blockchain company: Ethereum.
+
+Ethereum launched in 2015 and is a blockchain app platform designed to securely handle and verify objects other than just cryptocurrencies, most notably *smart contracts*. With smart contracts, the parties involved in a transaction send their assets – be it shares, currency or anything else of value – via the blockchain. As long as all parties comply, the assets are then released and transferred on accordingly; otherwise, they’re just refunded.
+
+Just two years after Ethereum’s launch, it had enabled a wave of entrepreneurial creativity via these secure investment capabilities, sidestepping cumbersome regulations from the Securities and Exchange Commission that had slowed investment in recent years.
+
+It also has its own coin on the platform, *ether*, which in May 2018 had a market cap close to $60 billion – already almost half that of bitcoin! It’s too early to tell if Ethereum will outrun bitcoin, but the Greek-British blockchain scholar Andreas Antonopoulos says it might end up like a rivalry between a lion and a shark, where each dominates its own domain.
+
+But Ethereum isn’t the only other blockchain enterprise flourishing in the cryptocosm. The company Blockstack, led by computer scientist Muneeb Ali, is building an entirely new network for decentralized blockchain apps.
+
+Blockstack is both a browsable network and an open-source platform for app development using blockchain technology, allowing both developers and users an easy way into the secure world of blockchains. It’s built on just two key software structures – a *monolith*, a blockchain software underpinning everything, and a *metaverse*, a visible platform where users create, surf and share as they see fit.
+
+This is just one way that the blockchain is giving security and power back to individual users. But it’s not just software that’s standing up to Google’s dominance; there’s change brewing in the hardware sector as well.
+
+# Hardware manufacture is making a comeback, and is assisting a reimagining of outdated cloud technology.
+
+In computer science, *Moore’s Law* dictates that the cost-effectiveness of circuits doubles every two years, while its corollary, *Bell’s Law*, states that every ten years, a huge drop in the price of processing power causes the development of a brand new computer architecture. It happened when the PC replaced the huge mainframes of IBM in the 70s and 80s, then more recently with Google’s cloud. Are we due for another shift soon?
+
+In Silicon Valley, it seems to be arriving in a rebirth of hardware manufacturing. Though many Valley companies are no longer building the silicon chips that gave the area its name, some such as Nvidia and their chief scientist Bill Dally still are. However, they are moving in a different direction, away from fast but energy-demanding “hot” chips to cooler and more efficient ones, enabled by the cheaper circuitry now available.
+
+Dally has long championed the capabilities of graphics processors and their parallel processing systems, where multiple functions gently yet efficiently run at once, rather than having all data moving rapidly up and down a single information highway. He believes these types of processors could be crucial in emerging fields such as sensors for self-driving cars, where life and death depends on analyzing and interpreting many different objects and events simultaneously.
+
+Google and other information giants, meanwhile, are still stuck on the task of achieving cheaper and more powerful processing power to support their massive and growing centralized servers. In fact, it seems that they’re demanding more extra power than is actually feasible in the current technological landscape.
+
+But for technologies that do not use centralized clouds, there are exciting developments happening. One is the emergence of the company Golem, built on the Ethereum blockchain platform.
+
+Describing itself as an “Airbnb for computers,” Golem rents your computer processing power when you’re not using it and pools it all into one enormous virtual-supercomputer!
+
+This creates *huge* processing power, allowing users to perform normally expensive processes such as computer-graphics rendering for much cheaper, and without requiring the massive and expensive hubs of Siren Servers like Google’s. And individual storage and software is kept secure by use of blockchain technology.
+
+Such shifts in technology are improving security *and* capability. Is there anything that could really slow down the rise of the blockchain?
+
+# 
+
+*“Dispersing clouds, the sky is the limit.”*
+
+# A gold standard of wealth allows stable currency, but bitcoin's attempt to become an alternative is flawed.
+
+In the eighteenth century, the British physicist Isaac Newton established the *gold standard*. For almost 200 years, governments worldwide guaranteed their currencies against the value of gold, in a bid to ensure economic stability.
+
+Why gold? Well, for starters, it is the most resistant to corrosion of the precious metals, so you can be fairly sure it won’t disappear.
+
+And its value is predictable too, since its supply, through mining and excavation worldwide, increases gradually enough so as to have barely any effect on its worth. And while mining technology may improve, it’s essentially canceled out by the fact that new gold deposits are harder and harder to access.
+
+So it made for a useful standard – an unchanging touchstone against which to stabilize the volatile international economic elements of exchange rates and interest rates.
+
+But governments have since abandoned it, instead preferring to let the markets decide the value of currencies. In the wake of the 2008 financial crisis, Nakamoto promised to change this, hoping that bitcoin could become a new and improved gold standard.
+
+Along with the first bitcoin block, Nakamoto created a mining algorithm, which makes it harder and harder to solve the algorithmic problem required to create blocks and their corollary bitcoins.
+
+In this way, he hoped to offset the improvement of computer processing power, much like the increasing inaccessibility of gold deposits offsets technological advances. He also capped the total supply of bitcoins at 21 million, with the mineable amount being halved every year.
+
+With these caveats, Satoshi hoped to create a stable and predictable supply of bitcoins over time, thus allowing it to become a new gold standard.
+
+But, according to economics blogger Mike Kendall, bitcoin can’t become a standard because it’s already a token of exchange, and a volatile one at that. Because its supply is fixed, the only way it can react to changes in demand is by wild fluctuations in its value. And this has already happened: between 2017 and 2018, bitcoin’s value ranged from $1,183 to a peak of $19,401. With this in mind, how could bitcoin act as a predictable and stable standard?
+
+Satoshi may have made amazing technological advances in blockchain and cryptocurrencies, but his understanding of real-world economics may be flawed. It’s up to other cryptocurrencies to fix the remaining mistakes and continue to build the cryptocosm, thus paving a way out of the cluttered and extensive systems of Google.
+
+# Final summary
+
+The key message in these blinks:
+
+**Google has built a world where individual security comes second to the data storage of a centralized hub. But its dominance now seems to be reaching a tipping point. By working outside of the dominant and traditional systems, the cryptocosm along with the blockchain has laid the foundation for a completely new way of protecting individual data and conducting online business. It can potentially pull apart the cluttered and exhaustive systems of Google while enabling progress and technological change in many fields.**
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****Big Data *****by Viktor Mayer-Schönberger and Kenneth Cukier**
+
+*Big Data *provides an insightful look at why a change to “big data” is a major shift in how we collect, use and think about the data around us. It provides great explanations and examples of how individuals and companies already ahead of the curve are using the tools of big data to create value and profit. Casting an eye forward, the book also outlines the future implications for a big-data society in terms of the risks, opportunities and legal implications.
+
+
+Source: [Life After Google by George Gilder](https://www.blinkist.com/en/nc/daily/reader/life-after-google-en/)

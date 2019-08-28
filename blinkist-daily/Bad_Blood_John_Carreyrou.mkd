@@ -1,0 +1,268 @@
+![Bad Blood](https://images.blinkist.com/images/books/5b9410bb862c430007fdf65c/1_1/470.jpg)
+# Bad Blood
+*John Carreyrou*
+
+>Bad Blood (2018) is the harrowing inside story of a how a tech start-up rooted in Silicon Valley’s fake-it-till-you-make-it culture risked the lives of millions with a blood-testing device that proved too good to be true. Written by Pulitzer-winning journalist John Carreyrou, who broke the story and pursued it to its end, this is the account of Theranos and its wunderkind CEO Elizabeth Holmes’ meteoric rise and epic fall from grace.
+
+
+# What’s in it for me? Get the gory details of a blood-based scandal so outrageous it’d make a vampire blush.
+
+Silicon Valley start-ups aren’t known for soft-pedaling their products’ virtues. This Californian Mecca of braggadocio runs on inflated claims, white lies and an ingrained culture of faking-it-till-you-make-it.
+
+Things usually pan out one of two ways for these swaggering upstarts. Either the company makes it big and changes the world forever – think Google, Apple and Amazon – or it falls on its sword after tasting defeat in a cutthroat market.
+
+But sometimes things take a more bizarre turn.
+
+Enter Elizabeth Holmes, the charismatic, turtleneck-wearing wunderkind whose promise of a medical revolution had investors lining up to fund her brainchild: Theranos.
+
+If something sounds too good to be true, it usually is. Theranos’ Edison wasn’t an exception. A tiny, ultra-portable, cheap and quick blood-testing device capable of screening for 200 common conditions, it was hailed as a “miracle machine.”
+
+The only problem? It didn’t work. And that’s where this extraordinary tale of lies, subterfuge, deception and trickery starts getting really weird.
+
+In the blinks that follow, you’ll learn
+
+- why a company selling a device that didn’t work was valued at $9 billion;
+
+- how Theranos used statistics to mislead regulators, investors and customers;
+
+- how its policy of policing internal dissent ended in tragedy.
+
+
+# Elizabeth Holmes had a brilliant idea for a machine that could revolutionize medical diagnoses.
+
+Like many people, Elizabeth Holmes was scared of needles.
+
+It was this fear which gave her a great idea: a wearable patch which would test patients’ blood over the course of a day using microneedles.
+
+Build that, she thought, and you’d not only do away with the need for needles but you’d also have a device which could provide real-time information on bloodwork to assist ongoing diagnoses.
+
+By 2004, she was ready to start putting her idea into practice. She founded Theranos with Shaunak Roy, one of her peers at Stanford University.
+
+But there was a snag. The pair soon realized that microneedles wouldn’t be able to draw enough blood. That’s when the original idea started to take on a new shape.
+
+Their next idea was a credit-card-sized blood-testing machine which would draw a few drops of blood using a pinprick. That device could then be plugged into another, slightly larger gadget which would run diagnostic tests.
+
+The second, toaster-sized machine would perform chemical and conductivity tests to check for 240 common ailments. These ranged from vitamin D deficiency to herpes and HIV.
+
+It was a machine that promised to revolutionize healthcare – *if *it could be built. Medical diagnostic tools would suddenly be at the fingertips of millions of people.
+
+The duo started imagining a world in which everyone had a Theranos device in his or her home. Thousands of lives would be saved thanks to early diagnoses.
+
+The machine could monitor hormone levels and forward the information to healthcare professionals on an hourly or daily basis. Doctors could then advise patients to take extra pills or call an ambulance.
+
+Poor people would suddenly have access to cheap medical care. After all, the device would cut out the need for expensive doctors and nurses!
+
+A blood test would become something anyone could have done while they were out shopping for no more than ten or twenty dollars.
+
+The possibilities seemed endless.
+
+What would happen if, say, you dispatched the machines to war zones or set them up in field hospitals in the wake of natural disasters? You could even have one in the back of an army jeep.
+
+# There was just one problem: the machines were virtually impossible to build.
+
+Theranos got to work constructing this miracle machine, which they dubbed the Edison.
+
+But it soon ran into trouble.
+
+The idea of using a single pinprick was unworkable.
+
+That was a problem – after all, it was the Edison’s main selling point. But it proved impossible to screen for 240 ailments using such a tiny blood sample.
+
+The company’s engineers put in endless hours trying to design special microchambers which would move the blood around. But no matter how many workaround solutions they came up with, the machine just couldn’t test for more than 80 common illnesses.
+
+Then there was the question of accuracy. The blood being tested became ever more diluted during the screening process, casting doubt on the reliability of the results.
+
+These weren’t the only technical issues.
+
+The Edison was also temperature-sensitive. How would it perform in different geographical regions with wildly varying climates?
+
+The pipettes, meanwhile, had a tendency to become clogged up. Within a month, they were pretty much useless. That meant an engineer would have to be dispatched to clean them out.
+
+The machine was also having problems determining sodium and potassium levels. Red blood cells split apart when they’re extracted with a pinprick, making the results dubious at best.
+
+Alan Beams, Theranos’ lab director, was starting to have doubts.
+
+He persuaded the company’s management to shelve plans for an HIV test. The consequences of relying on an error-prone machine for such an important test didn’t bear thinking about.
+
+The problems kept piling up, but Theranos wasn’t devoting nearly enough resources to research and development (R&amp;D).
+
+Experts looking on from the sidelines became increasingly skeptical about the Edison.
+
+Timothy Hamill, the vice chairman of the University of California’s San Francisco-based Department of Laboratory Medicine, was especially critical.
+
+He went on the record to say that it was unlikely that you’d be able to run 240 separate tests on a single drop of blood even if you worked on a solution for a thousand years!
+
+The more charitable didn’t go quite that far, but they nonetheless maintained that Theranos needed another three years of R&amp;D before releasing their machines onto the market.
+
+# Holmes persisted, leveraging her charm and charisma to push ahead with her scheme.
+
+Elizabeth Holmes wasn’t fazed. In fact, she was too busy soaking up the buzz surrounding Theranos and her role as its charismatic boss to worry about technical hitches.
+
+She’d quickly built up a reputation as a kind of female Steve Jobs – an impression she cultivated by aping his fondness for black turtleneck sweaters and deepening her voice a bit when she spoke.
+
+She was a Silicon Valley wunderkind. Investors took note, and cash started pouring into the company.
+
+Holmes choose the ad agency TBWA\Chiat\Day to represent Theranos. This choice was also a homage to Jobs: the agency had previously worked for Apple.
+
+Carisa Bianchi and Patrick O’Neill, the CEO and executive creative director of the agency, were smitten with Elizabeth. They were also convinced that Theranos was the next big thing.
+
+When they looked at her, they saw an icon in the making – the first self-made billionaire businesswoman who earned her fortune making a machine that saved lives!
+
+The hype snowballed. By 2014, Theranos was valued at a cool $9 billion and had agreements to supply the Edison to global distribution heavyweights Safeway and Walgreens.
+
+Both multinationals were looking to expand their medical and wellness product ranges and regarded blood diagnosis as a major growth area for their business models.
+
+Safeway even invested $350 million to begin renovation of its stores to accommodate Theranos’ Edison in special on-site wellness clinics. Walgreens agreed to install a box in each of its 8,134 branches.
+
+Image and reality rarely align in Silicon Valley. Making outlandish claims about your company is simply par for the course if you want to attract investors.
+
+That’s all well and good when it comes to software start-ups, but it’s a slightly different matter when you’re talking about something as important as blood-testing.
+
+But Theranos plowed forward. It hired Larry Ellison, the mind behind billion-dollar tech firm Oracle, as an advisor and applied his model.
+
+That meant sending out buggy software and working on perfecting it later during beta-testing.
+
+As we’ll see in the following blinks, that was the first of many acts of deception that would later make Theranos notorious.
+
+# Theranos covered up the Edison’s flaws to get investors on board. 
+
+What would have happened if Theranos had spent more time and money on R&amp;D – could the company have revolutionized healthcare as its founders had believed it would?
+
+We’ll never know because Theranos was in such a rush to get its products to market.
+
+The pressure to release the Edison was overwhelming. Theranos started deceiving its investors as well as journalists and the Food and Drug Administration (FDA) about its devices.
+
+Holmes began making outrageous claims. The boxes, she suggested, could run 800 tests using just a single drop of blood. The test results would be ready in under 30 minutes, and the whole thing was entirely FDA-approved.
+
+This was a pack of lies. The vast majority of tests, for example, weren’t even carried out by the Edison!
+
+No wonder: on a good day, the boxes were capable of running around 20 of the 240 most important tests.
+
+So while it could perform an *immunoassay* – a test which checks for proteins using antibodies – the Edison wasn’t able to complete a hematology test to determine blood platelet and white blood cell counts. General chemistry tests were also a step too far for the machines.
+
+Customers arriving at the test centers could only have the pinprick test if they happened to want an immunoassay. Hematology and chemical tests were performed using the traditional method of extracting blood from a vein.
+
+The vial containing the customer’s blood was then express-couriered to a lab in Palo Alto where it was tested using machines produced by other manufacturers, notably Siemens.
+
+Theranos was fulfilling its promise, but the whole operation was highly disingenuous – after all, their unique selling point was the “magical” Edison!
+
+But the ruse fooled virtually everyone, including the regulators who assessed Theranos.
+
+They ran proficiency tests designed to determine the standard of a given lab’s blood-testing facilities. That included thyroid, vitamin D and PSA tests.
+
+So what did Theranos do? They secretly used third-party machines to do the tests, knowing full well that the regulators would assume they were using their own Edison.
+
+# The company systematically faked statistics to keep up its subterfuge.
+
+Theranos wasn’t just lying to its investors and customers. The company was also deceiving the entire medical establishment and press.
+
+By this point, team Theranos had become a past master at manipulating and cherry-picking data to polish its image.
+
+That meant that only the results of successful tests – often carried out in labs equipped with third-party machinery – were forwarded to interested parties.
+
+Theranos also liked to boast that the efficiency of its Edison had been verified in peer-reviewed journals.
+
+That turned out to be a bogus claim.
+
+The only “peer-reviewed” article published about the device appeared in an obscure pay-to-publish Italian journal called *Hematology Reports*. The article’s data set was drawn from a mere six patients.
+
+The company also routinely claimed that its service was more accurate than conventional blood tests.
+
+When pressed to provide evidence for this bold assertion, Theranos argued that 93 percent of incorrect results in conventional blood-testing were the result of human error.
+
+That implied that its boxes must be more accurate. But the company left out one small detail: its own accuracy rates were far lower than those of its competitors!
+
+When regulators finally tested the Edison, they discovered that it was, on average, accurate in only 65 percent of cases. Some tests, like those for testosterone, failed an astonishing 87 percent of the time.
+
+But because most incorrect results are caused by human error, Theranos’ claim was *technically *true.
+
+So how did the company continue to attract investment given that their product was performing so poorly?
+
+Unsurprisingly, they lied some more. The demonstrations shown to angel investors were also fake.
+
+The levels of deception practiced here bordered on the surreal. In the early stages of product development, Theranos even used mock machines incapable of performing real blood tests.
+
+Blood could be seen percolating through the device before false readings popped up on the display.
+
+The investors were kept in the dark. When VIPs visited Palo Alto, a pinprick of their blood was put in the Edison for show. Once they’d left the room, however, the blood sample was quickly dispatched to a lab and processed in a Siemens machine!
+
+ 
+
+# 
+
+Theranos sold the Edison idea to Walgreens on the understanding that the box could perform 192 different blood tests. Over half of those tests required machinery in Palo Alto labs.
+
+# Theranos went to great lengths to dodge FDA inspections while pretending to be pro-FDA campaigners.
+
+By now, you might be wondering how Theranos managed to pull off its scam in such a carefully regulated market.
+
+The answer is simple: it went to extraordinary lengths to dodge FDA regulation.
+
+The key to Theranos’ ploy was to pretend that the Edison wasn’t a medical device at all.
+
+Because the results were forwarded to Palo Alto for analysis, it claimed, the device was simply a tool for sending information. That meant it wasn’t subject to FDA regulation.
+
+Theranos reluctantly changed its tack when Dr. Shoemaker, a lieutenant colonel in the US Army, insisted on having the boxes approved by the FDA before he would consider installing them in military field hospitals.
+
+The company promised that it’d conform to FDA standards but stalled just long enough for Shoemaker to retire. After that, the whole project was quietly dropped.
+
+By this stage, a new policy had been unofficially put in place – cherry-picking the tests that conformed to the FDA’s standards.
+
+The Edison produced solid results for HSV-1 and herpes tests, for example, so Theranos sought – and received – FDA approval for them.
+
+But the company didn’t leave it at that. In fact, it had the chutzpah to make a song and dance about this and claim it was actually a huge *advocate *of the FDA!
+
+Of course, the agency had only given its seal of approval to a couple of tests. But why let the truth get in the way of a good story?
+
+And it really was a good story, generating a huge amount of free publicity for Theranos.
+
+# The company protected their secrets by sacking dissenters and hiring drones.
+
+Not everyone at Theranos was happy with the company’s misinformation campaign.
+
+Discontent among employees was high, and the company had a huge staff turnover. Many of its workers simply resigned when they realized the extent of their employer’s dishonesty.
+
+That didn’t mean they could speak up though. Theranos protected its secrets by making workers sign confidentiality agreements, preventing the disgruntled from leaking compromising details to the press.
+
+But it couldn’t prevent a stream of resignations. The entire executive team as well as many others all walked away.
+
+Theranos did have a trick up its sleeve, however: it systematically hired Indian employees who were dependant on their work visas to remain in the United States.
+
+Recruiting staff from India was easy enough. Elizabeth’s boyfriend and second-in-command Sunny Balwani was Indian and had excellent connections in the country’s tech industry.
+
+Soon enough, Balwani was filling empty chairs with Indian workers. It was a cunning strategy. Because they were desperate to avoid losing their jobs and being deported, they were much more likely to keep quiet about the company’s many issues.
+
+Combined with the fact that they were often used to working in strict, hierarchical organizations, these workers were a perfect stopgap measure to keep the Theranos show on the road.
+
+But these policies soon resulted in tragedy.
+
+Ian Gibbons, a British biochemist who’d been tirelessly working on Theranos’ immunoassays for years, committed suicide in 2013.
+
+Earlier, he’d been demoted for questioning the company’s honesty regarding the machines it was using for tests.
+
+As a result of his objections, he was replaced by a junior scientist with far fewer qualifications but one key asset: he didn’t rock the boat like Gibbons.
+
+Theranos didn’t want to let their top scientist go, so they kept him on in a less senior position. Gibbons stuck to the company in the hope of helping to perfect the Edison.
+
+The demotion took its toll, however, and Gibbons increasingly turned to alcohol. Two months after Theranos’ decision, he ended his own life by taking acetaminophen with wine and destroying his liver.
+
+No one knows how many patients died as a result of Theranos’ reckless behavior. What we do know is that its Edison boxes were used *one million *times in Arizona alone before Walgreens pulled the plug on its collaboration with the company.
+
+Theranos was forced to repay the $4.65 billion it had received for carrying out blood tests in the state.
+
+# Final summary
+
+The key message in these blinks:
+
+**Elizabeth Holmes was the next big thing in Silicon Valley. Heralded as a female Steve Jobs, this charismatic, black-turtleneck-wearing wunderkind promised the world a medical revolution: a tiny, highly portable, cheap and quick blood-testing device capable of screening for over 200 conditions. But Theranos, the company she built on the back of this claim, turned out to be a house of cards. Once Theranos’ management realized that its “miracle machine” didn’t work, the team started lying and misleading investors, customers and regulatory authorities.**
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****What Money Can´t Buy *****by Michael J. Sandel**
+
+The blinks to *What Money Can't Buy* (2013) explain how market-driven thinking – like the introduction of incentives and making everything available for a price – has snuck into almost every sphere of our lives. This means we are often suddenly confronted by serious moral concerns when market morality manifests itself in an area where it doesn’t belong.
+
+
+Source: [Bad Blood by John Carreyrou](https://www.blinkist.com/en/nc/daily/reader/bad-blood-en/)

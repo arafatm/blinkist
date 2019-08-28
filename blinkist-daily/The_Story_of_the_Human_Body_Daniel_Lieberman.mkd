@@ -1,0 +1,358 @@
+![The Story of the Human Body](https://images.blinkist.com/images/books/5b2fea9eb238e10006f8a87d/1_1/470.jpg)
+# The Story of the Human Body
+*Daniel Lieberman*
+
+>The Story of the Human Body (2013) is a fascinating exploration of a story over a million years in the making: the evolution of the human body. Departing from the moment our ancestors first distinguished themselves from their hominid brethren, Daniel Lieberman traces the biological history of humans right down to our office-bound present.
+
+
+# What’s in it for me? Human history from hominids to Homo sapiens.
+
+Nature moves slowly. It measures time in millennia rather than centuries. The development of the human body is a story millions of years in the making.
+
+But social history and deep biological time stopped moving in tandem during the age of industrialization. Today, life is an embarrassment of riches. We eat too much and exercise too little.
+
+That’s created a mismatch between our prehistoric bodies and the modern world we inhabit. Obesity, diabetes and osteoporosis are on the rise in the wealthiest and most advanced nations.
+
+If we want to change that, Harvard-based paleoanthropologist Daniel Lieberman argues, we have to understand what the human body really is and where it came from. *The Story of the Human Body* helps us do just that.
+
+A far-ranging evolutionary history of *homo sapiens*, it charts the development of humanity from its origins in central Africa millions of years ago right down into our office-bound present.
+
+In these blinks, you’ll learn
+
+- how natural selection interacts with environmental changes;
+
+- why posture can shape the fortunes of an entire species;
+
+- why the birth of agriculture was both a blessing and a curse.
+
+
+# Evolution works according to the logic of natural selection and adaptation.
+
+Charles Darwin published *On the Origin of Species *in 1859. Between its covers was a theory that shook the world. Centuries of religious ideas about the history of humanity were turned on their head.
+
+So what does this famous book say?
+
+Let’s start with the fundamentals.
+
+According to Darwin, the driving force behind evolution is *natural selection*. This simply means that the best-adapted members of a particular species are “selected” by nature. Because of that, they survive and go on to reproduce.
+
+Natural selection can be broken down into three separate – but interlinked – components.
+
+First, there’s *variability*. By that Darwin meant that each individual organism is different from other members of the same species.
+
+Next comes *genetic heritability*. Every organism passes genetic traits on to its offspring.
+
+Then there’s *differential reproductive success*. That’s a mouthful, right? What it means is that different organisms will produce a different number of offspring that go on to reproduce in their turn.
+
+Natural selection is usually driven by *negative selection*.
+
+That’s when an organism has “negative” heritable traits. A good example in humans is the genetic disorder hemophilia. These traits lower chances of reproductive success.
+
+An organism with negative traits is less likely to produce offspring than competitors which don’t have them. That’s because, like humans with hemophilia, these organisms would be less likely to survive – if it weren’t for modern medicine!
+
+Negative selection, therefore, favors the status quo. It likes to leave things as they are. Organisms without significant new heritable traits come out on top.
+
+That’s essentially a biological process. But what about the environment?
+
+Well, when dramatic environmental changes occur, natural selection uses a different tool – *adaption*.
+
+This describes how an individual develops new heritable traits that help it adapt to new surroundings. These help both the original organism and its offspring thrive.
+
+A good example of a large-scale environmental change which triggers this kind of evolutionary adaptation is climate change.
+
+And that’s Darwin’s theory of evolution in a nutshell! In the following blinks, we’ll dig a bit deeper and explore how the history of the human body fits into all this.
+
+# Walking upright made humans what they are. It came with both costs and one big advantage.
+
+What sets us apart from the rest of the animal kingdom – is it, for example, our large brains or perhaps our unique opposable thumbs?
+
+Actually, it’s our posture!
+
+Our evolutionary path began the moment our ancestors stopped scrabbling around on all fours and started walking upright. That’s what made us the dominant species on earth.
+
+But change didn’t come cheap. Embracing our new two-footed existence meant forfeiting other abilities.
+
+Take chimpanzees. We share 98 percent of our genes with them. Two percent might sound like small change, but it makes a big difference. We’re weaker, slower and less agile than our jungle-dwelling relatives.
+
+A chimpanzee isn’t just twice as fast as a human, it can also lift objects twice as heavy as even the strongest man or woman could manage. That’s astonishing given how small it is compared to a human!
+
+So you can see that our evolutionary divergence from chimpanzees had some drawbacks. That said, there were some important advantages too.
+
+The first boon of walking upright was efficiency.
+
+As we just saw, adaptation occurs during periods of rapid environmental changes. That’s exactly what was happening when humans bid adieu to chimps. It was an age of intense climate change.
+
+Droughts had become increasingly common. Our ancestors had to cover even greater distances if they wanted to eat.
+
+Walking on two feet turned out to have distinct benefits. If a chimp walks upright, it ends up waddling from side to side because its legs are so far apart. That costs it a lot of energy. So it’s unsurprising that they just don’t travel very far – usually no more than two or three kilometers a day.
+
+The human torso, by contrast, is largely immobile when we walk. The energy a chimp burns while covering 3,000 meters sees a human through to around 12 kilometers!
+
+That made a huge difference during a drought. Because humans could walk so far, they were great at finding the food they needed to survive and reproduce.
+
+# Dietary changes brought us another step closer to becoming modern humans.
+
+Let’s stick with chimpanzees a little longer. The average chimp spends about half of its waking hours chewing. That’s partly because of the things they eat. Palm fruits, wild figs and grapes are all firm favorites. But they’re not like the fruits we see when we go grocery shopping. They’re much less sweet and a good deal more fibrous.
+
+That means eating is hard work. In fact, if a chimp wants to make sure it’s getting enough to eat, it has to consume about a kilogram of food every hour and spend the next two hours digesting!
+
+The next step in humans’ evolutionary journey after learning to walk upright was dietary change. In essence, our ancestors stopped spending so much time chewing fruit.
+
+The *Australopiths *led the way. These were early humans whose presence in Africa can be dated back to around four million years ago. The most famous Australopith is nicknamed Lucy. She lived in modern-day Ethiopia some 3.2 million years ago.
+
+Australopiths weren’t all that different from the chimps – with one exception. They were much less picky about what they ate.
+
+This allowed them to diversify their diet. Archaeological evidence like teeth and jaw fossils suggests that they favored tubers, plant stems and seeds.
+
+These early humans had another thing going for them. Their diet was based on foodstuffs chimpanzees tended to avoid.
+
+That was important in times of scarcity. Most animals have so-called “fallback foods.” These are readily available but less nutritious secondary foodstuffs which animals can resort to when they can’t find their favored foods. For chimps, that’s usually a mix of leaves, stems and herbs.
+
+Our australopith ancestors tended to live in woodlands with fewer fruit trees than the jungles preferred by chimps. This meant that shortages were more common. As a result, they had to resort to secondary foods more frequently than chimpanzees.
+
+And that, in turn, opened up a new avenue. In search of food, hungry Australopiths began digging in the earth. They found calorie-packed delicacies like roots, tubers and bulbs – all far more nutritious than fruits.
+
+And that brings us neatly on to our next topic – the importance not only of what we eat but also how we find it.
+
+# Our first recognizably human ancestors were hunter-gatherers.
+
+How far back in time would we have to travel to meet a recognizably human ancestor?
+
+Well, around 1.9 million years ago, *Homo erectus *walked the earth. This species of archaic humans spread rapidly across Africa and Eurasia. Its success was down to the lifestyle it invented. It was the first hunter-gatherer.
+
+So what’s hunting and gathering all about?
+
+Essentially, it’s based on four components: hunting for meat, gathering edible plants, processing food and cooperation.
+
+*Homo erectus *means “upright man.” That’s a fitting name since it was their posture that allowed them to live in this way. *Homo erectus* evolved a tall, slender body and long legs with thick bones. That minimized exposure to the sun and provided the ideal setup for long-distance treks.
+
+These early humans also evolved a greater number of sweat glands, which cooled the skin, and a long nose that humidified the air they breathed, making respiration easier on the lungs.
+
+These traits meant that it was possible to cover large distances in search of edible plants. They also made *Homo erectus* a powerful athlete. More specifically, he was a great long-distance runner – an important part of endurance hunting.
+
+Food processing was another part of these proto-humans’ success.
+
+It takes a chimpanzee up to 11 hours to chew its way through a mere kilo of monkey flesh. That’s a lot of time – more, in fact, than you can afford if you want to go hunting. *Homo erectus* came up with a smart solution. By using tools like sharp stones to cut the meat into smaller, bite-size pieces, he was able to free up more time for other tasks.
+
+Stone tools served another purpose too. They were great for pounding tubers and meat. That yielded even more calories since digestion was more efficient.
+
+The other defining feature of early humans was cooperation and the division of labor.
+
+A *Homo erectus* mother couldn’t have fed both herself and her children with a purely plant-based diet. But once males started hunting, there were extra calories available to supplement this meager ration.
+
+The division of labor completely set our ancestors apart from other apes. Chimpanzees simply don’t share their food. Early hunter-gatherers, by contrast, shared vital resources with both their mates and the community to which they belonged.
+
+# Many of the adaptations that define who we are occurred during the Ice Age.
+
+The hunter-gatherer lifestyle opened up new and better food sources for our early ancestors. That allowed them to spread far and wide from their original stomping grounds in Central Africa. Having gradually dispersed northward, they reached the Caucasus Mountains around 1.8 million years ago.
+
+Access to extra calories changed their bodies profoundly and humans developed larger brains. That was just as well. The Ice Age which had begun around 2.6 million years ago would be around for a while yet – in fact, it only ended 11,700 years ago! It was a tough time presenting plenty of conundrums. Extra gray cells didn’t go amiss.
+
+But large brains weren’t the only trait that came to define humans in this period. Our Ice Age ancestors were also shaped by slow growth and fatty bodies.
+
+Let’s start with the brains. How much larger did they become? Well, to get a sense of scale you need to bear in mind that chimpanzees already have unusually large brains – basically double what you’d expect in a mammal that size. By the end of the period, human brains were *three times larger *than those of chimps.
+
+We’ve already seen that learning to walk upright brought both advantages and disadvantages. The same applied to the development of the human brain. Because our ancestors had such large brains, they were slow to grow.
+
+That’s because brains don’t just require a huge amount of energy to run; they also take much longer to develop. A chimp’s brain takes just three years to reach maturity. A human infant, by contrast, won’t have a fully developed brain until its seventh year.
+
+And slow growth is also energy-intensive – in fact, a human requires almost twice as many calories as a chimpanzee to reach adulthood.
+
+Human brain size also accounts for our need to store fat.
+
+Brains need to be constantly fed with energy sources. Even short interruptions to the supply of blood sugar lasting just a minute or two can cause catastrophic damage to the brain.
+
+Storing surplus energy thus made a lot of sense. Human bodies became fatty to do precisely this.
+
+That, in turn, nudged us further toward to modern man. In the next blink, we’ll get to know *Homo sapiens*.
+
+# Homo sapiens outlived other species of humans thanks to its superior culture.
+
+Modern man, *Homo sapiens*, emerged in sub-Saharan Africa around 200,000 years ago. The species spread quickly. By around 30,000 years ago, modern humans were living on every continent.
+
+Humanity can trace its ancestry back to a very small group. The population of *Homo sapiens* from which we are descended as a species was made up of just 14,000 individuals. For non-Africans, that’s even smaller: they have just 3,000 common ancestors!
+
+So what sets modern humans apart from archaic humans?
+
+In a word, behavior.
+
+In fact, the anatomical differences between archaic humans and us are few and far between.
+
+Our brains are rounder, our faces might be smaller, *and* we have chins, but the evolutionary rationale of these changes isn’t clear.
+
+Then there is our vocal tract. It is superior to those of other species of human, which allows for much clearer vocalization than other humans or apes.
+
+But it’s behavior where the differences really start to count.
+
+Archaeological evidence from African sites dating back 70,000 years shows that *Homo sapiens *traded over long distances. That would only have been possible if the species had developed large and complex social networks.
+
+Then there’s culture. Sites in South Africa indicate that early *Homo sapiens* was practicing symbolic art – a trait virtually unknown in other species of human.
+
+Modern humans started to flourish around 50,000 years ago. That’s when the *Upper Paleolithic era *began. A new culture emerged and quickly spread through Africa and Eurasia.
+
+What set this era apart from previous periods of development was the use of tools.
+
+In earlier epochs, crafting tools from stone had been a laborious, difficult process. Upper Paleolithic toolmakers, however, worked out how to produce long, thin stone blades. That allowed them to create more versatile tools in a variety of specialized shapes.
+
+There were also dietary changes. Birds, seafood and small mammals were regular features on the menu of *Homo sapiens*. That made life a lot easier. Hunting big game was a dangerous and exhausting activity.
+
+All of these factors allowed our ancestors to outcompete their rivals in the *Homo* family, including our Neanderthal cousins.
+
+# The emergence of agriculture led to a population explosion but also brought famine and disease.
+
+The American ecologist Jared Diamond called agriculture the “worst mistake in the history of the human race.” Abandoning the hunter-gatherer lifestyle and settling down to farm the land wasn’t exactly an advantage for our ancestors. Agriculture is a backbreaking pursuit, and the diet of farmers was much worse than that of their free-ranging forefathers.
+
+So why did it catch on? Well, farming does have its upsides. Most importantly, it provides a growing population with a reliable source of sustenance.
+
+When the Ice Age came to an end around 11,700 years ago, the climate stabilized and became warmer. These were ideal conditions for farming, and it was around this time that our ancestors began to cultivate crops.
+
+Farming emerged independently in several locations across the world. Rice and millet were domesticated by agriculturalists in the major agricultural center of the Yangtze and Yellow River valleys in China around 9,000 years ago. The maize-growing cultures of Mesoamerica, the potato farmers of the Andes and the Africans south of the Sahara who grew sorghum, millet and rice were other pioneers.
+
+Agriculture was an answer to a pressing question. As the earth warmed up, the human population exploded. Cultivating crops was initially a way of supplementing the diets of groups of hunter-gatherers who now had extra mouths to feed.
+
+This created a feedback loop. Producing food surpluses meant that the population increased again. That, in turn, meant that farming became even more important for covering the food needs of early humans.
+
+Eventually, farming became all-consuming. Early agriculturists had continued to hunt. But a thousand years after the emergence of agriculture, hunting had largely been abandoned. Cattle, sheep, goats and pigs had all been domesticated and integrated into farming itself.
+
+Farming might provide a reliable source of calories, but it can also bring famine and disease in its wake.
+
+Many agriculturists relied on narrow diets of a few staples like wheat or corn. That’s a sure recipe for nutrient deficiencies and illnesses like scurvy, goiter and anemia.
+
+Over-reliance on a small number of crops also exposes farmers to famine and food shortages. Even when farmers squirrel away surpluses to tide them over in lean times, these can be quickly depleted by consecutive poor harvests or war. Horrific famines are the result.
+
+Because agricultural populations grow so quickly, diseases flourish among them. Leprosy, tuberculosis, influenza, smallpox, plague and other diseases were unknown to hunter-gatherers, but they thrived in the dense settlements of farmers.
+
+# 
+
+Height is a good measure of health. Before farming, humans were several centimeters taller than they were 300 years ago. Height only increased again after the eighteenth century.
+
+# The Industrial Revolution had a massive impact on human life.
+
+The Industrial Revolution was kickstarted by the invention of machines capable of mass-producing various goods. It first took root in eighteenth-century England. It’s been slowly spreading across the face of the earth ever since.
+
+Before the advent of the industrial age, the world’s population was around one billion. Now there are seven billion people on earth, most of them living in cities. The planet hasn’t been the same since.
+
+But the changes brought about by the Industrial Revolution weren’t all good. In fact, it was initially a source of unprecedented hardship.
+
+Industrialization meant that life became a struggle for most people. Pay was low, hours were long, and bosses were often outright tyrants. It wasn’t uncommon for workers to labor for 12 hours a day in extremely dangerous conditions. That applied to both adults and children.
+
+Things started to improve over the course of the nineteenth and twentieth centuries. The English Factories Act was passed in 1802. After that, it was illegal to employ children under 13 for more than eight hours a day. Adolescents under 18 weren’t allowed to work for more than 12 hours.
+
+Working conditions have improved a great deal in the developed world, but the developing world still lags behind. Chinese employees regularly work grueling 90-hour weeks.
+
+If the industrial age was initially a time of misery for many, it was also a period of great progress. Advances in medicine and sanitation began to improve human life radically.
+
+One of the most important discoveries was made by the French chemist Louis Pasteur. His breakthrough came after he was commissioned in 1865 by winemakers to stop their wines from turning into vinegar.
+
+Looking into the matter, he realized that airborne bacteria were ruining the wine. He also noticed that heating the beverage to 60° Celcius eliminated them. *Pasteurization*, a method of killing harmful microbes and bacteria in foodstuffs, was born.
+
+Pasteur’s discovery created a whole new field – microbiology. His work revolutionized our understanding of many harmful microbes. This paved the way for the development of vaccines for common infectious diseases like anthrax and rabies.
+
+But the French chemist wasn’t alone. There were hundreds more innovations. Modern toilets, penicillin and refrigeration, for example, improved the lives of millions around the world.
+
+It’s because of advances like these that we live longer, more comfortable lives today than ever before. But comfort isn’t an unqualified good. As we’ll see in the next blink, in many ways, we’ve made life too easy for ourselves. Mortality might be decreasing, but *morbidity* is on the rise.
+
+# Modern life is an embarrassment of riches, and our bodies are struggling to cope.
+
+The human body is the product of millions of years of slow evolution. But time has started moving too quickly for us since the Industrial Revolution. Our bodies are struggling to keep pace with the speed of social change.
+
+That’s given rise to so-called *mismatch diseases*. These are caused by the conflict between modern life and our prehistoric bodies.
+
+Obesity is one clear example of this problem. Today, around two-thirds of all adults in the developed world are overweight.
+
+Why?
+
+In a word, calories. Throughout the greater part of human history, we struggled to find enough calories to keep us going. In contemporary society the opposite is true.
+
+Consider sugar. Half a kilogram of sugar costs just a fifth of what it did a century ago. In fact, carbohydrate-based foods which are high in both sugar and starch are usually the cheapest things you can find on the supermarket shelf.
+
+That’s a problem because we evolved to crave these kinds of foodstuffs. They’re packed with glucose – a great source of energy when calories are in short supply. That’s just what you need if you’ve got a day of farming or hunting ahead of you.
+
+But glucose is also toxic when it’s consumed in large quantities. The body has to work overtime to reduce glucose levels. Most of it ends up being stored as fat.
+
+Easily absorbed carbohydrates are also tough on the body. The best thing it can think to do with them is to store them as visceral fat – a gel-like fat that accumulates around major organs.
+
+And that’s the cause of several mismatch diseases.
+
+Visceral fat cells are more active metabolically than other kinds of cells. They both store and release energy more readily.
+
+But when they release fatty acid – and that’s something they frequently do – it heads straight for the liver. Once it begins building up there, it starts damaging the organ’s ability to regulate blood glucose. The result is “fatty liver,” a key indicator of metabolic disease.
+
+This can lead to type 2 diabetes. In fact, there was a seven-fold increase of cases of this disease between 1975 and 2005. Other risks include heart disease and atherosclerosis.
+
+But overabundance which defines modern life isn’t the only cause of illness. Another contributor, as we’ll see in the next blink, is a simple lack of exercise.
+
+# Our health can suffer when we don’t use our bodies to do the things for which they were designed.
+
+When astronauts return from space, they must be carried to keep their leg bones from snapping under the strain of walking. That’s an extreme example of an everyday truth: if we don’t use something enough, we start losing our ability to use it all.
+
+Physical exercise is incredibly important for this reason.
+
+Every time we move, our bones are slightly deformed. That generates a signal in our brains which informs our bodies about what needs repairing. The end result is that our bones regrow and become thicker and stronger than before.
+
+That’s especially true during childhood. If children don’t get enough exercise, their bones aren’t stressed enough. That means that they won’t develop as they should and will remain fragile for life.
+
+But physical activity is vital regardless of age. If adults skimp on movement, they’re at risk of developing conditions like osteoporosis, a disease in which bones begin wasting away and become extremely brittle. Spongy bones such as the vertebrae and knees are especially vulnerable to this.
+
+Aging plays a role in this. As we grow older, our rate of bone repair slows down. Osteoporosis is the result of this repair process grinding to a halt.
+
+Lack of exercise, as well as vitamin D and calcium deficiency, all heighten the risks. That makes it a typical mismatch disease.
+
+Another health issue which can be traced back to inadequate exercise is the common problem of having to have wisdom teeth removed.
+
+Both the jaw and face need to be stressed in order to develop properly. That wasn’t a problem for early humans because of their diets. As we saw earlier, they ate high-fiber foods that required lengthy chewing.
+
+But the food modern *Homo sapiens* consumes is an entirely different ballgame. Highly processed food is everywhere. And that means our jaws are often not given the workout they need to develop properly. In the end, they’re just not big enough to accommodate all our teeth.
+
+There’s also good evidence that that’s is a recent problem. Australian Aborigines who grew up eating a Western diet developed smaller jaws and suffered tooth-crowding problems. Their elders who grew up with a traditional diet, by contrast, were less likely to develop these issues.
+
+# Education and medicine can’t prevent mismatch diseases, but we can change our environment.
+
+Modern society has created environments which just don’t suit our bodies. Because we’re mismatched with the world around us, we develop mismatch diseases like type 2 diabetes and osteoporosis.
+
+So it’s hardly surprising that around 20 percent of the GDP of the United States is spent on healthcare. But offense is better than defense. Around 70 percent of all illnesses could be prevented if we all exercised more regularly and ate more healthily.
+
+Take a carefully controlled study carried out in 1995. It showed that helping unfit Americans get in shape cut the rate of cardiovascular disease in half!
+
+If a similar program were rolled out across the country, it would work miracles. Making sure all Americans were getting enough physical activity, eating well and not smoking would save an estimated* $58 billion* on treating heart disease alone.
+
+But there’s a catch: changing people’s habits is difficult.
+
+Another study found that participants only increased their total amount of moderate exercise by a mere 8 percent after a 15-week health course. And vigorous activity declined.
+
+The results weren’t good when it came to healthy eating either. Participants ate just 4 percent more fruits and vegetables and 8 to 11 percent more whole grains.
+
+Modern medicine can work wonders. But it’s not very effective at preventing mismatch diseases. That’s because the biological causes are difficult to pin down and risky to treat.
+
+So what should we do?
+
+Changing our environment might be the best option for curing mismatch diseases.
+
+Government can play its part. Regulating junk food ads and banning soda from schools might encourage people to live more healthily. Another possibility would be to ban marketing that claims foods are “fat-free” when all that’s been done is to substitute sugar for the fat.
+
+And then there’s the living environment. Constructing buildings that encourage people to take the stairs rather than elevators would nudge people toward integrating exercise into their daily lives.
+
+But whatever course we end up pursuing, one thing’s clear: changing the world around us so that it suits our bodies will help us live healthier, happier lives.
+
+# Final summary
+
+The key message in these blinks:
+
+**The human body has been a million years in the making – literally. But the world doesn’t move as slowly as it used to. Since the advent of the industrial age, our prehistoric bodies are increasingly mismatched with the environment around us. That’s bad for our health. If we want to lead better lives, we have to start listening to our bodies and use them to do the things for which nature designed them.**
+
+Actionable advice:
+
+**Try running barefoot.**
+
+Humans are designed by nature to be great long-distance runners. Modern running shoes feel great, but they can contribute to injuries. That’s because they desensitize the nerves in our feet that alert our bodies to potential damage. So why not try running barefoot? That encourages you to land on the spring-like balls of your feet rather than the heel. It’s a great way to absorb the force of impacts which can damage your legs and spine over time.
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****Your Inner Fish *****by Neil Shubin**
+
+Drawing on findings from paleontology, genetics and developmental biology, *Your* *Inner* *Fish* describes the evolutionary history of the human body, tracing it back to the fish. The author shows how studying fossils, genes and embryonic development can help us understand our complex evolutionary past.
+
+
+Source: [The Story of the Human Body by Daniel Lieberman](https://www.blinkist.com/en/nc/daily/reader/the-story-of-the-human-body-en/)

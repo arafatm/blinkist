@@ -1,0 +1,168 @@
+![First They Killed My Father](https://images.blinkist.com/images/books/5b2ff607b238e10006f8a88f/1_1/470.jpg)
+# First They Killed My Father
+*Loung Ung*
+
+>First They Killed My Father (2006) is Loung Ung’s memoir of her childhood experiences living under the brutal Khmer Rouge regime in Cambodia during the 1970s. She begins her story as the Khmer Rouge take power, forcing her family to flee the country’s capital, Phnom Penh, only to find themselves living as slave laborers, in constant fear that they would be personally targeted by the regime.
+
+
+# What’s in it for me? Get a firsthand insight into one of humanity’s darkest chapters.
+
+The genocide perpetrated by the Khmer Rouge in Cambodia between 1975 and 1979 is almost unfathomable. It was carried out so quickly and on such a scale that estimates of the number of victims vary widely; we may never know the full extent of these crimes. Statistics and secondary sources will never truly convey the horror of what it meant to confront this sudden, brutal reality.
+
+Much like Anne Frank’s diary, Loung Ung’s *First They Killed My Father*, gives a personal account of what it was like as a child to be faced with a regime that sought to systematically exterminate large portions of its citizens.
+
+Ung’s is a story of resilience that will truly inspire you. Her perspective as a refugee in the United States has allowed her to reflect on and process what she has been through. Hers is a story, above all, about the strength of family bonds.
+
+In these blinks, you’ll learn
+
+- under which supposed ideals the Khmer Rouge sought to remodel Cambodian society;
+
+- which car brand was prized by Cambodian elites prior to the Khmer Rouge regime; and
+
+- how Ung’s family avoided starvation, through her brother’s sacrifice.
+
+
+# Loung Ung's privileged childhood in Cambodia came to a sudden end when the Khmer Rouge entered the city.
+
+For Loung Ung, the day that forever changed her life began like any other. The year was 1975, and she was five years old.
+
+She was playing with her friends on the balcony of her family’s apartment. There was nothing out of the ordinary to speak of – but by the end of the afternoon, her old life would be but a distant memory.
+
+Her middle-class family lived in Phnom Penh, Cambodia’s capital city. Her father was a high-ranking military official and, as a result, the family could live in comparative luxury, several stories up in a modern apartment block.
+
+In contrast, Phnom Penh’s poor lived without modern conveniences in makeshift tents.
+
+The author and her siblings were fortunate. Not only did they have the luxury of going to school six days a week, they also went to the cinema, ate out and regularly went shopping. Her father even drove a fancy Mazda sports car, a symbol of wealth and status that few in Cambodia at that time could afford.
+
+But on that April day, from her family’s balcony, Ung saw a swarm of soldiers marching into the city.
+
+Her father later told her that they were the Khmer Rouge. This Communist rebel army had been fighting a civil war against Cambodia’s incumbent, democratic government – and the rebels had just won. The Khmer Rouge’s form of communism demanded that Cambodian citizens should all live simple, peasant lives off the land.
+
+The soldiers were equipped with megaphones. As they marched through the city, they hollered at people to leave its confines, or else they would be shot down.
+
+When she went back inside the apartment, Ung witnessed her family throwing their possessions into suitcases. Within a few hours, she, her parents, her two sisters and her three brothers left their family home, never to return.
+
+They piled into an old truck and made their way out of the city. They weren’t alone; tens of thousands of other city dwellers were also fleeing.
+
+# Ung’s family hid their true identities to protect themselves from persecution.
+
+Before escaping Phnom Penh, Ung’s family had led comfortable lives, as befitted their high social status. But their world was turned upside down the moment they left the city. Under the new Khmer Rouge regime, they were now seen as the lowest of the low, de facto enemies of the state.
+
+If the family was to stand any chance of surviving, Ung’s father had to keep their identities a secret from the regime.
+
+A few days after fleeing their home, the family arrived at a Khmer Rouge checkpoint. There, soldiers were tasked with asking civilians fleeing the city of their previous occupations. Anyone who admitted they had been connected with the overthrown government was escorted away. Ung believes that these people were all murdered soon thereafter.
+
+Her father, as a military official for the previous government, knew he and his family were at risk – so he lied and said that he was a peasant farmer. Then it was her mother’s turn. She said she sold clothes at a local market. While they were allowed to pass, it was just the beginning of the deceit. From now on, they would always have to conceal their true selves.
+
+Her family wasn’t just a target for the Khmer Rouge because of her father’s former job.
+
+The Khmer Rouge claimed they were building a socialist agrarian society. Supposedly everyone would be equal and all Cambodians would live simple, rustic lives as peasant farmers.
+
+Unfortunately, the Khmer Rouge’s egalitarian ideals were subjectively applied; egalitarianism didn’t extend to everyone. The regime persecuted anyone who wasn't ethnically Cambodian, as well as former city dwellers, so Ung’s family had three reasons to fear persecution. Not only had her father worked for the previous government, but they’d also lived in the city, and her mother was Chinese-Cambodian.
+
+It was surely a matter of when and not if their identities would be discovered.
+
+# Ung’s family began living as slave-laborers under the Khmer Rouge’s brutal regime.
+
+The Khmer Rouge made radical new changes to the structure of Cambodian society. Consequently, the author’s family was ordered to restart their lives as peasant farmers in a remote rural village. Approximately 300 others began working in the same village at the same time.
+
+It was the start of a nightmare that seemed impossible to escape.
+
+In order to establish a new agrarian society, the Khmer Rouge emptied the cities and instructed those inhabitants to live and work in rural villages. They were there to be taken advantage of by their new hosts.
+
+New arrivals to the countryside were subjected to back-breaking labor seven days a week. From dawn until dusk, Ung’s family were hard at work, planting rice, constructing dams and digging trenches.
+
+It made no difference how hard they worked, there was never enough food to go round. Within five months, two-thirds of the new arrivals to the village had either starved to death or been struck down by fatal illnesses.
+
+To make matters worse, the new regime also divided the country into three distinct social classes. The first class was made up of Khmer Rouge officials and its military; the second class comprised those who had lived in the countryside for all their lives; and finally, the third and lowest class included everyone who had been associated in any way with the old government, as well as anyone who'd had any formal education or who came from a city.
+
+This meant doctors, teachers and nurses were now all labeled as third-class citizens – and among their numbers were Ung and her family.
+
+There’s no other way of putting it: life for third-class citizens under the cruel regime was utterly horrific.
+
+Ung herself was witness to this. She saw many of her fellow recent arrivals to her new village starve to death, since third-class citizens were not given enough food to survive. In fact, her family only avoided starvation themselves because her 11-year-old brother Kim managed to wrangle a servant job in the village chief’s household.
+
+Kim put up with the beatings the chief’s children gave him every day for their own entertainment. After all, he knew that at the end of it all he would be permitted to take home leftover scraps from the chief’s family’s dinner.
+
+# Ung’s older sister was the first of the family to be seized by the Khmer Rouge.
+
+Life in the new rural village plumbed the depths of horror, but at least the family still had each other.
+
+Though, they no longer laughed or joked around together anymore; they didn’t even dare to talk much. There was too great a risk that they would be overheard and reported by their neighbors for criticizing the Khmer Rouge.
+
+However, even this brief time of solace together was to be short-lived. Within a few months of being in the village, their tightly knit family unit was torn apart.
+
+One day, Khmer Rouge soldiers arrived. They told the villagers that the Vietnamese had invaded Cambodia, and it was therefore necessary that the regime take every teenage boy and girl away from their families. They would be enlisted in work camps and forced to contribute to the war effort against the Vietnamese.  
+
+Ung and her family could do nothing but watch as 14-year-old Keav, her older sister, was abducted the next morning. As she left, Keav turned to her father. She told him there was no need to fear because she would survive.
+
+All the family could do was pray that Keav would be proved right. But sadly, that morning was the last time Ung would see her sister.
+
+Keav was sent to a labor camp with around 160 other teenagers. The girls were forced to work just as hard as the boys, though they were given less food. After about six months of living in these filthy conditions, Keav came down with dysentery. She was sent to the camp’s “hospital,” although it shouldn’t have been dignified with that name.
+
+Keav was told that she would be tended to by doctors and nurses there – but this was a lie. The regime had systematically murdered all of the country’s actual medics and hospital staff. There wasn’t even any medicine to go around.
+
+The regime had merely brought in ordinary people to pretend they were health professionals. Keav was left to lie in her own feces, and within a few days she was dead, her family far far away.
+
+# The family’s worst nightmare was realized when the regime learned of her parents’ true identities.
+
+Keav was the first member of her family that Ung lost, but she was not to be the last.
+
+Her father had managed to protect his family so far by telling the authorities that he was just a poor farmer. But somehow, somewhere, the truth had come out. One evening, in December 1976, two soldiers showed up at the entrance of the family's hut. They were there to take her father away.
+
+This was the last time Ung ever saw him. Most likely, like so many other denounced associates of the former regime, he was taken to the edge of a mass grave and struck down with a hammer.
+
+While it would be small comfort, Ung hopes that her father was dead before he was pushed into the grave. But there’s no way to be sure. Many people were only knocked partially unconscious by the hammer, before being buried alive, suffocated by the corpses and still partially living bodies piled on top of them.
+
+The next fear, of course, was that the rest of the family would suffer the same fate as her father. Her mother was especially terrified.
+
+After all, the Khmer Rouge had declared that they would also kill the families of those who had been declared traitors. They didn’t want to risk that these supposed traitors' children would grow up and seek vengeance for their parents’ death.
+
+Out of sheer desperation, Ung’s mother implored her children to leave the village. Each was to travel in a different direction until they found other places where they could live. If anyone asked them any questions, she told them, the children were to say that they were orphans.
+
+Her reasoning was that if the family split up, the regime would be much less able to find and execute them all. Ung along with her brother and sister did as they were told and left the village. However, their mother stayed there, along with her youngest daughter, Geak, who, at only four years old, was too young to head off on her own.
+
+And that was it – what remnants there had been of family life had now dissipated forever.
+
+# 
+
+The author was just seven years old when she said goodbye to her mother.
+
+# Thanks to her mother’s difficult decision, Ung survived the Khmer Rouge’s genocide.
+
+There’s no doubt that the decision Ung’s mother made was the hardest of her life; it is no easy task for a mother to send her young children out into the world alone. But this decision ultimately saved their lives.
+
+In fact, as it later turned out, if they had remained with their mother, they would most certainly have perished.
+
+After fleeing her village, Ung found somewhere she could stay: a work camp for orphaned children. One morning, around one year later, she woke, shaking with fear.
+
+She was able to get permission to leave the camp for the day. She returned to her old village, running as fast as she could manage. Her premonition was proved right: the worst had happened.
+
+The villagers told her that her baby sister and mother had been abducted by soldiers just the day before. Ung never found out exactly what became of the two, but she believes they must have suffered the same fate as so many others. They, too, would have been shot by the regime and had their bodies thrown in a mass grave.
+
+To compound the horror of what had happened, Ung found herself tormented by the question of which of the two had been killed first, her mother or her sister.
+
+Thankfully, the days of the Khmer Rouge’s brutal regime were numbered. And thanks to her mother’s sacrifice, Ung and her remaining siblings were able to see them out.
+
+After four years, Vietnamese soldiers were able to liberate much of Cambodia. The regime’s grip slackened, and the mass executions of civilians ceased.
+
+In 1979, the author’s eldest brother, Meng, managed to gather enough money for himself and just one of his other siblings to secure passage to the United States, where they would be able to start a new life. As his companion, he chose Ung, his youngest surviving sibling. His logic was both sound and generous: she was young enough to still go to school and be educated. With those benefits that had previously been denied to her, she really would have the chance to start over again.
+
+So it was in 1980 that Ung arrived in the United States. She remains a survivor of one of the world’s most horrific genocides – but at least the future is hers.
+
+# Final summary
+
+The key message in these blinks:
+
+**The Khmer Rouge was a genocidal regime that was responsible for tearing apart families and murdering innocent men, women and children. During their reign of terror, many Cambodians starved to death, died prematurely from disease or were executed in cold blood, using the most brutal methods. However, even as the Khmer Rouge destroyed families, the familial bonds between Loung Ung and her siblings could never be destroyed.**
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****A Long Way Gone *****by Ishmael Beah**
+
+*A Long Way Gone *(2007) is a story of how, as a young boy in Sierra Leone, the author found himself caught in a civil war and recruited as a child soldier. You’ll travel alongside during his harrowing journey, eventual rescue and recovery guided through the kindness and grace of loving people.
+
+
+Source: [First They Killed My Father by Loung Ung](https://www.blinkist.com/en/nc/daily/reader/first-they-killed-my-father-en/)

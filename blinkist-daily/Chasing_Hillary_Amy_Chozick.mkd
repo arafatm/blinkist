@@ -1,0 +1,260 @@
+![Chasing Hillary](https://images.blinkist.com/images/books/5b61a4f1b238e1000734ccc5/1_1/470.jpg)
+# Chasing Hillary
+*Amy Chozick*
+
+>Chasing Hillary (2018) details journalist Amy Chozick’s deeply personal experience at the New York Times reporting on Hillary Clinton. The book follows not just Clinton’s campaign during the 2016 US presidential election but also her battle with Senator Bernie Sanders in the Democratic Party primaries. It delves deep into the Clinton psyche, looking back to the times before she even considered running for high office.
+
+
+# What’s in it for me? Get the inside story on Hillary Clinton’s failed bid to become US President.
+
+Hillary Clinton began the race for the 2016 United States presidential election as the strongest candidate in the field. She’d been First Lady of the United States when her husband Bill was president; she’d been a Senator for the State of New York; she narrowly lost the Democratic nomination for the 2008 presidential campaign to Barack Obama, but then went on to serve as his secretary of state after he was elected.
+
+She had name recognition and a wealth of experience. There seemed to be no Democratic challenger on the horizon, and the bloated Republican field was little more than a joke. Even a reality TV presenter and failed businessman who’d filed for bankruptcy six times was trying to get the Republican nomination.
+
+But she lost it. And as far as the *New York Times*’ designated Clinton election reporter, Amy Chozick, is concerned, she lost it because she just couldn’t get her message out. Her recalcitrance and distrust of the press meant that Clinton’s deeper talents – the ones that could have swayed the electorate – just didn’t get aired.
+
+Amy Chozick’s account is personal, but that’s no reason to dismiss it. She was there with Clinton from the start, through the primaries and caucuses right up to election night itself. If there’s one person you can trust for the inside story, it’s Chozick.
+
+In these blinks, you’ll learn
+
+- how Hillary Clinton unmasked racist segregationists in the US South;
+
+- which of the US states Clinton joked should be given to the Chinese; and
+
+- Clinton’s favorite scripture to quote.
+
+
+# Amy Chozick thought she’d landed the dream journalism job following Hillary Clinton.
+
+In 2013, Amy Chozick took the momentous decision to have her eggs frozen. She knew she was in for a busy few years, and it was clear that children couldn’t be a consideration until 2016 at the earliest. In 2011, she’d been gifted her dream assignment at the *New York Times*: she was to focus on Hillary Clinton and the Clinton family and write stories about them for the paper.
+
+By 2013 there were already rumors circulating that Clinton would once again attempt to run as a candidate in the US presidential election, and the author’s job took on a whole new level of intensity. It was then that she realized children would not come into the picture anytime soon.
+
+The liberal press, including the *Times*, started putting together teams to follow what was sure to be a historic race for president.
+
+After all, at that point, Hillary Clinton held a 70-percent approval rating in the polls – her route to victory in 2016 seemed all but certain. Maybe she’d have to show her face at a few charity balls, but that was about it.
+
+Clinton was known on the liberal circuit for her numerous positive qualities. She fought to save the whales, combat malaria, increase literacy rates and support Jews against anti-Semitism. In particular, Clinton's strong Methodist faith was known to guide her.
+
+The author was thrilled to take the position but, unbeknownst to her at the time, her employer and Clinton didn’t exactly have the best relationship. She found out about this when she first tried to wrangle interviews with Hillary Clinton and was given the cold shoulder by Clinton’s press aides. It turned out the bad blood between the *Times* and the Clintons went back several decades.
+
+In fact, the Clintons had been distrustful of the *Times* since 1992. That year, reporter Jeff Gerth had written about the Clintons’ investing in property near the White River in Arkansas. The story sparked an investigation. It was rumored that the Clintons might have received financial help to buy the property, and it was even suggested that they had given out a few political favors in return.
+
+It became known in the media as the *Whitewater Scandal* – but, in the end, there was nothing to the rumors. Even so, there had been nothing but bad blood since then between the Clintons and the *Times*.
+
+# 
+
+Coincidentally, most of the reporters posted on the Clinton trail were women. For example, CNN had Brianna Keilar, Politico went with Maggie Haberman and NBC chose Monica Alba.
+
+# Chozick's stories peeved Clinton’s press team and their relationship grew strained.
+
+Soon after the author was assigned to follow Clinton, it became clear that all was not well; Clinton’s press aides essentially ignored her. However, the author wasn’t going to let that stop her doing her job. She was determined to keep filing stories. But even these, no matter how tepid, upset Clinton’s press team.
+
+The author published a story in the *New York Times Magazine* called Planet Hillary in January 2014. The graphic accompanying the article depicted Clinton’s face as a pale planet, surrounded by a galaxy of minions. It was all a bit tongue-in-cheek: those pictured around her included her closest advisors, her hardest workers, her husband’s and daughter’s entourages and her backstabbing friends.
+
+The piece was simply meant to show how many people were involved in Clinton’s campaign and the difficulties of having to juggle so many personalities. Unfortunately, all it did was get the backs up of almost everyone featured in it.
+
+After that, there seemed no way back into Clinton’s good books. Hillary Clinton’s press team – whom the author dubbed “the Guys” – now froze her out completely. She was only allowed one contact: Cheryl Mills, the Clintons’ lawyer. All questions and requests for interviews would have to go to her.
+
+For a special reporter working for one of the country’s biggest newspapers, it was utterly demeaning. If the author was going to be taken seriously as a journalist, at an absolute minimum she’d have to have contact with Hillary Clinton’s press aides. Luckily, after a few weeks, the Guys begrudgingly revised their position.
+
+But criticism of the author wasn’t just coming from inside the Clinton campaign. Outside supporters of Clinton claimed the author’s use of words like “insincere,” “inevitable” and “secretive” to describe Clinton basically amounted to “coded sexism.” Ominously, the author was told that they were going to keep a close eye on her.
+
+# Clinton’s use of a private email server for state matters became a matter of obsession for the press.
+
+On March 4, 2015, at 11:35 p.m., Hillary Clinton tweeted that the public would have access to her emails, and they were being prepared for redacted release.
+
+Within minutes, this message was retweeted thousands of times. It was huge news, and it was an attempt on Clinton’s part to put an end to a story that had refused to die.
+
+So what had actually happened? The author has her own take on the email scandal.
+
+A few days earlier, under relentless pressure, Clinton had finally admitted she’d done wrong. As secretary of state, she had been using a private email server to send emails about official state business.
+
+A hacker had revealed what Clinton had been doing in 2013, but it wasn’t clear at the time if Clinton had actually done anything wrong. It was only after the emails had been carefully analyzed that Clinton’s error of judgment was revealed for the mistake it was. Consequently, the *Times* published a major article on what happened.
+
+Now, there was no way Clinton could avoid addressing the issue.
+
+At a brief press conference at UN headquarters in New York on March 10, Clinton explained that she used her personal email account for convenience. She even claimed she’d done it with the agreement of the State Department, so she could avoid carrying two devices around.
+
+Clinton also admitted at the conference that she’d deleted emails stored on her private server, but only ones relating to her family and her leisure schedule. The idea behind the conference was to essentially reveal the whole affair for the nonstory that many people believed it to be.
+
+But it had the opposite effect. The media, including the *Times*, went into overdrive. They became obsessed with Clinton’s emails.
+
+In fact, the author immediately began working on a story entitled “What about your emails?”. She wanted to bring attention to the fact that Clinton had deleted around half of the emails she had sent during her tenure as secretary of state.
+
+Inevitably, Clinton fumed when she saw the author’s story. She even went so far as to claim that the *Times* was treating the email scandal as though it was akin to the Japanese attack on Pearl Harbor.
+
+The pressure mounted. Clinton had not deleted all of her emails, and as the pressure rose, she decided to disclose the remaining ones to the public.
+
+However, the damage was done – Clinton was no longer trusted. The fact that the confession of wrongdoing came in dribs and drabs, always made it seem like there was more to come. Had she, for example, leaked information to Americans without security clearance or to foreigners? Had she deleted proof?
+
+Even though there were many months left in the campaign, the email “scandal” refused to go away.
+
+# 
+
+*“I never agreed with Hillary that her email server was a nonstory, but I would regret that it became the only story.”*
+
+# Hillary Clinton has a funny, silly side, but the campaign subdued that side of her.
+
+One thing that Clinton often doesn’t get credit for is her sense of humor.
+
+When she was asked once more about her email at the end of summer 2015, Clinton was ready with a quip in hand. She joked that she had just registered for a Snapchat account, the social media service best known for automatically deleting messages and pictures once they’ve been read by the recipient.
+
+She had form in that department. At private gatherings, Clinton’s dry wit was known to sparkle, and she felt just as much at ease at fundraisers and cocktail parties with Wall Street bankers.
+
+For instance, when she met Goldman Sachs CEO Lloyd Blankfein, she began talking about a debate she’d had with a Chinese diplomat. She'd criticized China’s push to control the South China Sea and noted that China was no more entitled to it than the United States was to the Pacific Ocean.
+
+Blankfein saw a chance to malign New Jersey, one of the least popular states of the Union. The Chinese were welcome to it, he joked.
+
+Clinton came right back at him: no, no, the Americans should give the Chinese a red state.
+
+A Republican red state for the Communist reds! This kind of acerbic, highly specific and contextual “you-had-to-be-there” wit doesn’t tend to translate well, either on repetition or to larger and more grounded audiences.
+
+But that didn’t stop her trying, though. For instance, for a few brief weeks during the campaign, the mobile app Pokémon Go was a huge international fad. Clinton’s charming response to this was to urge a Virginia crowd to teach their children to Pokémon GO TO THE POLLS. There are better puns, but at least it was endearing.
+
+Sadly, however, during the 2016 election campaign, this fun side to Clinton began to ebb away.
+
+For starters, that Snapchat joke was grist to the mill for the Republicans and her enemies – they just laid in deeper. Before too long, Clinton became cautious and stopped saying anything fun or extempore. Consequently, it got pretty boring for the journalists on the campaign trail.
+
+In fact, it got so tedious that they started to count the number of times Clinton nodded her head during political discussions. These nods even started to get reported on. The low point was perhaps a *Times* article that counted Hillary’s 43 nods per minute during a televised talk on community banking.
+
+# Hillary Clinton’s campaign faced more competition than expected from Bernie Sanders's powerful speeches.
+
+While many people expected Clinton to cruise to eventual victory in the presidential election, she still had to secure the official endorsement from the Democratic Party. It was supposed to be a mere technicality – but everyone was in for a surprise. Senator Bernie Sanders was determined to give Clinton a run for her money and, crucially, his campaign seemed a lot more fun.
+
+Journalists on the Bernie Bus were exuberant and said it felt like they were witnessing a revolution. In contrast, the author and 20 other journalists on Clinton’s bus felt they were stuck in an interminable funeral cortege.
+
+Sanders’s lively speeches were renowned, and he regularly filled auditoriums with thousands of youngsters. Clinton paled in comparison: Her crowds barely hit 500 and, even then, most of the attendees were over 60 years old.
+
+And as for the speeches themselves, they were just boring and weak. Even the jokes that landed couldn’t disguise that.
+
+In Clinton County, Iowa, she droned on about DeWitt Clinton, a New York governor who'd given his name to the place. Her encomium turned into a nineteenth-century history lecture that no one cared about.
+
+Apparently, DeWitt Clinton had applied himself to building the Erie Canal in the early 1800s. The canal meant that Lake Erie was now connected with New York State, thus allowing for greater commerce in the rural states of Iowa, Michigan and Ohio. But in the United States, in 2016, and with so much more to worry about, who really cared about this long-dead businessman?
+
+It was not what voters wanted to hear; they were there to learn what Clinton was going to do to improve their lives. As for Clinton’s honest but underwhelming catchphrases, the less said, the better. “I would rather underpromise and overdeliver” was forgotten almost the moment it came out of her mouth. It might have been refreshing to hear an honest politician, but such clunky phrasing was hardly going to enthuse the crowd.
+
+# Hillary Clinton was so bad with the press that she even scuttled some positive press stories.
+
+If you were following the 2016 presidential campaign, then what no doubt struck you was just how few positive stories there were about Hillary Clinton.
+
+But this wasn’t only the media’s fault. In fact, Clinton really shot herself in the foot on this one thanks to her general distrust of the media.
+
+To give just one example, the author spent several months preparing a story on Hillary Clinton's efforts to stop racial segregation in schools.
+
+Back in 1969, the Supreme Court ruled that public schools could no longer segregate black children and therefore discriminate against them. The ruling outraged many Americans, especially in the South. There, several hundred private schools suddenly popped up. As they fell outside of the public school system, white families could send their children to these schools and ensure they didn’t have to go near black children.
+
+Officially, of course, these schools couldn’t publicize their segregationist and racist policies, otherwise they’d lose tax-exempt status.
+
+But Clinton went undercover and smoked out the racists. In 1972, she pretended to be a housewife who wanted to enroll her son in a private school in Dothan, Alabama. She asked the principal questions about the school, and just like that, the truth came out, clear as day: no black children would ever set foot in the school.
+
+This story could have been political gold for Hillary Clinton, especially among the black community. But she refused to be interviewed on the subject. The reasons for her refusal remained unclear, but the author’s best guess was that Clinton's distrust of the press – and of the author in particular – must have played a role.
+
+Even though Clinton and her aides refused to be interviewed or supply quotations, the author wrote her article on Dothan anyway.
+
+Despite the cold shoulder, it soon became clear that someone in the campaign was a little more open-minded.
+
+Bill Clinton saw the article, and he immediately recognized its political value. In fact, he regularly referred to it as an example of positive coverage of Clinton in the press. The story had revealed the depth of Clinton's character, and Bill even started to expand upon the story of “Undercover Hillary” in greater detail himself.
+
+# Clinton is a deeply religious person, but this asset was barely discussed in the press.
+
+In the run-up to the election, every Sunday for more than a year, Hillary Clinton worshipped at one of the country’s many black churches.
+
+But this wasn’t some false gesture aimed at getting black votes; Clinton takes her Christian values very seriously. And these Sundays also showcased her best side.
+
+There in the pulpit, Clinton regularly addressed the congregation. She recited scripture and railed against the racism still present in the United States.
+
+In particular, she quoted the Epistle of James, reminding the church that actions are more important than words. She also tended to relay the prophet Micah's preachings on justice and humility.
+
+Impassioned and animated, Clinton’s gift as a political speaker finally shone through. And it worked, because for once, everybody could tell that she meant it.
+
+It was no recent conversion either. In 1962, a young Hillary Clinton had traveled with her Methodist pastor to listen to Martin Luther King Jr. It made a strong impression: one should not be passive as the world moves but actively take part in change.
+
+The United States is a deeply religious country, and the author is convinced that if Clinton had emphasized her religious beliefs a little more, she could have won over many new supporters. But, just as with her noble activist past and her sense of humor, Clinton buried these positives attributes away and kept them all private.
+
+But Clinton alone can’t be blamed; the press was just as culpable for Clinton’s caution when it came to matters of faith.
+
+Before the mid-1990s, Clinton had regularly included religious topics in her political speeches. In 1993, to take one example, she’d spoken in Austin, Texas on the crisis of meaning in politics. She even suggested that potentially religious ideals could be a new source of inspiration for ethical politics.
+
+She was ripped apart for it. The *New York Times* even printed an article by Michael Kelly under the rather sarcastic headline “Saint Hillary: More Preacher than Politician”. The story painted Clinton as naïve and little more than a do-gooder.
+
+Before too long, other papers picked up the story and joined in the mockery of Clinton’s faith. It amounted to little more than bullying. We should hardly be surprised then, that Clinton decided to play down her faith during the 2016 presidential campaign.
+
+# 
+
+*“When all the politics and caution were stripped away, Hillary was at her core a Methodist, a church lady.”*
+
+# Hillary Clinton’s best qualities as a presidential candidate came out only when she faced her first serious challenge.
+
+In January 2016, the Democratic primaries were going badly for Clinton. The challenge from Bernie Sanders was far stronger than expected. His ads were running all over the country, and polls showed that he might even be able to win the Democratic nomination ahead of Clinton.
+
+Clinton refused to get depressed and slink away in the face of Sanders’s challenge. In fact, the threat galvanized her. She was utterly fantastic as an underdog, and Bill Clinton knew this too. He often claimed that Clinton only showed her best side in politics when she really had to come out guns blazing.
+
+Nothing showed this better than the campaign for the Nevada Democratic caucus in February 2016.
+
+All in all, it had been a tiring and stressful campaign, and it was showing. But this actually endeared her to the middle and lower classes of America; they had someone they could identify with.
+
+When Clinton stepped out of the elevator at Caesars Palace Hotel around midnight, she made a beeline for the hotel’s staff area. There, the housekeepers, many of them Latina, were folding linen.
+
+“My goodness,” Hillary exclaimed, by way of a modest introduction. She was tired, her hair was messy and she had no makeup on. But the staff were thrilled to have her there, and Clinton and the women embraced as though they were family. They could barely contain themselves.
+
+Out came the cameras and the women started excitedly snapping photos of each other with Clinton. But it wasn’t just a photo op – Clinton spoke to the women, asking about their shifts and voicing her admiration for their hard work.
+
+Clinton's strategy stayed much the same for the rest of the Nevada Caucus campaign. She went out to speak to the public again and again in this informal way. She spoke with ice cream vendors, hotel employees and cooks. She even stood in as goalkeeper in a kids’ soccer game for a couple of minutes. She endearingly yelled “Oh no, oh no!” when a six-year-old child attempted to fire a penalty past her.
+
+Clinton won the very tight Nevada race against Sanders and went on to win the Democratic Party nomination in the summer. But the momentum didn't last long. The moment she won the nomination, she retreated once more into her private sphere. It created a distant, perfectionist image that wouldn’t help her in the upcoming showdown of the presidential election itself.
+
+# Clinton was arguably a better debater than Trump, but she foolishly let herself be distracted by him.
+
+Clinton's defeat of Bernie Sanders was historic. She became the first woman to be nominated as a presidential candidate by a major party.
+
+But she now faced an altogether different opponent: Donald Trump was the Republican Party candidate, and he was cut from a different cloth.
+
+A key part of the American presidential campaign are the television debates. Clinton was arguably a better debater than Trump, and she would have her first chance to shine on September 26, 2016, less than two months before the election.
+
+Despite her prowess, Clinton remained insecure about her debating skills – it was part of her personality. For instance, even though she had wiped the floor with Bernie Sanders during the Democratic primary debate in Las Vegas, she kept on asking her team how she’d done when it was finished.
+
+In fact, the only time she’d actually shown a weakness during a debate was back in 2007 when she was squaring off against Barack Obama during the Democratic primaries. She gave a slightly unclear answer when asked if undocumented immigrants should be permitted to register for driver’s licenses.
+
+Certainly, when the time came to face Trump in the debate, as far as the author could see, Clinton aced it. Clinton easily won all three debates and even managed to provoke Trump into admitting that he had avoided paying federal income tax by using loopholes in the system.
+
+But Trump’s debating style was brutal enough to distract Clinton and get her off topic.
+
+At the end of one debate, Clinton triumphantly concluded with the story of Alicia Machado. She’d been the winner of the Miss Universe beauty contest, at the time owned by Trump. After Machado’s win, Trump had criticized her weight and called her “Miss Piggy.” He also stooped to racism by labeling the Latina “Miss Housekeeping.”
+
+Clinton’s retelling of the story hit home, and it stuck in the news cycle right up to the election itself. However, its success meant the airwaves didn’t have room for Clinton’s real message. She should have been driving home her passion for jobs, health care and affordable education. However, Trump’s misogyny just meant that voters ended up seeing his face in the news.
+
+# Hillary’s election loss was depressing but has also created a shift in perspective.
+
+On election night, the Democrats were confident that it would be an easy win for Clinton. But, as we know, Trump triumphed. The Democrats were shaken to their core: it was shocking and deeply depressing to have such a terrible candidate win.
+
+They weren’t the only ones. The journalists – many of whom were women – who’d been assigned to follow Clinton, were shell-shocked, too. They gathered the morning after the election to watch Clinton’s concession speech. For them, Clinton’s loss was not only about the figure of Clinton herself; it symbolized and encapsulated the insecurities many women feel about their professional standing and worth in the United States today.
+
+Clinton entered the room with her husband Bill, both looking the worse for wear – it had been a rough night. Clinton was wearing purple, and the author struggled to understand the significance of this. Perhaps it was a reference to the flag once held at women’s suffrage marches, or maybe it symbolized opposition to LGBTQ bullying? Most likely, though, the author reasoned, it was an expression of Clinton's Methodist faith. For Methodists, purple represents penitence.
+
+It was a sad moment, but Clinton remained resolute and quoted Galatians 6:9. “Let us not grow weary, let us not lose heart, for there are more seasons to come, and there is more work to do.” It summed up the feelings in the room. The positive fight was still to continue.
+
+But a loss it was, and that would mean disbanding the team that had brought Clinton to the brink of victory. Supporters swelled in numbers at the rope line to say their goodbyes to Clinton, and plenty of tears were shed. Even those tough aides in Clinton’s team who had spent years in emotionless conflict with the author were moved.
+
+The spell had been broken. She recognized “the Guys” for who they really were: loyal Clinton supporters who wanted to do everything they could to support her. The author felt only empathy for them when she saw them in this state.
+
+It’s fitting, then, to end with Clinton’s own thoughts. As she said in a 1993 speech, “power isn’t worth much; it is friends, family, and community that are important.”
+
+If there’s to be a motto for Democrats in the coming years, then that is no doubt the best one going.
+
+# Final summary
+
+The key message in these blinks:
+
+**Hillary Clinton was perhaps one of the strongest presidential candidates ever to stand, but she had a complicated relationship with the press. The press repeatedly attacked Clinton and did not always portray her in the most flattering light. Sadly, Clinton took these attacks to heart and hid away to avoid further damage. This resulted in a vicious cycle that hurt her image and, ultimately, contributed to her shock election loss.**
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****Shattered *****by Jonathan Allen &amp; Amie Parnes**
+
+*Shattered* (2017) takes you behind the scenes of the 2016 US presidential election campaign of Hillary Rodham Clinton. In these blinks, you’ll learn what went wrong for Clinton and her team, leading a seasoned politician to come second to a reality TV star in a tumultuous and bitter race for the nation’s highest office.
+
+
+Source: [Chasing Hillary by Amy Chozick](https://www.blinkist.com/en/nc/daily/reader/chasing-hillary-en/)

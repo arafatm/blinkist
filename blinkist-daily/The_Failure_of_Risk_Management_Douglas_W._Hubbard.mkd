@@ -1,0 +1,204 @@
+![The Failure of Risk Management](https://images.blinkist.com/images/books/559a716c3538330007000000/1_1/470.jpg)
+# The Failure of Risk Management
+*Douglas W. Hubbard*
+
+>The Failure of Risk Management (2009) is a comprehensive guide to the history, methods and myths of risk management. These blinks explain why common methods for managing risk are flawed and how to fix them; they also offer tried and true alternatives for measuring and mitigating risk.
+
+
+# What’s in it for me? Discover why many of the common methods for risk management are flawed and what we can do about it.
+
+Every weather forecast relies on highly complex models and huge sets of data. Once analyzed and presented, this information allows you, with impressive accuracy, to see whether your picnic in the park will be a wet affair or not. You might think it doesn’t really matter. After all, you can always put on a raincoat.
+
+However, for multi-billion dollar companies operating on volatile markets, or for scientists trying to calculate the likelihood of a tsunami or an earthquake, risk, and risk management, is serious business. And these days it’s more important than ever.
+
+But many of the methods used to assess and manage risk today are flawed. Luckily, there are ways to overcome this problem. These blinks will show you how.
+
+In these blinks, you’ll learn
+
+- why experts’ opinions are overrated;
+
+- what Monte Carlo has to do with risk management; and
+
+- how you calculate the risk of an event that has never happened before.
+
+
+# Risk management means being smart about taking chances.
+
+You’ve probably heard the term *risk management*; it’s part of the jargon used by organizations and governments, but it’s also entered the public vocabulary. While there are many definitions of the terms *risk *and *management*, it’s helpful to keep things simple:
+
+Start with risk. You could say that risk is the likelihood and magnitude of an undesirable event. For instance, in a scientific or mathematical context, risk always describes the probability and magnitude of an undesired effect.
+
+But what do probability and magnitude measure?
+
+While probability always estimates the odds that something will happen (that your home being struck by lightning, for example), magnitude can be measured in a variety of dimensions, most commonly the loss of money or of lives. But keep in mind that an undesirable event could be anything – from a natural disaster to a major product recall to political instability.
+
+Now that you know the definition of risk, what does it mean to manage it?
+
+Managing risk means effectively using resources to decrease danger. For instance, one of the most common definitions of the word management is “the planning, organization, coordination and direction of resources toward defined objectives.” In other words, using what you have to get what you need.
+
+In order to achieve this goal, a risk manager always tries to reduce the risk of pursuing an objective. Just like any other management task, managing risk is an effort to effectively use limited resources, like money and time, to complete a task.
+
+Now that you know what risk management is, it’s time to learn how it developed and how it applies today.
+
+# Risk management is increasingly important to companies worldwide.
+
+It could be said that organizational risk management began when some king or leader first made the decision to fortify their city’s walls or put away extra provisions in case of a tough winter. But risk management has come a long way since its beginnings; the advent of computers in particular has dramatically improved the field. But even prior to digitization, the risk of nuclear power and oil exploration in the 1940’s increased the sophistication of risk management, a major reason why it’s in the minds of most large organizations today, regardless of their field.
+
+So how did risk management evolve into such an important field?
+
+A major breakthrough was the use of risk analysis during World War II and, later, the Cold War. During wartime, the “war quants,” a group primarily made up of engineers and economists, were given extensive training in quantitative calculation methods. They used these techniques to ascertain a variety of things – the likely production capacities of the enemy and the potential risk of invasion, for example.
+
+But today risk management applies to much more than war. In our time, risk is analyzed by everyone, from governmental institutions to corporations. Consider this: In 2007, three large independent studies were conducted by, respectively, *The Economist*, Aon Corporation, an insurance broker, and Protivity, a risk management consulting firm. The surveys examined the role of risks and risk management in more than 320 organizations across 29 countries.
+
+The results?
+
+Although the studies were worded differently and focused on slightly different factors, there were interesting consistencies between them. For instance, all three studies showed that the function of risk management is increasing on an organizational level. Depending on which survey you look at, anywhere from 35 to 60 percent of all companies have hired or intend to hire a Chief Risk Officer, or CRO. And Aon’s report showed that the boards of 88 percent of surveyed companies are “actively engaged in the review of risk management.”
+
+# The most popular risk assessment methods don’t work.
+
+So it’s clear that risk management is important. But there’s an issue: the most commonly used methods are flawed.
+
+How?
+
+For starters, commonly used qualitative descriptions like “very likely” are open to interpretation and mean different things to different people. How can you maintain consistent understanding in a group when some practice is described as having a “level 5” impact? To put it differently, everybody knows that something with a “very low” probability is less likely to happen than something with a “medium” probability, but *how much* less likely?
+
+It’s impossible to say.
+
+To prove this point, the author asked a client who had just attended an intensive risk-assessment workshop with co-workers what it meant to say an event was “very likely.” The client said that it meant it had a 20 percent likelihood of occurring; his colleagues disagreed, however, and a heated argument erupted. Some thought his estimate too low; others thought it too high.
+
+But that’s not the only way common methods are flawed. Another major issue is that scoring methods don’t take into account the relationships between risks. For instance, more often than not, risk factors are related to each other, whether by a correlation or a *common mode risk *that increases the likelihood of both risked outcomes occurring.
+
+Just consider the hydraulic controls in planes. Oftentimes, three identical systems are installed in one aircraft; the redundancy supposedly makes the likelihood of all three simultaneously failing one-in-a-billion.
+
+But there’s one problem: the common mode risk – that is, the potential for an action that either triggers other actions or makes them more likely. In this situation, the common mode risk results from the hydraulic tubes being installed in close proximity to one another; such proximity makes them highly prone to total failure from a single event, like shrapnel from a broken propeller severing all three.
+
+Unfortunately, the issues don’t stop there. Another flaw with popular methods is that they rely exclusively on expert opinions. We’ll explore that next.
+
+# 
+
+*“Garbage times garbage is garbage squared.”*
+
+# Expert opinions are often biased.
+
+The opinions of esteemed experts are respected and relied on by people for all manner of things, and risk-management methods are no exception. But expert opinion may not actually be so helpful for assessing risk.
+
+Why not?
+
+For one, extensive psychological research has consistently shown that people tend to overestimate their capabilities. Just consider the fact that 87 percent of Stanford MBA students put their academic performance in the top half of their class. Another famous study showed that a clear majority of people claim to be better than average drivers, something most of us know to be false.
+
+But the proof goes on: the Cornell psychologists Kruger and Dunning published a book called *Unskilled and Unaware of It: How Difficulties in Recognizing One’s Own Incompetence Lead to **Inflated Self-Awareness,* which showed that approximately two-thirds of the population consider themselves exceedingly reasonable, humorous and grammatical. According to the author, even so-called experts are affected by these statistics. They tend to be overly sure of their predictions and they therefore underestimate risks.
+
+But there’s another issue with expert opinion in risk management: the fact that people’s experience is biased – a fact that psychologists like Daniel Kahneman, recipient of the Nobel Memorial Pize in Economic Sciences, have used to show that our ability to evaluate probability is flawed.
+
+But flawed how?
+
+The simple truth is that our memories aren’t 100 percent perfect and we don’t work like computers. Therefore our minds are influenced by biases such as the *peak end **rule*, which states that we usually remember extreme and recent experiences better than others. For instance, if we once went on a picnic that was ruined by rain, even though the forecast only predicted a 5 percent chance showers, we tend to assume that the forecast is inaccurate because we fail to remember all the times the weather prediction was correct.
+
+# Calibration training can improve probability estimation by reducing overconfidence.
+
+While the opinions of experts are biased like those of everyone else, even the most quantitatively accurate methods require some sort of expert advice in order to effectively identify risks. The good news is there’s a way to improve expert opinion. It’s called calibration training and here’s how it works:
+
+The main purpose of calibration training is to give people an accurate picture of their uncertainties. While the most important parts of these trainings are repetition and feedback, there are many ways to calibrate.
+
+For instance, a straightforward calibration exercise is to test for ranges. This training is especially important for calibrating estimates for probabilistic models such as the Monte Carlo Simulation, a tool we’ll cover in more detail later on.
+
+For now, here’s how range testing works:
+
+The testee is asked questions like, “How old was the youngest person to fly into space” or “What was the dollar price for a ton of steel a year ago?” They then respond with lower- and higher-end estimates, the lower bound meaning the testee is 95 percent certain that the actual value is higher and the higher bound meaning they’re 95 percent certain the correct value will be lower.
+
+Another testing method is the *post-mortem analysis*. In this exercise, the testee is asked to estimate the probability of a disaster by assuming it already occurred and then asked why it happened. This method has proven effective at producing more complete and creative ideas about potential risks than brainstorming alone.
+
+Remember, experts who have been calibrated with such methods are the best source of data for any probabilistic risk-assessment method, but what’s the best method of risk assessment?
+
+# 
+
+*“The most important questions of life are, for the most part, really only problems of probability.”*
+
+# Estimate your risks with the most accuracy by using the Monte Carlo Simulation.
+
+The absolute best method for assessing risks is called the *Monte Carlo Simulation*. It’s been used to evaluate some of the biggest risks imaginable from nuclear power safety to oil exploration and even environmental policies.
+
+How does it work?
+
+Monte Carlo tests analyze the variables associated with any given risk and process data to produce risk analysis models. In other words, a Monte Carlo displays all the factors that influence the probability and magnitude of a risk and then uses them to run thousands of random scenarios which ascertain the real probability of particular outcomes.
+
+For instance, imagine you want to invest $1.5 million in a new factory to produce wrenches. The variables are how much the factory could produce, the average price you can get for a wrench and the average demand per year. By combining these variables you can determine the return on your investment in the first year, aka the risk of making no money.
+
+The next step?
+
+Once you have your variables in place you need to set realistic ranges for them. In the ideal scenario you’ll have empirical data to go off, but in most cases you’ll need to rely on some sort of expert opinion, of course improved through calibration training.
+
+So, say your calibrated experts come up with a low to high range for production capacity of 400,000 to 1 million, price boundaries of $0.7 to $2.5 and a demand range of between 300,000 and 1.5 million. Your model then randomly creates 10,000 or more scenarios within these ranges and tells you how much money you’d make or lose in each situation. As long as your variables were certain, the mean of all the returned outcomes should be your real return.
+
+But remember that this hypothetical was simple and didn’t include tricky things like the correlations between variables, for instance between demand and price. In a standard simulation you’ll likely be dealing with more than 50 variables that are complexly interrelated!
+
+# 
+
+*“The Monte Carlo simulation is your best bet to estimate your risks accurately”*
+
+# Don’t let a seeming lack of data stop you from calculating risk.
+
+One of the most common criticisms of quantitative probability methods like the Monte Carlo simulation is that there’s simply not enough data to simulate specific events. The skeptics agree that methods like these are preferable to soft methods such as scoring, but maintain that there’s no way to get the data necessary for a simulation to be effective, using this claim to justify the use of expert opinion and scoring methods. But the truth is, there’s a better option.
+
+Institutions like insurance companies and the nuclear-power industry compute the odds of hypothetical events all the time. For instance, nuclear power companies have run several simulations of events that are likely to occur once every 500 years – longer than the industry has even existed.
+
+How do they do it?
+
+By deconstructing the risk model – in this case a nuclear power plant – into its component parts and computing the risk of failure for each individual component. This works because while some disasters have never occurred and as a result there’s no data for such events, the nuclear power industry does have extensive research and empirical data on the failure rates of the individual parts which compose a power plant – things like human error, valves and different materials.
+
+This technique of deconstruction can be applied to most situations. You’ll be amazed at how much you can learn by carefully taking the object of your risk assessment apart and searching for data.
+
+Once you’ve attained data in this way you can pass it along to someone with the requisite knowledge about the relationships between the components and construct a risk model like a Monte Carlo. The model will in turn calculate the probability of multiple parts failing simultaneously or in quick succession; it will also calculate the magnitude of the disaster, and just like that you’ve ascertained the risk of something that never occurred.
+
+# Compare your model to real facts and determine what additional information is worth to you.
+
+So the accuracy of any probability assessment is based on the quality of the model that’s used and the precision of the parameters and assumptions that are fed into it. Knowing this, you can ensure your model is accurate by comparing your estimates with the facts on the ground.
+
+Why?
+
+Because testing your predictions against reality will uncover flaws, such as variables that are consistently missing from your estimates. This information is key to finding weaknesses in your model and will help you improve your probabilistic tools.
+
+But how can you know if conducting a risk analysis is worth it for your organization?
+
+To figure that out, you need to consider the value of additional information. For instance, the ultimate goal of conducting a risk analysis is to mitigate danger, because in a business context this almost always means saving money. Therefore, it’s essential to calculate what risk experts call the *expected value of additional information*. For example, if you could save $30,000 in minimized risk by spending $8,000 on a survey, the expense is a no-brainer.
+
+But according to the experience of the author, most people don’t take the time to determine the value of additional information. You can avoid this mistake by calculating what a risk analysis is worth to you with these easy steps:
+
+Begin by determining what’s called your *expected opportunity loss*; this probability of your losing money in any scenario multiplied by the amount of money you'd lose. Let’s say this number, your expected “cost of being wrong,” comes out at $60,000. Now you know how much money you’re willing to spend for information that’ll make you sure of your investment.
+
+Once you’ve determined this, it’s time to look for uncertain variables in your model that contribute the most to your target parameter – the return on your investment, in this case. For example, being more certain about the average price of your goods could drastically increase the assurance that you’ll turn a profit.
+
+# 
+
+*“The test of all knowledge is experiment.”*
+
+# Use a comprehensive organizational strategy to efficiently and effectively manage risk.
+
+Building, utilizing and maintaining the appropriate risk-management tools is essential to mitigating risk, but even with the right tools there are still plenty of barriers to managing risk – for instance, things like *organizational silos*, a type of structural problem resulting in the blockage of information, resources and authority.
+
+Consider the fact that all managers are in part risk managers because every manager is required, to some degree, to measure risk and return. In most cases, managers can effectively monitor the risk of their own area. But when it comes to assessing the risk of major decisions that have implications for multiple departments – like the construction of a new production facility, for example – you’ll need a more comprehensive approach to analysis.
+
+Why?
+
+Because it’ll help you overcome problems like organizational silos, stubborn departments and managers who don’t readily share information with others.
+
+It’s therefore essential to have a department devoted to reviewing and standardizing all risk-related decisions while unifying decision-makers and subject experts. Because such a department, in addition to keeping tabs on risks and their relationships across your organization, will also be better at identifying the stakeholders and experts who are essential to assessing risk and return.
+
+Not just that, but by having a standardized process for risk analysis you can optimize your existing risk models by adding new empirical data and building what’s called a *scenario library* – a collection of standard corporate risk scenarios replete with a set of variables and correlations. This tool can then be used as the standard for everyone in your organization!
+
+# Final summary
+
+The key message in this book:
+
+**The most common risk-management methods are flawed because they rely on qualitative****descriptions and don’t account for human bias and the relationships between risks.****Therefore, in order to effectively determine and manage risk it’s essential to use probabilistic****models, which rely on calibrated experts and comprehensive variables.**
+
+**Suggested further reading:*****The Black Swan *****by Nassim Nicholas Taleb**
+
+*The Black Swan* offers insights into perceived randomness and the limitations we face in making predictions. Our over-reliance on methods that appeal to our intuition at the expense of accuracy, our basic inability to understand and define randomness, and even our biology itself all contribute to poor decision making, and sometimes to “Black Swans” – events thought to be impossible that redefine our understanding of the world.
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+
+Source: [The Failure of Risk Management by Douglas W. Hubbard](https://www.blinkist.com/en/nc/daily/reader/the-failure-of-risk-management-en/)

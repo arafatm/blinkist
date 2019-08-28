@@ -1,0 +1,160 @@
+![Reach Out](https://images.blinkist.com/images/books/5b611d59b238e10006c07c29/1_1/470.jpg)
+# Reach Out
+*Molly Beck*
+
+>Reach Out (2017) by Molly Beck is a simple manual that helps you further your career goals through reaching out to people and expanding your network. In this book, Beck leads the reader through the dos and don’ts of reaching out, providing helpful examples of how to best make use of this strategy.
+
+
+# What’s in it for me? Discover the many advantages of Reaching Out!
+
+Competing for jobs and opportunities can be overwhelming. For many, it requires such stressful juggling acts as working overtime at your current job in the hopes of being promoted, finding ways to best frame the four-week internship you did when you were 17 on your CV, and drafting countless cover letters.
+
+You think you’ve done all the right things to land that job or promotion, until you find out that an old friend of an old friend of the hiring manager got the gig! So you try again, only to find that the pit of “old friends of old friends” is bottomless.
+
+Conclusion: To get ahead you need to expand the network of people you know. It’s as simple as that. If you can’t beat them, join them; you too can be an old friend of an old friend.
+
+So don’t despair, and use the next few blinks to guide you instead. Prepare yourself for finding out a few things about a simple strategy called Reaching Out.
+
+You’ll also find out
+
+- how to fight through the fear of putting yourself out there;
+
+- what strong and weak ties are, and why you should care; and
+
+- the usefulness of non-responses.
+
+
+# With the right attitude, Reaching Out can be a life-changing process that will help strengthen your network.
+
+Starting a career isn’t an easy thing to do. For the author, things didn’t really kick off until she started to Reach Out – actively cultivating the network of people she knew using emails and social media. As a result of Reaching Out, she was hired by the media giant Hearst – the first breakthrough of her career.
+
+So how exactly do you Reach Out?
+
+Before we move on to specifics, there’s a bit of preparation for you to do.
+
+First, think of everyone you know. These people constitute your network. Naturally, within this crowd of people, there are those closer to you, such as friends and family, and those less close, like former coworkers or a university professor. You can think of the former kind as your *strong ties* and the latter as *weak ties*.
+
+Contrary to what you might think, it’s your weak ties that can have the most transformative effect on your career. This is because your strong ties usually move in the same circles, while people you only have a weak connection with tend to know information that you don’t.
+
+Through Reaching Out, you’ll aim to get in touch with these people and increase your number of weak ties.
+
+Put simply, the goal is to expand your network of people who can let you know about an opportunity, such as a job or interesting project. The more people you know, the more likely you are to know someone who can recommend you as a contractor or employee. And that’s something you definitely want – as many as two-thirds of people recommended by a company’s employee get the job!
+
+That sounds exciting, but what if you’re nervous about putting yourself out there?
+
+All the more reason to do it, and do it regularly!
+
+Megan Bruneau, a Vancouver-based psychotherapist, says that the best way to fight anxiety is to face it over and over again to get used to the discomfort. Sticking to this strategy when Reaching Out helped her not to dwell on the non-responses, as she simply had no time to. Like the author, she Reaches Out to a new person once a day, every day – and so should you.
+
+Now let’s see what Reaching Out involves in more detail.
+
+# The gift and the favor are two key elements of any Reach Out.
+
+Imagine that one day a friend surprises you with a gift for seemingly no reason. Experience tells us what your most likely response will be: you’ll want to reciprocate the gift in some way. This is exactly the same reaction you should try to elicit in your Reach Out (RO).
+
+The rule is that any good RO – whether it’s an email, tweet or a comment on someone’s blog – should include at least two gifts.
+
+The gifts don’t have to be particularly elaborate – simply paying a compliment or recommending a book is enough. If applicable, share some information that the target of your RO might be interested in, but doesn’t have access to. If the audience of your blog is the same your target is trying to reach, for instance, you can offer to give your target exposure to that audience.
+
+If you need inspiration, take the example of Trista Harris – co-author of *How to Become a Nonprofit Rockstar*. One day, she discovered that Sir Richard Branson was speaking at a conference she was due to attend. So she drafted an email to the conference organizers with an offer to interview him. The offer included her credentials and the media outlets the conference could get exposure to, which convinced the organizers to let her interview Sir Richard.
+
+Another part of the RO is a favor or request from the target. However, unlike the gift, the favor doesn’t always have to be included in the RO!
+
+When it comes to favors, you need to find the right balance. On one hand, anything that’s vague or impersonal is a waste of everyone’s time. If Uncle Google can help you with it, then why bother your target? On the other hand, you don’t want to overburden the target by asking for information they would normally charge for.
+
+The best thing to do is ask specific questions that can be answered in a relatively quick fashion over email. For instance, you can ask about books or articles the target recommends, events they think are worth attending, or trends in their field that you should pay attention to.
+
+So, gifts and a favor are the basics of any RO. The other ingredients are contingent on who you’re targeting.
+
+# Your Reach Out strategy should depend on who you’re reaching out to.
+
+You wouldn’t address a longtime friend the same way you would talk to a stranger or your boss. When Reaching Out, different rules apply depending on who your target is too!
+
+To simplify things, you should distinguish between four different kinds of RO, in order of how close your connection is to the target: *Re-RO*, the *Follow-up RO*, the *Borrowed Connection*, and the *Cool RO*.
+
+The first kind of RO is a Re-RO. You send this to someone you know already, although probably not very well. Remember, Reaching Out is about getting in touch with your weak ties to strengthen and expand your network, not chatting with your best friends!
+
+The Follow-up RO is reserved for Reaching Out to someone you’ve met once or twice, whether at a party, conference or work event.
+
+The next type of RO is the Borrowed Connection. This is where you’re addressing someone you’ve never met, but share a mutual contact with. Before doing this, ask your mutual contact whether the target would appreciate an email from you.
+
+Finally, the Cool RO is for targets you have no connection with. This might, for instance, be someone in your field that you admire.
+
+With regards to strategy, it’s always a good idea to pay the target a compliment, regardless of the RO type. When addressing someone you have a connection with, it could help to refer to that connection you have in common. The closer we get to the Cool RO, the less personal your ROs will get. But still try to make Cool ROs personal. You could compliment an article your target authored and refer to specific arguments in it.
+
+Lastly, you should mix things up. Different types of ROs provide different opportunities, so finding a balance is key to a successful Reach Out strategy. However, keep in mind that response rates vary according to the type of RO you send. For instance, the less daunting Re-RO and the Follow-up RO yield a 60 to 80 percent response rate. By comparison, Cool ROs lead to a response only a quarter of the time on average, so you’ll probably want to focus a bit less on these.
+
+# Reaching Out can help you achieve a range of goals, and impacts both your career and personal life.
+
+Before you start Reaching Out, think about what you want to achieve with this strategy and choose your targets accordingly – there are many different types of goals that Reaching Out can help you with!
+
+To start with, every type of RO can help you with your career, whether you’re looking for a job, taking on a new project or wanting to get ahead at your current company.
+
+A Re-RO target, such as a former co-worker who works at a company you want to be employed at, can probably land you an interview; a Follow-up RO can turn into an opportunity, whether you’ve met someone higher up in your own company or someone influential working elsewhere; and when it comes to Cool ROs, contacting headhunters, hiring managers, or influencers in your field can result in a job offer, advice, or a new project.
+
+With regards to the Borrowed RO, the key is to remind your contacts about your skills and let them know what opportunities you’re looking for. After all, who knows who they might be able to contact?
+
+Take attorney and author Irnande Altema. When she graduated from law school, she shared her interests in government and legislative work with her former boss. It turns out the boss was able to introduce her to a legislative consultant, and soon after she landed a job at the consultant’s firm.
+
+But Reaching Out isn’t just great for getting you a job: when Reaching Out to potential clients or journalists, you can also advance your business by increasing sales or boosting press coverage. You might even develop more meaningful connections with your target – they could well become friends or mentors.
+
+As the author explains, this is exactly what happened to Vivian, one of her mentees. After attending similar events, Reaching Out to her on social media and exchanging emails, their relationship developed to the point where Vivian felt comfortable to ask for mentorship.
+
+# You can easily Reach Out using email or social media.
+
+You’ve learned the basics about your network and types of ROs. Eagerly, you sit down to write your first RO email, but…you get stuck. Don’t worry – Reaching Out can be daunting, and that’s why you should take it step-by-step.
+
+First, novel-length emails are unlikely to get a response. Better to keep them concise and to the point. Here’s how:
+
+To start, choose which email you send the RO from. It’s normally a good idea to choose your personal email, in case the target responds once you’ve left the company you work for. The only exception is when Reaching Out to someone regarding a query directly related to your work.
+
+Second, make sure your subject line grabs your target’s attention. You might want to think about capitalizing the first letters of each word – curiously, a study by Yesware revealed that such emails get more responses!
+
+Next, greet the person in a simple manner. ‘Hi’ or ‘Hello’ will normally do, but this doesn’t mean you should get too chummy – if applicable, stick to the target’s title, such as “Professor” or “Doctor.” Then, introduce yourself as briefly as you can. For the sake of convenience, prepare a one sentence bio to reuse.
+
+Finally, offer your gifts and ask for the favor. Once again, while gifts are a necessary part of your Reach Out, you won’t always need to ask for a favor. After that, sign off, making sure to include your contact information. Remember to proofread everything before you send!
+
+Email might not always be the right channel of communication. If your target frequently uses a social media platform, like Twitter or LinkedIn, and you want her to notice your social media presence or her email address is well-hidden, then feel free to Reach Out via social media instead.
+
+Reaching Out via social media can be done using a similar process, although not everything will be applicable. Things such as the subject line won’t always be necessary. Also, include your email address so that the target can easily move the conversation to email if needed.
+
+Founder of IssueVoter, Maria Yuan, found out what can be achieved by Reaching Out via social media. Knowing her target – Albert Wenger of Union Square Ventures – might be interested in her event because of his social media history, Yuan tweeted to Wenger, sharing an IssueVoter event. This led to a conversation in which Wenger shared his expertise on crowdfunding campaigns.
+
+So it’s worth keeping an eye on the target’s social media activity before Reaching Out!
+
+# Stay on track, follow up, and make Reach Outs part of your daily routine.
+
+Reaching Out only once in a while won’t really make a difference. The best way to do it is to turn it into a daily routine. When you’ve got that down, there are a few more things to pay attention to.
+
+Firstly, you need to be prepared for responses from your targets. Some will write a quick “thank-you,” in which case, there’s no need to respond. If, however, the target asks a question or writes a longer email, keep the dialogue going by answering promptly and kindly.
+
+Another thing is – whatever the outcome of your RO – always be grateful. Targets can’t always grant you the favor you asked for, but it’s still worth thanking them for their response. According to multiple studies, simply adding a “thank-you” to your email can double the chances that the answer from your target will be positive!
+
+Of course, there will be a fair share of non-responses. You can ignore them, or, after at least four weeks, send an updated message to give your target a bit of a nudge. Although non-responses might be a bit demoralizing, remember that they can provide useful feedback. If your response rate is low, it may be that the subject line wasn’t eye-catching, the email was too long or the favor wasn’t specific enough. Use non-responses to inform changes in your Reach Out strategy.
+
+Again, making Reaching Out part of your routine will help you with any anxieties about the process you have left. Take blogger and author of *The Happiness Project *Gretchen Rubin. As she decided to post on her blog six days a week, she could never argue with herself whether she should post on a particular day or not. Similar to Gretchen, you should make Reaching Out a part of your schedule.
+
+And lastly, make this schedule work for you. If you’d rather write out your ROs in bulk on the same day, once a week – feel free to do so! Either way, making Reaching Out a part of your schedule will bring you countless new opportunities.
+
+# Final summary
+
+The key message in these blinks:
+
+**When it comes to furthering your career or landing a job that makes you leap out of bed in the morning, it’s all about knowing the right people. And do you get to know the right people? By Reaching Out. That is, knowing exactly how and when and with whom to network. With the right etiquette, know-how, and discipline, Reaching Out can help you shape your ideal career.**
+
+Actionable advice:
+
+**Establish your presence on LinkedIn and other suitable social media platform to raise your visibility.**
+
+Ending your emails with a link to your blog or LinkedIn page is always a good idea, but make sure that your online presence is up to scratch first. Update your chosen social media platforms regularly, taking care to highlight the activities related to the field you’re interested in – this will definitely grab the attention of your targets!
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****Communicate to Influence *****by Ben Decker &amp; Kelly Decker**
+
+*Communicate to Influence* (2015) is a detailed guide to being an effective communicator. This covers everything from choosing the right voice to knowing how to structure and deliver your message. Gain a better understanding of the pitfalls of public speaking so that you know what to avoid, and discover some fantastic tools that will help turn your information dump into an inspiring call to action.
+
+
+Source: [Reach Out by Molly Beck](https://www.blinkist.com/en/nc/daily/reader/reach-out-en/)

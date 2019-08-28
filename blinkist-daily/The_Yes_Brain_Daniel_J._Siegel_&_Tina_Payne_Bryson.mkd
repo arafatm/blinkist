@@ -1,0 +1,244 @@
+![The Yes Brain](https://images.blinkist.com/images/books/5b529a11b238e10007b7ed60/1_1/470.jpg)
+# The Yes Brain
+*Daniel J. Siegel & Tina Payne Bryson*
+
+>The Yes Brain (2018) is a hands-on guide to teaching yourself and your kids to approach the world with openness, creativity and boundless curiosity. Packed full of useful tips, examples and ideas, this book shows parents how to model and cultivate the traits that let you say “yes” to the world: balance, resilience, insight and empathy. And that doesn’t just give children better self-control and awareness; it also puts them on the path to meaningful and successful lives.
+
+
+# What’s in it for me? Parenting tips from top psychologists.
+
+“Man hands on misery to man,” the gloomy British poet Philip Larkin once wrote. “It deepens like a coastal shelf.”
+
+It’s a sentiment that’s been around for a while. We become, the thought runs, who our parents were. After all, the apple never falls very far from the tree.
+
+Luckily, psychologists are a less pessimistic tribe than poets and spinners of folk wisdom. No wonder. They have access to the latest scientific data, and the news is good: our brains are more adaptable than many once believed.
+
+Experts call it “neuroplasticity.” Translated into everyday English, that means that we’re all capable of changing for the better. And the more we practice new and improved habits, the better people we become. Even more uplifting, we can guide our children early on in their development to develop traits that’ll help them lead meaningful and successful lives.
+
+That’s the verdict of Daniel J. Siegel and Tina Payne Bryson’s bestselling *The Yes Brain*.
+
+A thoughtful and fully hands-on guide to mindful parenting, this book is packed full of fascinating facts and inventive strategies to help both you and your children flourish.
+
+Squarely focused on the key traits of balance, resilience, insight and empathy, it illuminates the path to the state they call the *Yes Brain* – an open-minded outlook that says “yes” to the world and takes adversity in its stride.
+
+In the following blinks, you’ll learn
+
+- how to teach your child about emotions and to take self-control;
+
+- why looking at situations through the eyes of a spectator can help you keep calm;
+
+- why children are born selfish but don’t have to remain that way.
+
+
+# The Yes Brain is a mindset that helps you and your children become more open, creative and resilient.
+
+Close your eyes and repeat “no” to yourself for 30 seconds. How do you feel? Chances are you’re tense and unmotivated. But try saying “yes” instead. That’s much better, right?
+
+That’s because affirmation has a calming and relaxing effect.
+
+Like most people, you probably want what’s best for both yourself and your children, including this open, accepting attitude that says “yes” to the world.
+
+And that’s basically what the *Yes Brain *is.
+
+It’s a way of being in the world that makes you receptive and helps you live meaningfully.
+
+Take the first part. When you’re *receptive*, you’re primed to take challenges in stride. You’re flexible and capable of thinking clearly.
+
+The *No Brain* is the opposite. It’s a defensive and *reactive *outlook. That’s a problem because it makes connecting with other people and reaching good decisions extremely difficult.
+
+When you put it that way, the Yes Brain is clearly preferable to the No Brain.
+
+So how can you develop this attitude?
+
+Being receptive might feel like an intangible goal. But there are concrete strategies you can use to begin developing a Yes Brain as an adult parent.
+
+A good place to start is with its four essential characteristics. These are *balance*, *resilience*, *insight* and *empathy*. These are all explored in the following blinks.
+
+But what about children?
+
+Well, the one follows the other. When you model fundamental Yes Brain characteristics, your children are also likely to adopt them. A couple of techniques can help you do this.
+
+Take Alex. His son Teddy had a meltdown whenever something didn’t go his way when playing soccer.
+
+A No Brain response would be to try to shame Teddy. “Other kids don’t start crying when *they *miss a shot,” it would say, “so why should *you*?”
+
+Luckily Alex could draw on the authors’ insights. Rather than embarrassing his son, he adopted a Yes Brain attitude and helped widen Teddy’s *window of tolerance*.
+
+That’s basically a way of expanding the number of things we can encounter without “losing it.”
+
+Teddy learned techniques like deep breathing while Alex learned how to empathize with his son and comfort him when things went awry. In the end, Teddy calmed down enough to listen and become aware of his behavior.
+
+# The Yes Brain is more than a mindset – it also promotes brain integration and development.
+
+Most people believe that who you are as a child fundamentally molds who you are later on in life. Even if environmental factors have some influence, nature trumps nurture. An unsympathetic child, according to this line of thought, will be an unsympathetic adult.
+
+But scientific evidence shows that’s not the case. The human brain isn’t predetermined at all; in fact, it’s highly plastic and changes to reflect a person’s experiences, also referred to as *neuroplasticity*.
+
+This means you can not only alter your behavior but the very structure of your *brain*! In order to do that, you have to learn how to engage your mind in certain ways.
+
+The approach to developing a Yes Brain explored in the following blinks is based on the latest multidisciplinary research into *interpersonal neurobiology* or IPNB.
+
+So what exactly is that?
+
+IPNB basically looks at the ways the brain, mind and relationships with others shape human identity.
+
+The subject’s key principle is *integration*. That’s essentially the idea that integrating the different parts of your brain is a key part of your wellbeing.
+
+A well-integrated brain is flexible and adaptive, coherent, energized and stable. Who wouldn’t want that?
+
+So, cultivating a Yes Brain means you need to begin engaging your brain in ways that encourage integration as well as the development of some of its most important parts.
+
+One of these is the *cerebral cortex*. This region of the brain takes time to develop. It usually reaches full maturity when you hit your mid-twenties.
+
+A sub-region of this vital part of the brain is the *prefrontal cortex* or PFC for short.
+
+That’s the driver of most of your behavior. It’s here that key Yes Brain traits like emotional regulation, personal insight and empathy are controlled.
+
+In other words, when your PFC is engaged, you’re using your Yes Brain.
+
+So it pays to devote more attention to this part of the brain. The more you engage it, the more it grows. And that means that your brain becomes more integrated overall.
+
+Take a real-world example. Say you’re reading your child a story and you ask them why they think the heroine is sad. What you’re doing is providing an opportunity for your child to build empathy and social engagement. In effect, you’re helping them strengthen the wiring of their brain. In the following blinks, you’ll learn more about the Yes Brain’s key characteristics.
+
+# Acknowledging your children’s feelings and letting them play helps cultivate emotional balance.
+
+Think back to the last time your child threw a tantrum. It’s easy enough to respond rashly and punish them, right?
+
+But it’s important to remember that most kids lose control of their emotions for one simple reason: their brains aren’t developed enough to handle their response to certain situations. And they don’t like being out of control any more than you do.
+
+So rather than punishing your child or giving in to his or her demands, you should do two things. Firstly, acknowledge their experience. Once you do that, you can begin helping them develop skills that let them regain self-control.
+
+Take one of the authors’ clients. Her son broke down in tears every time she dropped him off at school.
+
+A typical No Brain response here would be to tell him that he’s a “big boy” and can handle it.
+
+The Yes Brain attitude suggests a different approach. The best thing to do in this situation was to try to empathize with her son’s feelings. That provided a foundation upon which she could help him develop coping strategies.
+
+One effective technique was to sit down with him and make an illustrated book about school mornings. This let him express how difficult saying goodbye was for him while also emphasizing how fun school was once he was there.
+
+The next step was to talk to her son’s teachers. They agreed she could stay a little longer in the drop-off circle, and after gradually shortening the periods each day, her son eventually felt confident going to school alone.
+
+Teaching children to pay attention to the way they’re feeling is a great way of helping them regain balance and to tune into their emotional state.
+
+One way you can do this is by explaining feelings in terms of zones. So when everything’s going well, they’re in the “green zone.” If, on the other hand, they’re mad or anxious or afraid, then they’re in the “red zone.” When they’re feeling sad, upset or wanting to be left alone, they’re in the “blue zone.”
+
+That’s a great way of helping kids visualize and understand what they’re feeling without suggesting that emotions are bad. The upshot? It gradually shows them that there are *choices *when it comes to responding to given situations.
+
+And that’s ultimately empowering. Once you teach children this, they learn that they don’t have to be victims of their emotions.
+
+# Cultivate resilience in your children by explaining the concept to them and encouraging risk-taking.
+
+Life is unpredictable. Even the best-laid plans can go awry.
+
+So if you want your child to get on in life, it’s important to foster a sense of *resilience*. Bouncing back from failure and mastering adversity can only stand them in good stead in later life.
+
+But how can you impart such a vital attitude?
+
+A great place to start is to encourage your children to take risks while waiting in the wings and catching them if they trip.
+
+Imagine you have a son called Derek. He wants nothing more than to play Little League baseball. There’s one thing standing in the way, however – he’s scared.
+
+In situations like this, you should be encouraging and supportive. In this case, that means telling him he *should *try, and turning up at his first practice.
+
+The first practice might not go particularly well, but it will get easier over time. In the end, Derek will fall in love with his newfound hobby and forget that he was ever afraid in the first place.
+
+Another way of cultivating resilience is to teach your kids about the concept and how to calm themselves down if things go wrong.
+
+Take nine-year-old Alana. She was so anxious that she suffered panic attacks when something didn’t go as planned. Just forgetting her lunch could provoke crippling anxiety.
+
+When the authors met Alana, they began by teaching her about the colored zones you read about in an earlier blink. They taught her to think of herself as being in a green zone when things were going well and a red zone when they weren’t. They then gave her the goal of staying in the former as much as she could.
+
+But because it was impossible to avoid the red zone entirely, they also taught her coping strategies like deep breathing. Another technique was the “worry bully” – an imaginary figure sitting on her shoulder to whom she could talk.
+
+The next time Alana came into the office, she was elated. The methods worked! At that point, the authors went one step further: they explained resilience and told her that the more she learned about calming herself down, the more adversity she would be able to handle.
+
+# Learn to practice insight yourself as well as teaching it to your children early on.
+
+When you’re blowing up at your kids, you’re unlikely to take a step back and analyze your behavior. But you can train both yourself and your children by cultivating the habit of *insight*.
+
+That’s essentially about being aware of and regulating your mind.
+
+So how do you go about doing that?
+
+The first step is to take a different perspective. Pausing for a moment and putting yourself in the shoes of an onlooker when you feel yourself erupting is a great way of getting insight.
+
+Say you’re driving your two kids somewhere on a hot day. The air conditioning is broken, and they start whining and arguing.
+
+You can sense that you’re slipping into your personal red zone. Your frayed patience is on the verge of snapping entirely.
+
+At this point, you should take a deep breath and imagine that you’re a spectator.
+
+This hypothetical onlooker isn’t there to judge. She understands that everyone has strong feelings and that no one should feel ashamed of negative emotions. After all, they’re just another kind of emotion.
+
+What she does do is observe. She notices the sensations, images and thoughts that provide the context for the way you’re feeling. She reminds you that you’re tired and that your kids are just being kids. Why not take a moment to calm down, she suggests, before talking to them.
+
+That’s insight.
+
+Even if you find mastering insight difficult in the heat of the moment, you can still teach it to your kids early on.
+
+Take an eight-year-old child who starts getting “hangry” if he hasn’t eaten in a couple of hours.
+
+If he isn’t throwing a tantrum, you can talk to him about his reactions. The idea of colored zones comes in handy here. Explain the red and green zones by comparing them to a volcano. “When you reach the top of the red zone,” you can say, “you erupt like a volcano!”
+
+“It’s OK to get upset,” you might add, “but wouldn’t it be great if you could take some time out and stop yourself exploding?”
+
+That’s an effective way of helping kids get a handle on their feelings. It doesn’t matter what their volcano-trigger is – for some children it’s homesickness, for others it’s anxiety. Teaching them early on that they have a choice in how they respond to situations lets them break out of familiar responses.
+
+# 
+
+*“By helping develop insight and response flexibility in your kids when they’re young, you can lay a foundation for literal generations of emotional and relational success.”*
+
+# There are a number of techniques for cultivating empathy in your children.
+
+Did you know that children’s selfishness has a solid basis in evolutionary development because it boosts their chances of survival?
+
+Fortunately, that’s not the only trait bestowed by Mother Nature. Studies show that humans are also naturally predisposed to care for others. Even better, this kicks in at an early age.
+
+This brings us to the fourth fundamental Yes Brain characteristic: *empathy*. That’s essentially the ability to care about and understand other people’s feelings.
+
+So if you’re worried that your child doesn’t seem especially empathetic, it’s worth remembering that empathy is a skill that can be learned.
+
+Take Devin. His parents were worried that their young child didn’t seem to care about others.
+
+This was reflected in a number of worrying behavioral patterns. He bullied his classmates at school and assumed that people who didn’t agree with him were simply wrong.
+
+But by the time he reached 16 – an age at which most children are notoriously self-centered! – that had completely changed. Devin was now a deeply caring and considerate person. In fact, he was so thoughtful that he’d happily miss out on hanging around with his pals so he could spend some quality time with his father.
+
+So what changed?
+
+Well, his parents adopted effective techniques to encourage empathetic behavior. That included modeling empathy themselves, as well as role-playing activities.
+
+This just goes to show how much children can change!
+
+By following the example of Devin’s parents, you too can change the way your children think about the world around them.
+
+But there are also other options.
+
+If your child is acting selfishly, take a moment to tell them about the way other, less fortunate people live. You could mention how much the homeless are suffering in winter, for example, or even take them to a homeless shelter.
+
+Or you could work toward helping them build an empathetic vocabulary. One way of doing that is to teach them to “speak from the I.” By encouraging them to talk about their feelings, they become more attentive to emotion rather than lashing out at others.
+
+Listening is vital to this. The best way to cultivate it is to give children *your* full attention. Listen to your kids when they have a problem. This makes listening to others normal. Soon enough, they’ll take up the habit themselves.
+
+# Final summary
+
+The key message in these blinks:
+
+**A positive mindset transforms the way we engage with the world. The Yes Brain is an outlook that combines four key character traits: balance, resilience, insight and empathy. Cultivate these qualities in your children, and they’ll be set for life. This doesn’t mean you have to be perfect all the time. In fact, the Yes Brain is all about learning bit by bit and gradually letting you and those you love become their best selves.**
+
+Actionable advice:
+
+**Let your children play freely!**
+
+Lots of parents dismiss playtime as nothing more than messing around. They try to cram their kids’ schedules with extracurricular activities like learning to play piano or soccer. But messing around is a vital part of human development. It’s when we’re playing in an open-ended, unsupervised way that we begin thinking creatively and pushing our boundaries. This boosts all sorts of vital cognitive functions from problem-solving to planning, anticipating consequences and taking setbacks in our stride.
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested further reading:*****The Whole-Brain Child *****by Daniel J. Siegel &amp; Tina Payne Bryson**
+
+*The Whole-Brain Child* (2011) is a parent’s guide to understanding children’s minds. These blinks explain how to help your child integrate various aspects of his or her brain and develop into a mentally well-rounded human.
+
+
+Source: [The Yes Brain by Daniel J. Siegel & Tina Payne Bryson](https://www.blinkist.com/en/nc/daily/reader/the-yes-brain-en/)

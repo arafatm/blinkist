@@ -1,0 +1,164 @@
+![Micromastery](https://images.blinkist.com/images/books/5b740e73b238e100065e1afd/1_1/470.jpg)
+# Micromastery
+*Robert Twigger*
+
+>Micromastery (2017) teaches you how to effectively learn a new skill with a focused and gradual approach. With helpful, actionable tips and advice, it outlines all the steps you need to take to ensure you’re successful at any task you take on.
+
+
+# What’s in it for me? Discover how to master any skill.
+
+Have you ever wanted to learn the violin? Or maybe ballet? Or how to be a good debater?
+
+When it comes to learning a new skill or diving into a new hobby, most of us are dissuaded by the amount of time and effort such tasks require. That’s where *micromastery* can help.
+
+Micromastery aims to eliminate the phenomenon of demotivation, which can often stand in the way of success. By breaking up a goal into small, achievable stages, micromastery encourages you to focus on a specific skill before moving onto the next one. The sense of accomplishment you feel from completing each stage will motivate you to keep going until you finally achieve your bigger goal.
+
+The author outlines six easy-to-follow steps to start you on your way to micromastering any skill or task you wish to pursue. Not only that, there are also plenty of concrete examples to show you exactly how you can apply this learning method to your life.
+
+In these blinks, you’ll learn
+
+- about the six steps involved in micromastering surfing;
+
+- why micromastery is better for our brains; and
+
+- what a* rub-pat barrier* is.
+
+
+# Micromastery helps you and your brain get in great shape.
+
+Ever since the first humans walked the earth, learning has been a crucial aspect of survival. Each generation has to learn how to survive the context in which they exist. Children learn from their parents, who learn from their parents and so on. To journey through life and handle all the challenges that come our way, we have to train our brains how to learn in the first place.
+
+Micromastery is a mental workout. Our brains are constantly changing, and if we don’t give them exercise by learning new things, we will fail to forge new neural connections that allow us to perform tasks. Indeed, we could end up forgetting how to do something if we allow our neural pathways to become weakened through inactivity.
+
+Think, for example, of when you forget a phone number you used to know by heart. The neural connection that used to link this information with your memory has degraded, likely since you no longer call the number regularly.
+
+As micromastery focuses on learning smaller things quickly, it’s a great way for regularly exercising the brain, giving it a neurological kickstart and encouraging growth.
+
+Micromastery also helps facilitate a polymathic lifestyle, meaning a lifestyle that involves continuously learning many different skills. And that’s great because there’s a neurological advantage to being a polymath. If we go through our lives on autopilot and stop learning and challenging ourselves with different mental stimuli, our cognitive abilities will begin to degrade. Over time, this can lead to senility.
+
+When applying the concept of micromastery, however, the brain is fed varied and multisensory input that keeps it in good shape.
+
+Many of the brain’s neurons are multisensory – that is, they deal with input from numerous senses at once, such as smell, hearing and taste. The more senses used, the stronger the neural connections and, thus, the better the brain learns.
+
+For instance, in preparation for your test on US history, you’re more likely to recall your lecture notes if you watch a video on the topic, as opposed to rereading a textbook. This is because the video provides you with both visual and audio stimuli, helping your brain form stronger connections.
+
+Now that we know the science behind micromastery, let’s look at how it works.
+
+# 
+
+*“Humans are learning animals – we have to be.”*****
+
+# Micromastery consists of six elements; the first three involve an entry trick, a rub-pat barrier and background support.
+
+First, every micromastery involves an *entry trick*, which is a cunning scheme that speeds up your performance and pays off immediately. To illustrate this, let’s consider the act of balancing stones on top of each other. The entry trick in this case would be to find stones that have three raised bumps in close proximity, in the shape of a triangle. These three bumps will create a small platform that another stone can easily fit on top of and stay in place.
+
+Second, micromasteries each have a *rub-pat barrier*, which is the obstacle that arises when two required skills are incongruent with each other. The name of this element comes from the game of simultaneously rubbing your stomach and patting your head. If you try it out yourself, you’ll see that it’s often difficult to do on the first attempt, hence the barrier.
+
+If we continue with our previous example of stone balancing, the two skills you would need to coordinate are working out how to balance the stones while also visualizing the shape of the tower. Let’s say you’ve found five stones that are the perfect shape for stacking, but then you find out that the third stone doesn’t have the three small bumps needed to balance another stone on top of it.
+
+To defeat this barrier, it is necessary to focus on each skill individually; eventually, it’ll become easier to do both at once.
+
+The third element of micromastery is *background support*, which clears your path of any roadblocks. Ask yourself: what will help me become successful? Do I have the right equipment to learn this new skill or task? Do I have the time? How can I make time for it?
+
+To make this point more concrete, let’s look at drawing. Say you want to learn how to draw perfect Zen circles, which is the special Japanese technique of drawing circles in one brushstroke, or two at most. What will help you achieve this skill is a really nice pen, one that makes you feel good using it – this could be a fiber-tip pen or a brush pen, or any other pen that can produce clean brushstrokes.
+
+So, those were the first three elements of micromastery. In the next blinks, we’ll look at the remaining three.
+
+# The other three elements of micromastery are payoff, repeatability and experimentation.
+
+Have you ever tried to learn an exciting, impressive skill only to end up throwing in the towel halfway through?
+
+Experiences like that illustrate why there has to be a *payoff* that will encourage you to keep putting in effort. If you feel like you’re getting better at something, that feeling of success will make you want to continue.
+
+The key is to ensure that the payoff is both achievable and unambiguous. This is why mastering the art of cooking an omelet first is better than going straight to learning everything necessary to become a master chef. Once you know how to make a great omelet, it will provide you with a sense of achievement, which will motivate you to continue learning.
+
+The next element of micromastery is *repeatability*. If you can replicate a micromastery over and over again, you will be able to see your improvements with each repetition, increasing your confidence.
+
+In a bid to improve his drawing skills, the author set himself the task of drawing each cup of coffee he ordered at a cafe. It was a simple exercise, and one that he could easily repeat. He made sure to draw every cup and saucer – even if just a quick sketch when he was in a hurry – and began to feel more confident with each iteration.
+
+The sixth and final element of micromastery is experimentation. Experimentation enables you to play around with the skill or task you’re trying to learn, which prevents the process from becoming tedious. Furthermore, it maintains your curiosity, which helps expand your desire for further knowledge and involvement with the task at hand.
+
+Another task the author wanted to micromaster was the J-stroke, which is used at the back of a canoe to help steer it. He first tried to learn it from instructions he’d read in a book, but to no avail. Then an expert gave him one life-changing piece of advice: try other strokes.
+
+With this encouragement, the author allowed himself to play around with other strokes, like the L- and C-strokes. Eventually, he made enough progress to return to – and master – the J-stroke.
+
+Now that we’ve learned about the structure of micromastery, let’s see how to put it to use.
+
+# To micromaster surfing, you need all six aforementioned elements.
+
+Ever thought about taking up surfing? Well, here’s a rundown on how you can micromaster this sport.
+
+First, the entry trick associated with surfing is a dry-run practice of jumping up from a lying position to a standing one. This involves lying face-down on the ground and then springing up immediately to stand on your feet.
+
+When you are lying down, arch your back so that your stomach is still on the floor, then pop up into a vertical stance on the surfboard. Make sure your front foot is aligned under your shoulder and you’re facing forward, but your body is angled at roughly 45 degrees, either to the left or right. After a few tries you can try doing the same moves on a surface that’s less stable, like a bed.
+
+Second, the rub-pat barrier involves coordinating the board’s forward momentum on the water with your upward thrust. Popping up too early will make you lose your balance. But if you do it too late, you’ll lose control of the board. The key is to keep practicing both skills; eventually, you’ll be able to master both at once.
+
+Third is background support. To micromaster surfing, you need all the necessary equipment, which includes a full-body wetsuit if you’re not a fan of cold water. Ensuring that you stay warm and comfortable will keep you in the water for longer.
+
+Fourth, the immediate payoff is the awesome journeys you will take. Surfing is done all over the world, including vastly different countries such as Angola and Norway. It will break up the mundane routine of everyday life and set you hunting for new and exciting beaches.
+
+Fifth, repetition will be easy, seeing as surfing is so addictive. To make it even more enjoyable and help you repeat it, invite some friends to join you on the surf. It doesn’t matter if you go at it for a short or long while – just as long as you keep doing it.
+
+Finally, try out some experiments while surfing. When surfing first came about, two different variants emerged: full-body surfing – the version discussed earlier, in which you spring up from a lying position – and paddling while upright on the board.
+
+There’s no right way of surfing, so why not try out both?
+
+# Micromaster baking artisan bread with three entry tricks.
+
+If you don’t feel like learning how to surf – or don’t have access to a beach – why not try to micromaster baking artisan bread? To illustrate just how handy entry tricks are to jump-starting the micromastery of any skill, here are three examples related to baking bread.
+
+The first entry trick is dedicating a whole day to breadmaking. Baking is a lengthy process, and a lack of time will surely throw off your bread game. Therefore, you need to make sure you allocate enough hours to prepare not only for the baking time, but also for preparing the dough. You don’t want to cut any corners as the results won’t be nearly as good.
+
+The second entry trick is to keep the dough wet. To combat the stickiness of the dough, many people add more flour to their hands, to the kneading surface and to the dough itself. This is counterproductive, however, as your dough will become heavier and more difficult to bake. What you should do instead is use a bit of olive oil on the kneading surface and your hands, which will remove some of the stickiness while keeping the dough light.
+
+Entry trick number three is to use good flour, dry yeast and warm water. For example, you can use super-strong, organic Canadian flour, either as is or mixed evenly with common bread flour.
+
+Dry yeast, meanwhile, is a lot easier to control than wet yeast, so it’s good for beginners. Once all the ingredients are combined, the dough needs to be kneaded for roughly ten minutes – that means ten minutes of stretching and pummelling!
+
+To check that it’s been kneaded enough, break off a small piece of the dough and slowly pull it apart. If it stretches to the point that it appears almost transparent, then it’s ready for proving, which we’ll learn more about in the final blink.
+
+# In addition to observing time and temperature, baking requires equipment, tasting, repetition and experimentation.
+
+After the entry trick, there are five more steps involved in micromastering baking bread.
+
+The next step is the rub-pat barrier. In this case, it involves balancing temperature and time during proving, which refers to when the dough rises due to the addition of yeast before being put in the oven.
+
+Balancing time and temperature is important because the yeast will die if the dough is kept at an air temperature of over 40 degrees Celsius. On the one hand, if kept at a higher temperature, the bread will have more flavor; on the other hand, at a lower temperature, the dough can prove for longer.
+
+To balance time and temperature just right, heat your oven up to 50 degrees Celsius, switching it off just before you put the dough in for proving. Both the dough and the bowl holding it will absorb the residual heat, and the dough will reach the optimal temperature of 30 degrees Celsius. When you can stick two fingers into the dough and the indent remains (or slowly rises back up), the proving is done.
+
+Then comes the kneading, which you will do for about ten minutes, before proving the dough again – though this time in a baking tin. Following these steps, your bread should expand in size by 150 to 200 percent.
+
+The third element to micromaster baking bread involves background support. So, in addition to good flour, you will need the right equipment. This includes measuring scales, a surface on which to knead the dough and so forth. Go after what’s easiest to use without sacrificing quality.
+
+The fourth step is the immediate payoff, which in this case is the taste and smell of freshly baked bread. Who wouldn’t prefer fresh homemade bread to dry, store-bought loaves?
+
+The next element is repetition, and with baking, you can easily turn it into a weekly routine. To ensure that you don’t miss a week of baking, keep your cupboards stocked with the necessary supplies.
+
+The last element is experimentation, which baking definitely allows for. Just think of all the different quantities you can include of each ingredient, as well as the different types of ingredients you can add. You can experiment with the proving time, or with different flavors – why not try adding olives to your next batch?
+
+So now that you know the basic steps of micromastery, you’re ready to take on any new skill – whether it be surfing, baking or something else entirely!
+
+# Final summary
+
+The key message in these blinks:
+
+**Learning something new can sometimes be overwhelming and can demotivate us from sticking with it. That’s why it’s much more efficient to learn various smaller tasks quickly and work your way gradually toward mastering a skill, which is a method called micromastery. Micromastery involves six main elements: an entry trick, the rub-pat barrier, background support, immediate payoff, repetition and experimentation.**
+
+Actionable advice:
+
+**Draw perfect circles.**
+
+To become a master at drawing, you first need to micromaster drawing circles. Coordinate time and accuracy until you can quickly and easily draw perfectly round circles. Find a good pen and keep practicing until you get it right. After that, you can start adding details to the circles and create some circular designs.
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****Mastery *****by Robert Greene**
+
+In *Mastery *(2012), author Robert Greene argues and illustrates that everybody can achieve mastery of a skill or field if they follow the established steps of historical and present-day masters. Based on interviews and studies of some of the best in their respective fields, Greene provides a diverse array of tips and strategies on how to become a master.
+
+
+Source: [Micromastery by Robert Twigger](https://www.blinkist.com/en/nc/daily/reader/micromastery-en/)

@@ -1,0 +1,326 @@
+![The Daily Stoic](https://images.blinkist.com/images/books/5b73f3aab238e100073cda34/1_1/470.jpg)
+# The Daily Stoic
+*Ryan Holiday & Stephen Hanselman*
+
+>The Daily Stoic (2016) is a collection of daily meditations drawn from the wisdom of the Stoic philosophers who lived in the Roman Empire. The writings of Emperor Marcus Aurelius, the playwright Seneca and slave-turned-philosopher Epictetus all provide thoughtful material for the authors to refashion and refresh. These blinks promote self-reflection, while encouraging the reader to value serenity and life itself.
+
+
+# What’s in it for me? Refresh your approach to modern life with lessons from the classical world.
+
+Life can sometimes be a bit of a grind. It can be hard to know how to motivate yourself, or even figure out if you’re having a positive influence on those around you.
+
+If only there was some sort of wisdom or guidance that could provide answers! As with many things, the Greeks got there first: schools of philosophy have been with us for almost 2,500 years. Many philosophies tie themselves in knots considering pointless questions, such as “How many angels can dance on the head of a pin?”, or the Platonist Plutarch’s infamous “Which came first? The chicken or the egg?”
+
+But Stoicism is a different sort of philosophy. This school of philosophy was founded in Athens in the early third century BCE and dealt with the struggles of everyday life.
+
+What we know about Stoicism is based on the surviving texts of three great intellectuals in the Roman Empire who were versed in the original Greek theories: there are the meditative essays of the Roman Emperor Marcus Aurelius, the personal letters of playwright and philosopher Seneca the Younger and the handbooks and lectures of the slave-turned-renowned-teacher Epictetus.
+
+Join the authors as they lead you through these classical texts, sifting out the fundamentals of Stoicism and answering that eternal question: “How best should I live?”
+
+In these blinks, you’ll learn
+
+- which heavyweight boxer was a Stoic in the ring;
+
+- how Stoicism can help you in a POW camp; and
+
+- how Julius Caesar’s destruction of the Roman Republic led to a very Stoic suicide.
+
+
+# Stoics cultivate awareness of both themselves and others.
+
+We often think of philosophy as a bookish pursuit, or perhaps as the lifestyle choice of bearded old men living ascetically in caves. But Stoicism isn’t like that – it’s for the real world. If you’re going to be a Stoic, you'll have to be plugged in and aware of yourself and those around you.
+
+The first precondition of any philosophy is clear thinking. And for Stoicism, that means beginning with self-examination.
+
+The great Stoic teacher of the second century CE, Epictetus, got to the heart of the matter in his *Discourse*s. He stated that we become philosophers the moment we first examine our preconceived notions, and ask questions about our emotions, beliefs and even the words we use each day. By this process, we become attuned to the possibility of analyzing our own minds.
+
+It’s no easy task of course. Ego and self-deception impede learning; no one is going to learn anything new if they think they know everything already. That’s why honest and truthful self-assessment is critical.
+
+The downside to this is that you’ll have to take a good hard look at your weaknesses. It might be scary to admit you have them and that you might have been thinking too highly of yourself all along. On the other hand, it’s just as dangerous to undersell yourself. Try to remember those moments in life when you've risen to the occasion.
+
+Aside from self-reflection, it’s also important to be aware of those around you.
+
+The people with whom you choose to spend your time will ultimately influence the kind of person you become. If you’re around people who push you to be better, you’ll improve. Of course, the opposite dynamic is true: people may try to bring you down to their level.
+
+The Roman playwright and philosopher Seneca, who was a generation older than Epictetus, advised that we should each keep someone in mind whom we respect and admire. Their presence in our mind is sure to guide better judgments and actions.
+
+The eighteenth-century economist Adam Smith was of a similar mind, and even had a name for it: *the indifferent spectator*. For Smith, it didn’t even have to be a real person. The mere thought that someone is witnessing and sympathetically judging our behavior will help us.
+
+The general principle of these two points is clear: if we get to know ourselves and others better, we’ll be able to see our own actions in a clearer light.
+
+# Stoics manage their attention spans by seeking clarity in their thoughts.
+
+Modern life is overwhelming. Messages bombard us, work is all-pervasive and politics is one big roller-coaster. It’s no wonder so many of us end up getting constantly distracted.
+
+But we don’t have to give in to distraction – it is possible to maintain focus.
+
+Take Bill Belichick, the coach of the New England Patriots, an American football team. He gets his players to block out interference and noise through a simple instruction: “Do your job.” It’s a reminder to the players to reduce their focus to the task in front of them. Everything extraneous to the immediate situation can and must be blocked out.
+
+The Roman Emperor and adherent to Stoicism, Marcus Aurelius, had another way of putting it. He advised that we approach each task as if it were our last. Work like that and you’ll find that external distractions will quickly dissipate.
+
+You can also heed another of Marcus Aurelius’s excellent suggestions: create your own mantra. Something like "I am able to keep out anything that might disturb me; I can see things for what they are, and not give them undue attention” might do the trick.
+
+But your mantra can be anything you want. Use whatever words feel natural to you – just remember their purpose. They’re there to shut down anything that might lead you astray.
+
+There’s another way you can keep your focus. If you recognize and accept that some things are simply beyond your control, you’ll ensure that your attention is fixed only on what’s important.
+
+For the Stoics, the mind is the only thing you can truly control. In contrast, you may think you have control over your body, but it’s going to get sick or injured whether you like it or not.
+
+And it’s a good thing to realize your limits, as this will help lift the burden of responsibility. The only thing you need to worry about is your mind, and the choices and actions that are the consequences of its reasoning.
+
+Practically speaking, you can use this knowledge to create a useful daily routine.
+
+In the morning, take a minute to remind yourself of what you can and cannot control. Focus only on the former.
+
+At midday, remind yourself that the only ability you really possess is the capacity to make choices.
+
+And before you turn in for the night, think again how much is outside of your control. You can sleep easy knowing that, as Epictetus taught, those matters can be left for “God and fortune.”
+
+# We can’t control our emotions, but our reason and intelligence can keep them from affecting our actions.
+
+The former US president Theodore Roosevelt was an odd sort of fellow. He almost died exploring a river in the Amazon, he needlessly slaughtered thousands of animals on safari and he even begged to be allowed to enlist as a soldier in the First World War, even though, at 59 years old, he was too old to fight.
+
+Roosevelt was hardly short of great accomplishments. But the problem was that he was driven by such a compulsion to action, it was difficult for him to grasp their relative importance or worth.
+
+Much like Roosevelt, most of us are prone to letting our impulses dictate our actions. But you needn’t fall into the Rooseveltian trap; intelligence and reason can help you determine whether it’s really worth taking action. For instance, just because a plate of cookies is sitting in front of you, it doesn’t mean the emotional impulse to take one – or five – should win.
+
+You are in control. In fact, putting your emotions to one side is a decision that will get you far. Look at the American heavyweight boxing champion Joe Louis. His calm, unemotional demeanor in the ring gave him the upper hand even before he let loose with an uppercut. It was what earned him his nickname, the “Ring Robot.”
+
+There are still going to be times though when action seems like it’s your only option. But it's then that a spot of premeditation is sure to reap rewards.
+
+Julius Caesar’s longtime rival, the senator Cato the Younger, was famed for this. When he first entered politics, everyone expected the world from him. However, instead of giving way to pressure and delivering the profound speeches expected of a politician on the rise, he resisted the temptation.
+
+Cato repressed his ego and took the time to examine and honestly evaluate his own thoughts. Although his powers of address could move the masses like no other, he chose only to speak when he was sure that his words were worth hearing.
+
+All this goes to show that even though emotions are capable of inducing us to action, there’s good reason to avoid letting them rule us.
+
+# By being alert about our biases, we can bring more clarity to our thoughts.
+
+Stoics know that the vast majority of us aren’t nearly as intelligent as we’d have ourselves think. What’s more, it’s clear to them that the trick to improving ourselves is to remain humble and identify the flaws in our thinking.
+
+You can start by testing your thinking for biases.
+
+As Malcolm Gladwell points out in his book *Blink*, the mind’s powerful ability to make split-second decisions based on experience also has a downside: it’s just as easy for us to self-affirm our prejudices at the same lightning speed.
+
+Consequently, this means that before you act on an impression, you should always pause and consider what assumptions you've brought to the decision. Ask yourself questions like “What could I have overlooked here?” or perhaps "Is it possible I’m wrong about this?”
+
+All it takes is a little bit of self-assessment; you’ll find that it goes a long way to avoiding embarrassing mistakes.
+
+The same principle holds true when it comes to evaluating patterns of behavior. In fact, it could even be said that the psychologist Albert Ellis effectively popularized Stoicism through his development of cognitive behavioral therapy (CBT).
+
+CBT patients are taught to look for patterns in their thoughts and actions that don't serve them well. Then, over time, they attempt to rework those patterns into forms they can benefit from.
+
+The Roman Emperor Marcus Aurelius had much the same idea. He instructed his readers to look for cause and effect in their thoughts and actions, and thereby understand what sorts of actions result from particular prejudices.
+
+Another way to identify flaws in thinking is to stay alert to an all-too-human tendency: Do you automatically and involuntarily add interpretation to what you observe?
+
+Seventeenth-century samurai swordsman and philosopher Musashi had some choice Stoic words for this impulse – and he wasn’t even formally a Stoic! According to Musashi, a person can look at something with an *observing eye* or a *perceiving eye*. There’s a big difference between the two.
+
+The observing eye sees things for what they truly are. In contrast, the perceiving eye imbues things with meaning. It’s the perceiving eye’s tendency to add its own spin and prejudice to things that can cause trouble. It causes stress where none is necessary.
+
+# 
+
+“*It isn’t events themselves that disturb people, but only their judgments about them.*” - Epictetus
+
+# Stoicism helps us live life action by action, one decision at a time.
+
+The multitude of possibilities that face us each and every day can be overwhelming, to say the least. It’s no wonder, then, that a lot of us are crippled by indecision.
+
+You can overcome this by setting clear goals for your actions. That should really help clarify your priorities. And what’s the noblest goal of all? Why, it’s nothing less than behaving as the best version of yourself.
+
+Try imagining the person that you’d like to be. Then, appraise your actions. Are you acting as the person you’d like to be would? If not, then don’t procrastinate in resolving the issue.
+
+Marcus Aurelius understood the tendency to put things off until tomorrow. He pointed out that if you want to change something about yourself, the best day for action is always today.
+
+Think of yourself like an archer taking aim at a target. You’re only going to hit a target that you aim at, and you’ll certainly only hit something if you actually let go of that arrow!
+
+Ultimately, then, procrastination is best thought of as a form of resistance that blocks you from achieving your goal. As author Steven Pressfield points out, we all tend to say, “I’ll do it tomorrow”, when what we really mean is “I’m never going to do it.”
+
+You’ll also find that what’s just as valuable as achieving a goal in itself is the journey to get there.
+
+Have you ever heard the phrase “It’s the process, not the product”? That’s the Stoic approach to life encapsulated: life isn’t about big, earth-shaking epiphanies, but incremental progress. Ideals are there to carry us through the small events in life as much as the big ones.
+
+Epictetus loved reminding his students of this outlook, especially when they convinced themselves that they were philosophical geniuses. He taught them that the perfect Stoic, whose every thought and action is exemplary, doesn’t actually exist – it’s just an ideal to strive toward.
+
+In the end, all you can do is focus yourself, begin and persist. Stoicism will help you improve your life, but it has to be done step by step.
+
+# Stoics manage expectations when dealing with problems and setbacks.
+
+It’s great to plan ahead, but plans can only get you so far. True success comes from finding ways to deal with whatever obstacles come your way.
+
+The same approach informs the Stoic mentality. Instead of obsessively planning ahead, Stoics spend time fostering creativity, independence and inventiveness. This makes them flexible, as well as resilient in the face of changing circumstance. In short, they can solve any problem that life throws at them.
+
+In fact, Epictetus went so far as to think it risible for students to ask his advice. Instead, he said, they should ask him to help shape their minds to be adaptable, and become self-sufficient.
+
+A flexible outlook means that Stoics are mentally prepared to see the opportunity in setbacks.
+
+One way they achieve this is by having what the authors call a *reverse clause –* in other words, a backup option. If you formulate one, you’ll never see your progress as halted. It will just be redirected, and you’ll retain momentum.
+
+So what do you do if your computer erases your work? No problem. It’s an opportunity to start fresh on a new and improved version.
+
+There’s one more important quality Stoics have: if they see something isn’t working, they just let it go.
+
+Epictetus said just that in his Stoic handbook for daily life, the *Enchiridion*. His idea was that every situation has two metaphorical “handles,” that is, two ways you can approach it. One can be used to “carry” it, while the other can’t.
+
+Journalist William Seabrook saw living proof of this for himself in 1933. He sought treatment for his alcoholism by committing himself to an asylum. But despite the tough measures, he found he was making little headway.
+
+Then, when he was on the brink of being expelled from the asylum for his continued issues and bad behavior, Epictetus’s metaphor of the two handles crossed his mind – and jolted him into action. He would come to let go of the handle he’d been gripping to that point, as there was no point struggling against his circumstances, and he would instead try the other handle.
+
+Invigorated, he embraced recovery and began to enjoy not only the asylum but also sobriety. Seabrook’s openness toward new perspectives and willingness to learn ultimately helped him reach his desired goal.
+
+# A sense of duty gives you purpose and helps you do the right thing.
+
+As far as the Stoics are concerned, the order of the world is a natural phenomenon. Consequently, every aspect of life is interconnected and thus has a specific duty to fulfill.
+
+The mission or duty for students of Stoicism is to aspire to virtuousness.
+
+Virtue is seen as the highest purpose one can commit to. What’s more, virtue itself is a composite concept comprising justice, honesty, discipline and courage.
+
+There’s no point living your life with goals other than virtue in mind. You might, for example, bust a gut to earn money, but that will just lead to further problems and a desire for more cash. That’s true of climbing towering mountains too – you’ll just want to reach the next summit.
+
+Virtue is different, though. For the Stoics, either you’re a virtuous person or you’re not, and which category you fall into depends on the actions you take. That’s what makes virtue so incredibly valuable.
+
+Of course, the other side to virtuousness is that you have to be entirely self-committed to achieve it: no one’s going to make you do it. As Seneca wrote in his *Moral Letters*, “Every noble deed is voluntary.”
+
+The great benefit to acting virtuously is that it will cut through all of life's confusions.
+
+Look at Marcus Aurelius: as Emperor, his political, personal legal and military responsibilities were massive, and he must have been overwhelmed at times. But he kept his head above the water by applying a simple lesson: duty must come first, be it in the form of professional responsibilities or obligations to others.
+
+It was the Stoic’s belief in interconnectedness that guided their belief that we are all obligated to one another.
+
+As Marcus Aurelius put it in his *Meditations,* working with others is what “you’ve been made by nature for.” There’s no motivator like the desire to achieve wonders for the common good. After all, each of us has a stake in progress and civilization.
+
+Look at it from another perspective: our pets could spend all day snoozing if they wanted, but we human beings owe it to one another to get out of bed for the common good.
+
+From another perspective, if duty is foremost in your mind, laziness will never be a concern!
+
+# Stoics are focused on results, so they’re pragmatic in their actions.
+
+Philosophy sometimes gets a bad rap as an ivory tower occupation. But Stoic thinking is different. It’s about achieving results, and not getting sidetracked on the way there.
+
+That’s why the special quality of Stoics is getting things done no matter the circumstances.
+
+As we saw earlier, former US president Theodore Roosevelt struggled with impetuousness. But he also knew how to keep on striving even when the going got tough. After he’d undergone surgery, he was told that he might be a wheelchair user for the rest of his life. But he wasn’t disheartened: he simply responded “All right! I can work that way too!”
+
+Artists are also people who tend to find themselves stuck in their work. They chase inspiration with new experiences or new locations, but they often just find themselves blocked.
+
+That’s because, ultimately, if you’re looking for the perfect set of working conditions, then you’re just deceiving yourself. In reality, it makes no difference where you are, you’re just going to have to get down to it and press on.
+
+The same principle goes for practicing stoicism itself. It’s for real-world situations – there’s certainly no need to enter a monastery to live stoically.
+
+Another truth that Stoicism recognizes is that while the things we do might be imperfect, this doesn’t mean we shouldn’t try.
+
+This kind of disproportionate thinking, including “all-or-nothing” thinking, will ultimately impede you. Psychologists refer to these as *cognitive distortions*. And they usually lead to unhappiness.
+
+In his book *Rules for Radicals*, community organizer Saul Alinsky argued that we shouldn’t let our idealism limit us in setting our goals. An organizer, Alinsky claims, has to accept that the world is as it is before she tries to change it. Accepting things as they really are doesn’t weaken the desire for change; in fact, it makes the effort to do so more effective.
+
+One step at a time and it will get done: that’s the Stoic way.
+
+# Stoics rely on themselves, remaining resilient to changing circumstances.
+
+Stoics believe that no matter what happens to us, we always remain in control of who we are. As a nod to this, they even name the space inside each of us that houses the soul the *Inner Citadel*. No matter what each of us physically endures, this Citadel will remain impregnable.
+
+The only danger the Citadel faces, therefore, comes from within.
+
+Because of this mentality, Stoics prefer to rely on themselves rather than circumstance.
+
+Cato the Younger, whom we looked at earlier, liked to be prepared for any eventuality that might befall him. For instance, even though he could afford clothes, he chose never to don a hat regardless of the weather conditions and walked around barefoot, so that he could learn to be prepared for any circumstances.
+
+After all, to a Stoic, misfortune is just another opportunity to become stronger. In *On Providence*, Seneca even claims that someone who has never known difficulty is unlucky; it shows he’s never been tested, so there’s no way he’ll know his true potential.
+
+There’s a second consequence to the Inner Citadel: Stoics know that only they have power over their own minds, which makes them very resilient.
+
+US pilot and Navy vice admiral James Stockdale was living proof of this. When his plane was shot down over Vietnam, he knew that incredible hardships would follow. But, as he came down, he realized that Epictetus could be his salvation. He knew he could hold out.
+
+Stockdale spent the next seven-and-a-half years as a prisoner of war, during which he was brutally tortured by his captors. But he never sought solace in unrealistic expectations of sudden liberation, and he never allowed the experience to change who he was.
+
+Stockdale knew that staying true to himself was his best hope of resistance. Indeed, he was so committed to this philosophy that he once deliberately injured himself so that he wouldn't be forced by his captors to appear in a propaganda video.
+
+As a Stoic, he knew that though there was nothing he could change about his situation, he could always control his reaction to it.
+
+Fortitude in difficult circumstances is an admirable skill, but as we’ll examine now, you don’t always have to go it alone.
+
+# Stoics understand the interconnectedness of all things and commit themselves to the right action.
+
+Violence and cruelty were all-pervasive in Antiquity. Animals and people were killed for entertainment in amphitheaters across the Roman Empire, while conquered peoples were routinely sold into slavery. It was hardly an atmosphere that encouraged positive feelings of camaraderie.
+
+What’s fascinating is that Stoicism – which reached philosophical maturity at that time – actually saw the workings of all people and creatures as connected.
+
+The Stoics called this interconnectedness *sympatheia. *It helped them envisage everything as part of a larger whole.
+
+In his *Meditations*, Marcus Aurelius described how everything in the universe was interconnected. He even explained through an analogy how people should be imagined as bees living in the same hive: what is bad for the beehive will ultimately be bad for the bees. To put it the other way around, anything that isn’t harmful to the community can’t ultimately harm the individual.
+
+Because a wise person understands that the good of the many is always the highest priority, this means that all impulses and actions should ultimately be directed toward that aim.
+
+Doing the right thing by the community is all well and good in theory, but right action does sometimes require a fair bit of personal motivation.
+
+After all, it can be tempting to act selfishly, but it doesn’t usually end up doing you any good in the long run.
+
+For instance, we might occasionally convince ourselves that enacting a spot of revenge will do us a world of good. But actually losing control like that just makes us sick. As a rather disturbing example, vomit is often found at crime scenes for precisely this reason.
+
+And what’s true of crime also holds for lying and cheating. It just makes us feel worse for acting in a way we know is unethical.
+
+Here’s a practical exercise that will make acting correctly easier. Before doing anything, ask yourself once again, "Is this what the person I’d like to be would do?" Think about the standards you’d set for yourself and use those to guide you in the present moment.
+
+# For Stoics, fate is not a source of fear, but instead motivates them.
+
+It’s a common tendency to think of hope as good, and fear as bad. But Stoics are skeptical of both. After all, both hope and fear involve attaching value to future events which are, by definition, out of our control.
+
+So instead of focusing on wishes and worries, Stoics prefer *amor fati,* “a love of fate.” In other words, they go a step further than throwing up their hands saying “que sera sera.” They *embrace the *vicissitudes of fate.
+
+Rather than pointlessly wishing they could change events to fit their desires, Stoics instead adapt their desires to the situation. This is the Stoics’ *art of acquiescence.*
+
+All in all, it’s a clever strategy. Stoics learn to accept events and take responsibility for their own lives.
+
+However, it’s important to note that acceptance isn’t shorthand for passivity.
+
+Let’s look at former US President Franklin D. Roosevelt. He had craved and worked toward the office of the presidency his entire life. But suddenly, at the age of 39, he was diagnosed with polio.
+
+FDR knew that there was nothing that he could do about the disease, but he recognized his reaction to it was entirely his choice. He therefore decided to calmly accept the situation, while refusing to see himself as a victim. The rest is history: FDR went on to be elected to the presidency four times.
+
+Another good example is the civil rights leader Malcolm X. He was incarcerated early in life, but instead of fuming pointlessly in his cell, he chose to use his time wisely. By the time of his release, he was self-educated, religiously enlightened and highly motivated – all character traits that served him well in the struggle for civil rights.
+
+Just think of all that energy you could save by not wishing for the impossible. Success is entirely achievable if you invest that energy, and work with the actual situation as it stands before you.
+
+# Stoics do not fear death – they accept and embrace its power.
+
+The once mighty Roman Empire fell in the West after 500 years. The longest human lifespan recorded is just 122 years.
+
+Everything and everyone must eventually come to an end. That’s why Stoicism teaches us to accept the fact of our ultimate demise. Death isn’t something to worry about, but ignoring its inevitability won’t get us anywhere.
+
+Death can be a great motivator, and it might seem helpful to push yourself to live life to the fullest as though you only have a few weeks left to live. But the truth is, we all live with the same diagnosis. Someday, like it or not, we’re all going to die. That should be motive enough without entertaining hypotheticals!
+
+Part of the reason why death is so scary is that we have no real knowledge of what it entails. But some of history’s greatest minds have mulled it over, and their thoughts can provide some solace.
+
+Even great minds turn to other great minds in times of trouble. The philosopher Cato the Younger decided to kill himself rather than witness Julius Caesar’s destruction of the institutions of the Roman Republic. As he stared death in the face, he looked to the writings of Plato to give him courage.
+
+The Stoics recognize an important feature of death: if it really is the end of everything, there’s nothing to fear. Death brings with it the end of worry, pain and, of course, death itself.
+
+In fact, Seneca went so far as to admonish his friends and family when they begged his executioners to spare his life. He scolded them for forgetting their philosophical training. As far as he was concerned, they should have been ready to accept death, just as he was.
+
+“To philosophize,” Cicero argued, “is to learn how to die.” Meaning, we can use philosophy to make the most of our time.
+
+While it’s interesting to meditate on the wisdom of philosophers and life’s big questions, to Stoics, philosophy serves a practical purpose. It’s a tool that you must use every day to carefully shape your own life.
+
+# Final summary
+
+The key message in these blinks:
+
+**Stoicism is above all a practical philosophy. Instead of being just an abstract framework for cerebral rumination, it provides a set of guiding principles that can help you make better choices in life. Apply Stoicism successfully and you’ll find yourself not just believing in your own abilities; through determination and self-motivation you’ll be able to improve yourself and society as a whole.**
+
+Actionable advice:
+
+**Don’t look for happiness in external things.**
+
+There’s nothing wrong with appreciating fine clothes or a square meal. But the more we let our happiness depend on external rewards, the less free we become. So the next time you’re looking for “likes” on social media or trying to boost your mood with a fancy purchase, ask yourself what meaningful action you could be taking instead. The effects will last a lot longer.
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****The Antidote *****by Oliver Burkeman**
+
+*The* *Antidote* is the intelligent person’s guide to understanding the much-misunderstood idea of happiness. The author emphasizes that positive thinking isn’t the solution, but part of the problem. He outlines an alternative, “negative” path to happiness and success that involves embracing failure, pessimism, insecurity and uncertainty – what we usually spend our lives trying to avoid.
+
+
+Source: [The Daily Stoic by Ryan Holiday & Stephen Hanselman](https://www.blinkist.com/en/nc/daily/reader/the-daily-stoic-en/)

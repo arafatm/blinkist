@@ -1,0 +1,252 @@
+![Dream Teams](https://images.blinkist.com/images/books/5b9408b0862c430007fdf649/1_1/470.jpg)
+# Dream Teams
+*Shane Snow*
+
+>Dream Teams (2018) highlights what it is that makes for a truly great team. Replete with quirky and interesting examples from different times and industries, Snow shows the science behind dream teams, what made them so fantastic and how their strategies can be applied today.
+
+
+# What’s in it for me? Learn some key lessons about working together while having a little fun.
+
+Ah, the dream team. It’s something every company, athletics club or theater group longs for. But far too often it seems an impossibility. And let’s not kid ourselves, working together with others can sometimes be pretty terrible. There is surely no more fear-inducing phrase in the English language than “team building exercises”. But there’s a reason why they exist.
+
+We all know that there’s much to be appreciated in a strong team. When something’s done well, we all benefit. But there’s no need to see the dream team as an elusive thing. There are some simple rules that can be applied to ensure that your team will be at its best.
+
+Shane Snow’s a great guide for this. His examples aren’t just dry recollections of company politics. Instead, he draws lessons from across the gamut of human history. It’s a lot of fun and it’s a great way to help those key rules stick in your head.
+
+In these blinks, then, we’ll take a closer look at the elements that make up a dream team and give you the ideas, concepts, and encouragement so you can go out and create one of your own.
+
+In this pack you’ll learn:
+
+- which hip hop group you should aspire to be;
+
+- how the Wright Brothers liked to settle arguments; and
+
+- some basics of modern art appreciation.
+
+
+# Dream teams benefit from diversity of background, gender and opinion.
+
+In 1974, the FBI was trying its hardest to serve a subpoena to a Mafia boss based out of Newark, New Jersey. In those days, the law was pretty clear: only if the subpoena was given directly and personally to somebody was it necessary for them to obey it and appear in court. So the Mafia boss came up with what he thought was a winning strategy: he surrounded himself with bodyguards. No subpoena-wielding FBI agent was going to get close to him!
+
+In the end, it was a young female agent, Chris Jung, who came up with a plan. She’d go undercover to the wedding of the Mafia boss’s daughter. She’d make out that she was one of the wedding guests and deliver the subpoena to the boss herself as he welcomed the guests.
+
+She was able to succeed because she was a woman in a male-dominated profession and so managed to achieve her goal without causing undue suspicion at the Mafia wedding.
+
+There are two lessons here. Firstly, generally speaking, diversity among team members will increase the chances of finding the right solution. Secondly, as Jung showed in this case, diversity can bring new ways of thinking to teams.
+
+Jung demonstrated that agency work didn’t have to be a show of strength and brawn. Disguise, intrigue and clever maneuvering could also reap rewards.
+
+These lessons don’t just apply to women in male-dominated teams.
+
+Gender and racial diversity within your team will add the kinds of perspectives that foster problem solving. That’s because your lived experiences shape the way you see the world, the way you think and, ultimately, the way you solve problems.
+
+A greater range of diverse opinions from different backgrounds will challenge people to re-evaluate entrenched perspectives and prejudices.
+
+In 2013, four different US universities invited around 200 people who self-identified as either Democrats or Republicans. They were to participate in a murder mystery scenario.
+
+Interestingly, even though the scenario didn’t involve politics at all, when the participants were told they'd be explaining their solution to the murder mystery game to people of opposing party allegiances, they prepared themselves better and worked on stronger arguments.
+
+The study showed another benefit of diversity: if a team is more diverse, the decisions that are presented will have been strength-tested for success.
+
+# For a team to work well, a little bit of tension is actually helpful.
+
+Have you ever wondered how it is that couples who argue all the time somehow stay together for years? Well, according to experts at the Gottman Institute, a research center that examines couples' relationships, frequent arguments aren't actually an indicator of long-term problems. What’s much worse is when partners stop talking to one another.
+
+Conflict is a sign that people are prepared to find a solution. On the other hand, silence can lead to serious issues if problems are left unresolved. The same is true of companies. Organizational silence can result in problems down the line. Let’s look at an example in the auto industry.
+
+In 1998, the Detroit-based Chrysler and the German car manufacturer Daimler, who owned Mercedes-Benz and Maybach, set up a merger of their companies.
+
+Three years in, DaimlerChrysler was worth only half of what it had been at the time of the merger. The venture had been a massive failure.
+
+Interestingly, the cultural differences between the two businesses didn’t result in DaimlerChrysler becoming an amalgam of the two companies’ best practices. Instead, conflict arose between the quality-oriented former Daimler employees and the utility-oriented Chrysler workers.
+
+This phenomenon is known as cognitive friction. Discussion was not encouraged between the two sets of employees, creating an environment in which each kept to their own and the groups rarely interacted. The result was *organizational silence*.
+
+This isn’t to say conflict in and of itself is necessarily a bad thing.
+
+Just look at the Wu-Tang Clan, arguably one of the greatest hip hop groups of all time. They put their differences to good use. The posse formed in the 1990s and was comprised of musicians of different characters, ages and musical influences.
+
+The Wu-Tang Clan capitalized on its internal differences, moving the whole genre forward with groundbreaking lyrics and beats.
+
+However, a point will always come when tension and conflict no longer help to stimulate discussion and ideas. The whole thing can dissolve into toxic animosity.
+
+The famous aviation pioneers, the Wright brothers, knew the risks of this too well. They had an interesting strategy to avoid full-blown hostilities. They’d actually swap sides during arguments and try to argue each other’s points. That way they could detach, resasses their own natural stubbornness, and argue against the points rather than the person.
+
+# 
+
+“*When steel rubs against steel, it makes both blades sharper*.” - RZA, Wu-Tang Clan
+
+# The power of playing together cannot be underestimated.
+
+The Wright brothers’ strategy for achieving harmony worked well for them, but it’s not easily scaled up to groups with more deep-seated animosities.
+
+For instance, at the turn of the twentieth century, many of the different communities in Buenos Aires were at loggerheads. Neighborhoods were never going to switch perspectives en masse like the Wright brothers did. But here’s something that *did* work: soccer!
+
+Argentinian national identity was evolving. The country used to see itself as one made up of rugged cowboy-like *gauchos. *Now it was dominated by *pibes, *kids who loved playing soccer on the streets. And kicking a ball around was something *all* kids could do too, regardless of race, religion or social class. This was particularly important to the Jewish community, who were facing particular difficulties in the city at the time.
+
+The soccer scene exploded. There were games on the streets and in the stadiums. Buenos Aires itself boasted a huge number of soccer teams. And, critically, when people played together, the animosities between different groups of Argentine society diminished.
+
+That might seem odd, but there are good reasons for it. Research shows that playing together makes the individuals see the other participants – irrespective of what side they are on – as part of the ‘in-group’. You feel less threatened by your opponents and actually more empathetic toward them.
+
+The brain tends to divide people either into ‘in-groups’ or 'out-groups’. That is, there are people who are similar to you whom you can trust, and there are people toward whom you’re more likely to harbor suspicious feelings.
+
+The part of the brain responsible for this division is the *amygdala*. When it identifies suspicious people, it triggers increased levels of adrenaline, sending alarm signals to other parts of the brain and body. The body’s heart rate and blood pressure will increase when this happens.
+
+It only takes something a little out of the ordinary to set off this response, even if it’s just hearing a foreign language or seeing someone acting a little strangely.
+
+In fact, it’s this chemical reaction that is the scientific basis for xenophobia.
+
+But we don’t have to let our bodies’ chemistry guide us. If people play together – as they did in Argentina – they’ll trust one another more. The result will be that in-groups expand and people will simply get along better.
+
+# When a team is stuck in its old ways, fresh blood, ideas and opinions can kick start it into action.
+
+It has become fairly common in business circles to quote the adage, "Don’t change a winning team.”
+
+On the surface it may make a lot of sense, but teams that have achieved success in the past often get stuck in their ways.
+
+That’s because whenever a team has been successful before, the tendency is to keep soldiering on in the exact same way. Innovation quickly becomes stagnation.
+
+Take the example of a company we’ll call G-Corp. In the 1980s it struck gold. It invented the successful *blister cushion*. Essentially, it was a bandage that released medication into a blister over a given time period.
+
+But, after this initial success, the company’s sales started to decline. Its fresh ideas weren’t nearly as good as the blister cushion. It failed to attract new customers.
+
+They were therefore forced to change what had once been a winning team. G-Corp’s executives hired the consultants Sense Worldwide who helped them expand the market for their products. It was a shock to the system, but it was needed. The team was able to move forward.
+
+Sense Worldwide began by setting up focus groups to help the executives understand the needs of their customer base. The focus groups were made up of people working in professions that were particularly susceptible to blisters. The executives were then made to draw a circle around the blisters on the feet of the focus group members with a permanent marker and then discuss the members’ needs with them.
+
+As a result, G-Corp came up with a new line of plaster-type products. There would be different shapes and thicknesses of plaster for different blisters, according to their severity.
+
+One final way to change up a team to enhance success, is to introduce someone into it who challenges the views of the others.
+
+In an experiment in 2009, American students were instructed to solve a murder mystery in teams of three. Yes, another murderous study – different to the one we mentioned in blink one! After 20 minutes, they were joined by a fourth member, the devil’s advocate. It was shown that the introduction of this new member doubled a group’s chances of solving the mystery.
+
+It wasn’t that the new person brought them the right answer. Rather the group was forced to consider its choice and test its argument against cross-examination.
+
+# Ideas that appear bad at first glance can lead to new, useful solutions.
+
+One particularly dismal March, the author headed to the Tretyakov Gallery to look at a groundbreaking painting. But he was left cold when he stood before it.
+
+The picture in question was Kazimir Malevich’s *Black Square*. It was painted at the start of the twentieth century, and it’s quite literally a small square canvas painted black. But the true significance of this painting lies in the story behind it.
+
+Prior to Malevich’s *Black Square*, art tended to portray reality and beauty. Even artists such as Picasso tried to capture a sort of reality, however distorted it can appear at first.
+
+*Black Square* freed art of the need to portray reality and reality alone. Art could become a vehicle for enriched visual communication and cognitive expansion. Art could be free.
+
+One of Malevich’s students, El Lissitzky, put these ideas into action. He designed propaganda posters for the Communists in Russia. Interestingly, when he realized the sort of power artists have to influence the masses, it proved too much. Consequently, Lissitzky, along with many other artists, fled for Germany in the 1920s.
+
+It was these artists who founded the now famous Bauhaus, an art movement that redefined the role of artistic function within global industry and advertising.
+
+This goes to show that it doesn’t really matter whether or not you like an original idea like the *Black Square* on initial viewing. Good ideas will still go on to have a long-lasting impact and influence. Don’t dismiss a possible solution before it’s fully formed.
+
+But there’s the other side of the coin: remember that good can come from bad ideas, even if they’re very unpopular.
+
+Take the idea that city planners in freezing Winooski, Vermont came up with in 1979. They wanted to reduce the town’s ever-increasing heating bill by covering the town with a dome through federal funds.
+
+Unsurprisingly, this wacky idea started gaining nationwide coverage, and was ridiculed from all sides of the political spectrum. It even earned an intervention from President Jimmy Carter, who gave orders to stop the dome’s construction.
+
+But the bad idea actually helped the town in the long run. Thanks to Winooski’s increased media profile, it managed to secure funding for a new hydroelectric plant nearby. Incredibly, it was the second largest funding amount per capita in the history of the US.
+
+The town was able to heat itself more economically and it all happened because one bad idea got tongues wagging.
+
+# Superordinate goals and mutual respect assist in unifying teams.
+
+When you think about it, the Communist authoritarian Soviet Union was an unusual ally for the capitalist democracies of the West during the Second World War. But when faced with the existential threat of Hitler’s forces, they put aside their differences and put their minds to the task at hand.
+
+There’s a broader lesson in this. Superordinate goals unite people from different backgrounds who have quite different ideas.
+
+An even more extreme version of this occured in the War of 1812. The British were planning to take back the newly independent USA. They planned to send military vessels up the Mississippi river, but the port city of New Orleans stood in their way.
+
+The American general, Andrew Jackson, was struggling to match British troop numbers and so was forced to muster up not only his own trained cavalry, but also African American militia, pirates, volunteers with hatchets and hunting rifles and even prostitutes.
+
+Jackson was not a tolerant man and despised his new troops. The feeling was mutual. Nonetheless, they set aside their differences and concentrated on their superordinate goal: to defend the country against the British troops. Incredibly, in 1815, this mob of unlikely comrades beat the British back and saved the country from a full invasion.
+
+However, the truce between these groups was not to last. Soon after the battle old animosities resurfaced, as signalled by the State of Louisiana attempting to reclaim pirates’ property. The truth was, though their success had been a great one, the differences between the groups were simply too absolute to be overcome completely.
+
+But it’s not impossible to avoid dissolution. Unity can be preserved if a culture of teamwork and mutual respect is nurtured.
+
+In 1954, an experiment was conducted at a boys' summer camp. The children were divided into two groups, the Rattlers and the Eagles, and they quickly came to loathe each other.
+
+However, they were given a series of challenges that forced them to compromise. They had to deal with a compromised water supply and the breakdown of the camp truck during a lake expedition.
+
+After the first challenge, the groups quickly reverted to the norm of hating each other. But as they were given more challenges and collaborated more frequently, they began trusting each other’s intentions. They started to empathize. And so a deeper sense of respect for the other group was cultivated.
+
+By the last day of camp, the old animosities had vanished. They sat together in the cafeteria irrespective of what group they were part of and sang merrily together on the bus ride back home.
+
+It sounds like a swell summer!
+
+# Members of dream teams need to have intellectual humility.
+
+In the 1950s and early 1960s, the famed civil rights activist Malcolm X was a controversial figure, to put it bluntly. Not only was he a member of the radical Nation of Islam, but his bad experiences with white people in America in his younger years also led him to a radical conclusion. For him, integration was an impossible goal, and so he advocated that black and white communities should be kept separate.
+
+This story encapsulates what years of research have shown. Namely, many of our opinions are the result of our brains interpolating belief based on our previous experiences.
+
+But there is a way out, as Malcolm X later discovered. If you're put in a strange environment, you’ll tend to reassess your intellectual standpoint with humility.
+
+Research shows that if you immerse yourself in a different culture you will become more receptive to new ideas. As you move out of your comfort zone you'll see the world from a new perspective, one that is dissociated from your individual identity. Thus profound changes of heart become more likely.
+
+What made Malcolm X finally change his ideas about separatism was his pilgrimage to Mecca in 1964 and the subsequent time he spent in Africa. All that assisted him in developing a new multicultural perspective.
+
+He saw different cultures, where people of different ethnicities lived together in harmony. It convinced him that this was also possible in the US.
+
+But ressassment doesn't come from nowhere. You have to be prepared to approach intellectual arguments with humility and recognize any predetermined allegiances or prejudices you might hold. Only then will you be able to value discussion and arguments based on their rational merits alone.
+
+Malcolm X therefore exemplifies this intellectual humility in action. He was able to reconsider his entrenched opinions and reassess them.
+
+The lesson of intellectual humility holds true for teams as well as for individuals.
+
+While it’s self evident that a diversity of opinions in a group will increase the chances that the right solution will be somewhere in the mix, it doesn’t necessarily mean that the right solution will be the one that is settled on.
+
+This is where intellectual humility comes in. If people are willing and able to reconsider their opinions, then it’s more likely that a difference of opinions will result in rational debate. And if people are able to debate rationally, then it’s more likely that the right answer will be chosen.
+
+# Sharing stories leads to increased empathy.
+
+So far we’ve seen how intellectual humility, lively discussions, regulated dissent and common goals all help in creating a dream team. But there’s more that can be done.
+
+When team members hear colleagues’ life stories, it elicits empathy. Teams therefore improve as members better understand one another.
+
+A series of experiments conducted by Paul Zak of Claremont University looked into *oxytocin* production in participants under certain conditions. Oxytocin is important as it’s the hormone that’s produced when we experience trust or kindness, making us more empathetic toward one another.
+
+Zak demonstrated that when people were shown charity advertisements that relayed cancer patients’ stories or abuse suffered by pets at animal shelters, the participants’ bodies produced much more *oxytocin* than when shown ads that conveyed statistics about cancer patients or animal abuse.
+
+They were also more likely to donate money after seeing the story-based ads than the stat-based ads.
+
+There's a reason for this. Stories make us relate to one another much better than dry numbers. It's simply much easier to put ourselves empathetically in their shoes.
+
+The effect can be scaled up too: people’s stories have been front and center of some of the most important social justice milestones to date.
+
+Take the examples of Asian Americans and gay people in America. Attitudes toward these two groups changed significantly over the course of the last century.
+
+During the Second World War, Asian Americans were some of the most negatively stereotyped minorities in the country. And after the Japanese attack on Pearl Harbour in 1941, over 120,000 Asian Americans were put into prison camps, supposedly because they were all potentially capable of conspiring with a foreign power.
+
+Eventually, positive characters in film and on TV helped people relate more to Asian Americans. One such character was Hikaru Sulu in *Star Trek*. He was eloquent, and so challenged racial stereotypes.
+
+It was a similar story with homosexuality. Over 50 percent of Americans in the 1950s believed that homosexual activity was criminal and warranted jail time.
+
+But when gay people started bravely coming out, and sharing their stories *en masse*, attitudes began to change.
+
+All it can take is a bit of sharing and empathy for things to work out for the better.
+
+Dream teams can be difficult to assemble and to maintain. But a good mix of diversity, provocation, intellectual humility and compassion will see you through in the end. It's definitely worth the effort.
+
+# Final summary
+
+The key message in these blinks:
+
+**Many of us have witnessed those moments when, as working as part of a team, everything comes together and something lasting is produced. What’s more, the result can be greater than the work of any one individual. However, most of the time, teamwork is frustrating. We can be left thinking that going it alone was best. But that’s not true! If we’re respectful, empathetic, open-minded, ready to be challenged and willing to listen to dissent, then a true dream team can emerge and achieve the very best results.**
+
+Actionable advice:
+
+**Reverse roles.**
+
+Next time your team is stuck in an argument where neither of the sides is willing to compromise, suggest switching sides. If you’re forced to argue for the idea you were arguing against, you’ll find this will not only ease the tension, but also make everyone see the benefits of both ideas more clearly. The right solution won’t be far away.
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****Team of Teams *****by General Stanley McChrystal with Tantum Collins, David Silverman and Chris Fussel**
+
+*Team of Teams *(2015) lays out the many ways that even large organizations can benefit from the agility and savvy of small teams. By building a team of teams, companies can better manage the complex, interconnected issues that often mean life or death for a company.
+
+
+Source: [Dream Teams by Shane Snow](https://www.blinkist.com/en/nc/daily/reader/dream-teams-en/)

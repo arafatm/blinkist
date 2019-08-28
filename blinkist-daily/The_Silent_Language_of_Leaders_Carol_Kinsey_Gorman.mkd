@@ -1,0 +1,163 @@
+![The Silent Language of Leaders](https://images.blinkist.com/images/books/568aea8ede78c00007000009/1_1/470.jpg)
+# The Silent Language of Leaders
+*Carol Kinsey Gorman*
+
+>Strong leaders have to project the right body language and be able to read it well in their team members if they want to lead them to success. The Silent Language of Leaders (2011) offers tips for reading and controlling body language, even in cultures where social cues differ.
+
+
+# What’s in it for me? Master your body language and become a true leader.
+
+Have you ever wondered why some people are so convincing and engaging as leaders? Self-confidence and a way with words is part of it – but not the whole story. Words and arguments, no matter how well they’re crafted, aren’t enough to engage or motivate others.
+
+What you need is the right body language. 
+
+Body language is tremendously powerful. Standing in front of your team, even before anything you’ve said has reached their ears, you’ve already said so much. Your posture, the way you move your feet and arms, even the dilation of your pupils – these are just some examples of the body language that can make or break your image as a trustworthy and empathetic leader.
+
+In these blinks, you’ll learn
+
+- why body language is so similar around the world;
+
+- why you should avoid the Intimate Zone; and
+
+- why women are better at reading body language than men.
+
+
+# Strong leadership requires good communication – body language included.
+
+Let’s start at the very beginning. Strong leaders need strong communication skills. Good communication, though, is about more than words. It’s about body language too.
+
+You won’t convince or inspire anyone without the right body language. Even worse, you might make a bad first impression. However, the right body language – conveyed through your posture, gesticulations, facial expressions, eye contact, touch and smell – will help you build empathy with whoever you’re communicating with. 
+
+As a leader, your body language is interpreted and judged almost instantly. In fact, studies show that we evaluate a person’s credibility, confidence, likeability and trustworthiness within seven seconds of meeting them. Seven seconds! That’s well before you can deliver your well-written speech.
+
+How does it happen so fast? Well, because of how the brain works. Body language is fundamentally rooted in the brain’s *limbic system*. 
+
+The limbic system is a set of brain structures responsible for emotion and memory. It’s the part of the brain that receives and processes emotional information. In that way, it serves as a kind of alarm system. As it first receives information, it quickly determines if something is threatening. 
+
+Since humans are all wired the same way, and we all have a limbic system, body language is more or less the same across different cultures. Basic expressions of fear, surprise and anger are all the same around the world. That’s also why body language was one of the earliest forms of human communication. It allowed early humans to decide within seconds if a person was a friend or a threat. 
+
+Thankfully, nowadays we don’t rely on body language to stay alive, but it remains an important skill in business.
+
+# Successful leaders can both read good body language and project it themselves.
+
+Do you cross your arms when asking a question? If so, stop! It doesn’t matter if you’re crossing your arms because you’re cold. Body language is in the eye of the beholder. The conversation partner interprets it in his own way, regardless of your intentions. 
+
+When we meet a leader, we subconsciously judge his warmth and authority right away. You convey warmth through more “open” body language, like facing your speaking partner, synchronizing your movements with his, nodding, smiling and keeping your arms and legs uncrossed. 
+
+Power and social status are also conveyed through body language. So if you want to come off as strong and authoritative, maintain good posture, speak clearly and keep your eyes focused. People want leaders who can project stability and confidence this way.
+
+That’s also why body language is so important in politics. When we size up a politician, the first thing we judge is his party affiliation; second is body language. In fact, Richard Nixon lost to John F. Kennedy in the first ever televised presidential debate largely because he kept fidgeting and wiping his forehead. That made him appear more stressed and less confident than JFK.
+
+In the future, body language will become even more important. The job market is growing more and more culturally diverse with each passing generation. In a multicultural team, body language is key to communicating with people from different backgrounds. Just imagine managing an office with employees from a dozen different countries. You might not be able to communicate fluently in everyone’s mother tongue, but you can convey trustworthiness and warmth with the right body language.
+
+Lastly, increasing video communication and other technology will increase the need for good body language in leaders. After all, the more we can see our leaders, the more we’ll be able to judge them by their body language. If you have to present your quarterly report across the globe via video conference, people who you don’t interact with on a daily basis will be watching and instinctively judging your body language.
+
+# Mastering body language helps you become a better negotiator.
+
+Just as communication isn’t only about choosing the right words, negotiating isn’t only about strong arguments and leverage. When it comes to negotiating, nothing is more persuasive than body language. 
+
+MIT studied the impact of body language by having business executives present business ideas to each other while wearing a device that recorded their tonal variety, vocal nuance and nods. The device accurately predicted to what extent an executive would convince the jury, based purely on their body language. Standing upright, facing the jury and speaking in a lower tone all increased the chance the jury would be convinced. 
+
+But in addition to controlling your own body language, you also need to be good at *reading* it if you want to be great at negotiating. Here are some tips: 
+
+1. Avoid looking down at your papers or anything else in the room. Focus on your conversation partner. This conveys your interest.
+
+1. Identify some baselines in your conversation partner’s body language. How much eye contact do they normally make? How much do they move around? You could misread them if you don’t understand their regular behavior.
+
+1. Keep an eye out for *gesture clusters*. Gesture clusters are sets of gestures that mean something when they occur together, but not necessarily on their own. Wringing of the hands, for example, doesn’t always signal discomfort, but it does if the person is also fidgeting and avoiding eye contact.
+
+1. Finally, keep the context in mind. The people sitting in the front row of an auditorium usually cross their legs to create a barrier between them and the stage, for instance. The crossed legs don’t necessarily mean they’re disengaged from the performance. 
+
+
+Don’t forget about feet, either. Body language isn’t only eyes and arms. If a person keeps moving her feet, she is probably bored or uneasy. If you want to come off as a strong leader, keep your feet still!
+
+# Even with today’s communication technology, body language is important for enacting change.
+
+In order to impose any kind of meaningful change in business, all your team members need to be on board. Humans are hardwired against change, however, and naturally want to do things as they’re used to doing them. 
+
+So people need to be motivated into change. How? The best method is through positive emotions. If even just one of your team members shows resistance to change with her body language, it can spread to the other members like a virus.
+
+That’s why you as the leader have to foster optimism with the way you present yourself. Maintain eye contact, make a confident entrance and send the right signals with your hands. Keep your palms down on the table, for instance. It conveys power and certainty. Never freeze up or look like you want to leave; those are signs of defensive behavior.
+
+The ability to convey these signals through your body language is crucial, even as more and more communication technology allows us to communicate seemingly without any body language. These communication technologies are split into two forms: *lean* and *rich*. 
+
+*Lean* communication is text-based, like chats and emails. Lean communication is often convenient for the person sending the message but can be easily misunderstood.
+
+*Rich *communication, on the other hand, uses images or a person’s voice. Emotions are much clearer in rich communication than lean communication, so it’s an essential tool for building good relationships and trust.
+
+If you use technology for rich communication, don’t forget to enunciate well and keep good eye contact just like you would in a face-to-face conversation. Otherwise, your communication isn’t really “rich.”
+
+Face-to-face communication is still the best, however. That’s why the best leaders make an effort to meet employees in person, even if they’re always available via text or call.
+
+# Positive body language is a crucial part of effective collaboration.
+
+Body language, especially positive body language, is also crucial to fostering good working relationships with others.
+
+If you let your gaze wander while a person is speaking, for instance, they’ll feel unimportant or left out. That could lead to them withdrawing and losing motivation in whatever you’re working on together. 
+
+But humans are designed to collaborate with each other. In fact, our brains even have *mirror neurons* that fire the same way whether we perform a certain action or watch someone else do it. Mirror neurons help build emotional connections, as they cause us to empathize with other people’s joy or sorrow. 
+
+Mirror neurons play a role in business too. It’s because of mirror neurons that some employees subconsciously mimic their leader’s behavior. So use body language that facilitates collaboration. Smile and show your appreciation for the person who’s speaking. Turn toward them to signal that you’re listening and try not to be separated behind a barrier like a desk. 
+
+Just be careful not to go overboard with warm body language – you’ll make an employee uncomfortable if you get too close. Americans have an *Intimate Zone* of about 18 inches, reserved only for the people they’re closest with. It’s followed by the *Close Personal Zone*, for friends or trusted business partners, which reaches about two feet. The *Far Personal Zone, *which is usually best for business colleagues, reaches about four feet. The *Social Zone* comes after that. 
+
+Keeping these zones in mind can be useful at the office and team building events. For example, as a rule, team building should always start in the Social Zone and move toward the Far Personal Zone.
+
+# 
+
+*“When others show us respect and appreciation, it triggers the same centers in the brain that are activated when we eat chocolate or have sex.”*
+
+# Gender plays an important role in body language.
+
+We all know that women and men are equally capable of being excellent leaders. But there are major differences in how male and female leaders communicate. Why? Once again, it goes back to the brain. 
+
+For instance, men and women process emotions differently. Both men and women have mirror neurons, but in male brains, another system (the temporoparietal junction) takes over shortly after the mirror neurons are fired. This system causes men to focus more on analysis and problem solving. In contrast, female brains continue processing emotions longer. 
+
+Men and women also react differently to stress. Men tend to have more fight or flight reactions, whereas women show more emotional responses and use their limbic system more. So, interestingly enough, stress reduces men’s ability to empathize, but it increases empathy in women.
+
+When a new person enters a room, for example, men in the room will instinctively look for escape routes. Women tend to look at the face of the new person for longer to assess if they’re a threat or not; they’ll only look for escape routes if they feel threatened.
+
+Naturally, these differences affect body language. How?
+
+Female body language conveys empathy more effectively. They make eye contact and smile more often than men. They’re also better at reading other people’s body language. That’s why female leaders tend to be more personable. Female leaders’ main risk is appearing indecisive or insecure instead of personable and empathetic.
+
+Male leaders, on the other hand, usually prefer to project strength, power and authority. Male body language is more blunt and direct, and less responsive to emotion. That’s why men are more likely to act insensitive or overconfident. 
+
+# Understanding cultural differences in body language is vital in today’s multicultural business world.
+
+What does it mean when a person puts his thumb and forefinger together to create a circle? Your answer depends on where you’re from. In the US it means “OK,” in France it means “worthless” or “zero,” in Japan it relates to money and in some places it’s considered obscene. It’s a gesture that can create a lot of misunderstanding.
+
+These cultural differences are more and more obvious in our increasingly diverse world. So it’s important to know how to adjust your behavior in formal situations, by being stronger in Arab countries for example, or softer in the US.
+
+When you hand someone a business card in Japan, for instance, pass it with two hands and bow as you do. Anything else is considered rude. Don’t do that in the US, however! It would definitely come off as weird.
+
+Cultural practices like bowing vary across the globe but body language is mostly the same. Everyone can identify the seven basic emotions: joy, surprise, sadness, anger, fear, disgust and contempt. You’ll recognize those no matter where the person comes from.
+
+It’s also easy to identify fake emotions. Facial expressions that last too long or are asymmetrical create skepticism all over the globe. Contempt is really the only facial expression that’s naturally asymmetrical.
+
+Certain social concepts do get expressed differently around the world, however, so proceed carefully. Touch, for instance, is more common in Brazil than in Australia. In some cultures it’s normal to maintain eye contact, whereas it could come off as offensive in others. 
+
+The best approach is to learn as much as you can about a person’s cultural norms before you work with her. That way you’ll get the most out of all you now know about body language!
+
+# Final summary
+
+The key message in the book:
+
+**Leadership relies on communication, and communication isn’t just about words. So develop body language that helps foster positivity and collaboration among your team. The best way to harness the power of body language is to learn how to use it to be open and warm and pay attention to the body language of others.**
+
+Actionable advice
+
+**Touch is important. Don’t overlook it.**
+
+Physical touch is the most primal and essential form of nonverbal communication. It fosters feelings of trust by releasing *oxytocins* and reducing levels of the stress hormone *cortisol.* Of course, touch can certainly be uncomfortable in business situations if used inappropriately, like if a man touches a woman in a way she finds threatening. But that doesn’t mean it should be avoided entirely. For great leaders, touch is an important part of body language. You can use it to motivate your employees and convey feelings of warmth and empathy.
+
+**Suggested** **further** **reading:*****What Every BODY is Saying *****by Joe Navarro**
+
+This book is all about the hidden meanings we can find in our body language. Our brains control our body movements without us being conscious of it, and sometimes those movements can be very revealing. This book goes into detail about the ways you can train yourself to become an expert in observing other people’s nonverbal cues and uncovering their meaning.
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+
+Source: [The Silent Language of Leaders by Carol Kinsey Gorman](https://www.blinkist.com/en/nc/daily/reader/the-silent-language-of-leaders-en/)

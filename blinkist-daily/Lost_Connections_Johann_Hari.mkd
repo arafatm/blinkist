@@ -1,0 +1,294 @@
+![Lost Connections](https://images.blinkist.com/images/books/5b8f95d1b238e10007eeca35/1_1/470.jpg)
+# Lost Connections
+*Johann Hari*
+
+>Lost Connections (2018) takes you on a historical and scientific journey that dispels many of the lingering myths surrounding depression and the reasons it touches so many of us. Along the way, author Johann Hari introduces readers to the cutting-edge advancements being made by those looking into new solutions for depression and anxiety.
+
+
+# What’s in it for me? Understand the true nature of depression and how to break free from its grip.
+
+There’s a very good chance that you, or someone you know, has battled with depression. The unfortunate truth is that there are many aspects of today’s hectic, competitive and isolating culture that contribute to making depression an all-too-common part of modern life.
+
+The author Johann Hari argues that the main causes of depression have been misunderstood for quite some time, thanks in part to powerful pharmaceutical corporations emphasizing the claim that depression is primarily due to a so-called “chemical imbalance” in the brain. As we’ll see in the blinks ahead, this isn’t the widespread cause of the everyday depression that so many people experience.
+
+The real culprits aren’t biological conditions, but rather unresolved trauma, isolation, misplaced values around status and money or simply a bad working environment. But don’t despair – we’ll also see how each of these factors can be dealt with or improved, and that a life of depression can be made into a prosperous one of hope and goodwill.
+
+In these blinks, you’ll find out
+
+- why Prozac is a lot like *Haygarth’s wand*;
+
+- what a bike shop in Baltimore can teach us about a healthy work environment; and
+
+- how a social prescription might be better than a pharmaceutical one.
+
+
+# Contrary to claims made by pharmaceutical corporations, depression is not the result of a chemical imbalance.
+
+The author, Johann Hari, was 18 years old when he took his first antidepressant medication, but by this time he’d already had years of experience with depression.
+
+Even as a young child, Hari had his fair share of moments alone in a room, weeping uncontrollably. He came to understand that he was experiencing the symptoms of depression. When he went to his doctor for treatment, his doctor explained that the cause of depression is a chemical imbalance in the brain, which can be alleviated with prescription antidepressants.
+
+For Hari, this meant taking Paxil, one of many drugs on the market classified as *selective serotonin reuptake inhibitors *(SSRIs), which claim to raise a person’s serotonin levels to that of a “normal,” non-depressed person.
+
+Like many patients taking SSRIs for the first time, Hari experienced some initial relief, but it didn’t last long. So his doctor upped the dosage, leading to another period of relief followed by a relapse into depression and yet another increase in the dosage.
+
+One thing Hari could be sure about was that Paxil was causing him to gain weight and sweat more than usual. Eventually, in his 30s, Hari was faced with the truth: After over a decade of Paxil, he was still depressed. Following this realization, he embarked on an extensive period of research on the topic of depression and antidepressants, and what he discovered was truly shocking.
+
+After speaking to a number of researchers, Hari found that there was little evidence to support the claim that a chemical imbalance causes depression, or that SSRIs are an effective treatment for everyone suffering with depression.
+
+In the mid-90s, Harvard professor Irving Kirsch began taking a close look at the research on antidepressants. What he found was that the clinical tests being published by pharmaceutical companies were routinely skewed in order to get their medications released.
+
+During the clinical testing for Prozac, for example, 245 patients were tested. But in the published results, only the 27 patients that experienced positive results were mentioned. As for Paxil, the unedited results of one clinical test showed that patients responded better to the placebo than to the actual medication.
+
+Kirsch also researched the claims of a link between depression and the neurochemical *serotonin*. He found the connection to be an “accident of history” whereby scientists had misinterpreted findings and pharmaceutical companies had latched onto this misinformation to sell drugs.
+
+As the University of London professor Joanna Moncrieff told Hari, when it comes to anxious and depressed brains, “There’s no evidence that there’s a chemical imbalance.”
+
+# Any effectiveness in antidepressant medication is likely due to the placebo effect.
+
+Hari found it hard to believe what he kept hearing from one researcher after another: Drug companies have been pushing a phony story on an unwitting public and after countless tests, antidepressant medication has been shown to be of negligible use.
+
+What this shows us is how important a story – phony or otherwise – is in producing a placebo effect.
+
+The power of the placebo effect is well known in the medical community. One famous story is of Henry Beecher, a WWII medic who ran out of morphine while trying to treat an unending supply of wounded soldiers. He decided to tell his patients he was giving them morphine, when in fact he was giving them a placebo of sugar water. Remarkably, the injections still managed to ease the pain and calm his patients.
+
+Perhaps even more remarkable is the story of Haygarth’s wand: A metal rod sold to patients as a miracle cure in 1799. All you needed to do was wave the wand over your ailment and believe you were healed! Sure enough, patients believed in the miraculous story, their ulcers healed and their inflammation was soothed – for some time at least.
+
+This shows just how strong the power of belief can be. Looking at the evidence surrounding antidepressant medication, it would seem that drugs such as Paxil and Prozac aren’t much different than Haygarth’s wand. Depressed people are often told they have too little serotonin in their brain and that medication will give them more, which will make them better. Just like the supposedly powerful wand, this results in an initial benefit that eventually wears off.
+
+You might think that since the placebo effect does provide some measure of relief, this misinformation isn’t so bad. But consider the long list of side effects – including weight gain and sexual dysfunction – which makes those temporary benefits seem all the more questionable.
+
+If it isn’t a chemical imbalance, then what’s the cause of depression? As we’ll see in the next blink, there’s more than one reason for feeling sad and hopeless.
+
+# 
+
+*“The [pharmaceutical industry] is just sick and bought and corrupted, and I can’t describe it otherwise.” *– Professor John Ioannidis, Stanford University
+
+# There are at least nine common causes for depression, based on the idea that depression is caused by difficult life circumstances.
+
+If depression isn’t based on a chemical imbalance, what’s the underlying cause?
+
+From his own experience, and through speaking with researchers about their extensive studies on depression, the author found nine primary causes of depression. What connects all of them is the fundamental understanding that depression is primarily due to life circumstances.
+
+In the 1970s, George Brown theorized that the causes of depression might be twofold: Something going on in the brain and something going on in the life of the person. To find out if he was right, he conducted an extensive study that included 144 women who’d been previously diagnosed with depression, and an additional 344 women who’d never been diagnosed with a disorder. Importantly, all the participants came from the same economic background.
+
+If the cause of depression was purely due to serotonin levels, then the results should show that the life experiences of the subjects bear no significance on their mood. However, Brown discovered that 68 percent of the group diagnosed with depression had recently experienced a troubling event in their lives. He found that depressed women were *three times more likely* to have what he called a “long-term chronic stressor” in their lives.
+
+Brown’s study also shed light on the differences, or lack thereof, between those diagnosed with “reactive depression,” – the clinical term for an event-caused depression – and “endogenous depression,” which is how a supposed chemical imbalance is categorized. Remarkably, the results showed that each group had an equal amount of negative experiences in their past.
+
+In other words, Brown was surprised to find overwhelming evidence that the primary causes of depression were psychological and social, not biological. Brown published his results in 1978, and even though other studies conducted by social scientists around the world supported Brown’s findings, much of the medical community has remained stubbornly focused on neurotransmitters.
+
+# The first main cause of depression is a disconnect from meaningful work – something that’s alleviated when employees feel empowered.
+
+Through his research and numerous interviews, Hari found nine causes, or *disconnections*, that lead to depression, as well as seven ways for people to *reconnect*.
+
+The first disconnection is from meaningful work.
+
+This is perhaps best reflected in the astounding statistic that, from 2011 to 2012, only 13 percent of people describe themselves as being “engaged” by their work.
+
+One of the most thorough studies to examine how our work affects our health was conducted by psychiatrist Michael Marmot in London in the 1970s.
+
+After studying 18,000 British civil servants, Marmot discovered it wasn’t the bosses with big responsibilities who were more prone to heart attacks – but that those bosses were four times *less *likely than others to have a heart attack.
+
+To find out who experienced the most stress and depression, Marmot looked at people with the same pay level, status and even the same office workspace. The results were clear: those with less control and authority to make their own decisions were more likely to be depressed.
+
+How bad can lack of control get? Years later, Marmot was asked to help the British tax office when staff were committing suicide in alarming numbers.
+
+The problem was that work kept piling up and the employees could do nothing to stop it. There was also no correlation between effort and reward – no one seemed to care whether employees worked hard or slacked off. As Marmot saw it, the overall sense of powerlessness became so unbearable that people were taking their own lives.
+
+Fortunately, there are ways to reconnect with meaningful work. In Baltimore, the author met with the owners of a bike shop who found one answer to the problem of powerlessness: democracy.
+
+Josh, his wife, and a small group of friends all quit their jobs to become equal partners in Baltimore Bike Works – a new business modeled after the “cooperatives” that had been popular in the US prior to the late 1800s. They held weekly meetings where all important decisions were voted on, and anyone could raise an issue to voice their concerns.
+
+Everyone Hari spoke to reported feeling less anxiety and depression at the Bike Works than they had while working in top-down jobs. Josh’s wife, Meredith, no longer had the sleepless nights, filled with feelings of dread and nervousness, that had plagued her time at a nine-to-five desk job.
+
+# The second cause of depression is a disconnect from other people. The solution is to foster mutually beneficial relationships.
+
+The US and UK have a strong focus on individuality, with books that focus on “self-help” and people sharing slogans on Facebook like “Only you can help you.” But this individualist mindset tends to ignore the wide range of outside influences that affect our emotional state.
+
+One of the biggest influences is our relationship to other people, which brings us to the second significant source of depression: a disconnect from others.
+
+Loneliness can play a big role in feelings of stress and depression. Neuroscientist John Cacioppo showed how loneliness directly contributes to increased heart rates and higher levels of the stress-related hormone cortisol. In his studies during the 1990s, Cacioppo found that acute loneliness causes as much stress as being punched by a stranger!
+
+What makes loneliness especially dangerous is that it can make a bad situation even worse. We withdraw into ourselves when we’re sad, the loneliness only adding to the anxiety.
+
+To reconnect with others, we should honor our inherent tribal nature and be part of a mutually beneficial community that shares, helps and protects one another.
+
+One amazing example of people benefiting from togetherness happened in the Berlin neighborhood of *Kotti*, shortened from Kottbusser Tor, the name of the subway station after which the district is named.
+
+It began in 2011 when rents in the area were being raised. An elderly wheelchair user named Nuriye was facing eviction, so she posted a note stating her intentions to kill herself rather than lose her apartment. Neighbors saw the note, and before long had barricaded the road in front of their apartment complex and began protesting the rent increases.
+
+Conservative Turkish Muslims, gays and punks all joined forces, calling their movement Kotti &amp; Co. Once the movement was underway, the neighbors found that rent control was just one way in which they could support each other.
+
+Before Kotti &amp; Co., one high schooler was on the brink of flunking out of school, but after joining the protest, met a neighbor who helped him with his homework and was able to get his grades under control.
+
+Also among the group’s members was a homeless Turkish man, Tuncai. One day, the group discovered that Tuncai had been forcibly taken back to a psychiatric institute. Members of the group came together to rescue him from the facility, as they all knew that being part of Kotti &amp; Co. had given him purpose and helped him to get better.
+
+# The third cause of depression is a disconnect from meaningful values, so don’t lose sight of what’s important.
+
+A recent ad campaign in London featured posters of a slim and tanned woman with the question “Are you beach body ready?” People were so riled up by the ads that the campaign was discontinued, and graffiti began showing up on *other *ads which read “Advertising shits in your head.”
+
+As it turns out, multiple studies have backed up this sentiment by showing how our consumer-driven society has left us disconnected from meaningful values and, as a result, depressed.
+
+At the heart of this disconnect are two types of values: *intrinsic *and *extrinsic*.
+
+If you play piano for the delight it brings, you’re motivated by *intrinsic *value. If you play the piano solely for money, then you’re motivated by *extrinsic *value.
+
+Likewise, the primary goals in your life can also be influenced by both types of values. Dozens of studies show how advertisements push us toward extrinsic values, which are proven to be less rewarding.
+
+Psychologist Tim Kasser has conducted multiple studies showing how the more consumer-minded and extrinsic-valued people are, the more depressed they become. Meanwhile, those who focus on intrinsic goals, such as helping others or becoming better musicians for the sheer joy of it, saw a significant boost in their mood.
+
+Now, you may be thinking: “Wait a minute, buying a new iPhone does bring me joy!” But ask yourself one question: Why does it make you happy?
+
+When we’re obsessed with buying new gadgets or other consumer goods, it’s usually because we want to appear cool or impressive to others. This means our happiness is reliant on outside factors and opinions, which isn’t a stable, happy way to live.
+
+Likewise, when we chase after promotions and more money, we’re usually doing so at the cost of more intrinsically meaningful things like relationships and spending time with loved ones.
+
+The key to reconnecting with meaningful values is to be aware of your motivations and to keep questioning where you’re spending your time and money. This will help you to focus on what’s truly meaningful to you.
+
+Tim Kasser has taken his own research to heart by finding a peaceful ten acres of land in Western Illinois where his family can focus on gardening, activism, volunteer work and the things that enrich their lives.
+
+# The fourth cause of depression is a disconnect from childhood trauma.
+
+There’s been a lot of talk about an “obesity epidemic” over the years, with the discussion usually focused around learning better nutritional habits and getting more exercise. What goes largely unmentioned, however, is the role that depression and trauma can play in both weight gain and depression.
+
+In the 1980s, Dr. Vincent Felitti conducted a remarkable study on obesity that showed how a disconnect from our past traumas could lead to depression.
+
+Interestingly, Dr. Felitti didn’t set out to make this connection. Instead, his study involved seeing if an extreme fasting diet could help a group of obese people to quickly and safely shed weight. At first, the results were impressive: One woman named Susan went from 408 pounds down to 132 pounds. But Dr. Felitti was surprised when Susan, and others, quickly put the weight back on.
+
+Sensing there was something else was going on, Dr. Felitti began talking to the participants about their lives. He was shocked to discover that 55 percent of them had instances of sexual abuse in their past and that it was immediately following these events that they began putting on weight. Susan started putting on weight after she’d been raped by her grandfather when she was 11 years old.
+
+But why put on weight? As some participants put it: “Overweight is overlooked.” That is, being larger made them feel protected from unwanted male attention.
+
+After Dr. Felitti expanded his research to include 17,000 people in the San Diego area, the evidence also showed that the more traumatic your childhood, the more likely you were to be depressed. According to the study, emotional abuse is the most influential factor – even more so than sexual abuse.
+
+These results were surprising to both medical journals and public health agencies since it was another strike against the widespread belief that depression was a dysfunction of the brain.
+
+The study showed that the proper question to ask is not “What’s wrong?” but rather “What happened?” By acknowledging and talking about past trauma, people can reconnect with the troubling events in their lives and begin to move past them.
+
+The author has his own traumatic past – having been abused and strangled with an electrical cord as a child. Once he began to acknowledge this, he was able to stop feeling that he deserved the bad things that happened to him and that he was to blame for them.
+
+# The fifth cause of depression is a disconnect from status and respect, and the sixth is disconnection from nature.
+
+People don’t study baboons and bonobos just because they’re fun to watch. These animals are very much our primate cousins and have plenty to teach us about human nature.
+
+First of all, there’s the issue of how important status and respect are to our well-being, and how a disconnect from these can lead to depression.
+
+Baboons live in a strict hierarchy: the alpha male can take food from whomever he pleases, number two can take food from number three, and so on until you get to the poor fellow at the bottom.
+
+By testing the cortisol levels of baboons, researcher Robert Sapolsky found that those on the bottom rung had extremely high levels of stress. He also found that the alpha male had large amounts of stress when being challenged by another male.
+
+For humans, there are a number of ways we can be made to feel inferior – including being exposed to ads that suggest we’re nothing without money to burn and the perfect body.
+
+Studies also show that places with greater gaps in wealth, like the US, have higher levels of depression than places where wages are closer to being equal, such as in Norway. It’s up to us as a society to either create stressful, depressing environments with strict hierarchies, or ones where status and respect are more evenly applied.
+
+Another cause of depression that can be observed in primates is a disconnect from nature.
+
+Since her 20s, Isabel Behncke has studied “the nature of human nature,” and witnessed how bonobos in the wild cope with stress. When they stop grooming and sit apart from the others, it’s clear that they’re depressed. But when they’re taken away from nature, things get much worse: they’ll scratch till they bleed, howl and rock back and forth.
+
+Nature is important for us too. Studies show that people in greener neighborhoods experience less stress and despair, while immersion in nature reduces obsessive thoughts and boosts concentration.
+
+# 
+
+In a study of prisoners who had either a view of nature or a brick wall, those with a view of nature were 24 percent less likely to get physically or mentally sick.
+
+# The seventh cause of depression is a disconnection from a hopeful and secure future.
+
+If you’ve been through a period of depression, there’s a good chance you felt it wasn’t going to end. This is one of the traits that makes depression so powerful – you can’t see past it. Such inability to see a future goes hand-in-hand with a disconnection from feelings of hope and security.
+
+One of the main reasons we feel hopeless about the future is the disconnection from our sense of control over our own destiny.
+
+In Canada, there’s been an epidemic of suicides in Native American communities. When psychologist Michael Chandler looked into this, he found that the suicides were taking place among the residents of government-controlled reservations – communities where the government controls the schools, enforces the laws and gives no control to the residents.
+
+Chandler also saw that some reservations had managed to reclaim their land. In these communities, the Native Americans controlled the elections, police, health services and could even revive their native languages by having them taught in schools. Chandler recognized that the people were in control of their destiny. Suicide epidemics didn’t occur there.
+
+Disconnect from a sense of security is another powerful factor influencing our well-being.
+
+Here’s another example from Canada: In 1973, the Manitoba town of Dauphin was home to an experiment that provided people with an automatic minimum wage equal to $19,000 a year in today’s money. It was canceled in 1979 by a new conservative government that was displeased with the concept, though 1800 boxes of data on this experiment still exist.
+
+The data shows that in just three years, there was a 9-percent drop in people seeking medical help for mood disorders. People who lived there at the time remember how the money acted as an insurance policy for a farming town whose fate rested largely on canola crops.
+
+Once the automatic wages arrived, inhabitants worried less about their children’s futures and could use the money to access the education they otherwise wouldn’t have been able to afford.
+
+In other words, the automatic minimum wage helped people reconnect with their sense of the future *and *with meaningful work.
+
+# Genes and changes in the brain are the final causes of depression, but their influence is limited.
+
+While there’s a strong case against the story of depression being caused by a chemical imbalance in the brain, this doesn’t mean there aren’t any biological factors involved in depression.
+
+Your brain is always changing. In the sciences, this is referred to as *neuroplasticity*. The case may be that brains change in such a way that supports depression.
+
+We can see evidence of neuroplasticity all around us. For example, if you’re a London cab driver having to memorize every road in the city, the area of your brain related to spatial recognition will grow stronger.
+
+Likewise, if you spend more time engaged in thoughts of fear and despair rather than joy and pleasure, the areas associated with positive feelings will weaken, while the ones associated with negative feelings will strengthen.
+
+You may also have heard that depression runs in the family – that it’s in your genes and you’re doomed to suffer the same fate as your depressed relatives. But this is grossly overstating the true nature of genetics.
+
+Research shows that genes account for only 37 percent of cases of depression. To put that into perspective, height is 90 percent determined by your genes while that percentage drops to zero when it comes to determining your language. So, genetics play a relatively small role when it comes to the causes of depression.
+
+To be more precise, researchers found there to be a variant of a gene known as *5-HTT* that can make you more susceptible to depression. It’s a lot like having a gene that can make you susceptible to weight gain – it’s notable, but it isn’t *causing *the weight gain.
+
+Researchers think there are multiple reasons why people latch onto the idea of there being biological causes for depression.
+
+For one, there’s still a stigma attached to having depression. So, when someone confronts you about it, it’s often simpler and easier to attribute your suffering to biology rather than a combination of factors in your life.
+
+# Social prescribing is a solution that connects people to one another, and to meaningful work.
+
+We’ve covered the nine causes of depression that Hari identified, and for most of these disconnections, there’s an obvious *re*connection: reconnecting to other people, meaningful work, meaningful values, a hopeful future and acknowledging and overcoming trauma.
+
+The final two reconnections concern ways of actively combating depression. The first is through something called *social prescribing*.
+
+By the time she met Dr. Everington, Lisa had quit her job as a nurse in a London hospital. After complaining that her fellow nurses were mistreating the patients in the psychiatric ward, Lisa’s co-workers turned on her, making her job unbearable. Having grown up in a household where she’d been aggressively picked on, she couldn’t take being bullied at work. So one day she just stopped showing up.
+
+Around this time, Lisa started taking Prozac, which made her gain weight. For the next seven years, she proceeded to feel horrible about herself and only left the house to buy junk food. Then one day, she worked up the courage to follow her doctor’s advice and visit an East London clinic run by Dr. Sam Everington.
+
+Instead of prescribing more drugs, Dr. Everington gave Lisa a social prescription which involved working with a small group of other disconnected people to turn an abandoned piece of London wasteland into a healthy garden. Things started out tentatively, with people being a little guarded around one another. But they’d all agreed to take on the challenge and together learned the basics of gardening and how to fix up the abandoned lot.
+
+In doing so, they opened up to one another and saw that they had a lot in common. Lisa would never have guessed she had a similar life to that of an elderly Asian man, yet he too had been bullied at work.
+
+There was great satisfaction from getting their garden to bloom and receiving thanks from people in the neighborhood. Eventually, Lisa came off Prozac, dropped 62 pounds and moved to Wales to open her own gardening center. But all this would never have happened had she not received that social prescription from Dr. Everington.
+
+# Psychedelic drugs and meditation can help people dissolve their ego and find sympathetic joy.
+
+One of the symptoms of depression is what psychologist Fred Barrett calls “an addiction to ourselves.” We can’t see a way out because we’re too self-absorbed and blinded by our own *ego* – or sense of self-importance.
+
+To dissolve the ego and begin to see things differently, there’s a different kind of drug that many depressed people have been benefiting from – psychedelics.
+
+At John Hopkins University, psychologist Bill Richards has been testing the effects of *psilocybin* – a psychedelic found in many species of mushroom – on depression. The results have been uniformly promising.
+
+After three sessions, where Bill carefully guides patients through the experience, 80 percent found the experience to be one of the five most important in their lives. The results show that psilocybin helped people acknowledge and overcome past trauma, connect with nature, let go of their ego and see past their problems and into a better future filled with possibility.
+
+Sounds pretty great, right? Well, it’s not without its downsides. One problem is that the benefits of the treatment need to be actively sustained. When people return to day-to-day life, they can lose sight of the advantages listed above.
+
+A less risky approach that has been shown to be effective involves meditation.
+
+Much of the insight people reportedly gained through the psilocybin tests, others have spoken of gaining through deep meditation. It takes discipline and practice, but meditation can help you cultivate *sympathetic joy* – another solution to depression.
+
+Sympathetic joy is about being happy for others, ridding yourself of jealousy and envy and opening up to joy by cultivating your feelings about the people around you.
+
+You can achieve this through regular meditation sessions wherein you imagine the same joy and compassion you feel for loved ones toward strangers. You can then progress to feeling joy toward people you don’t like or feel envious of. With some training and repetition, you’ll find yourself able to experience a greater sense of joy and peace.
+
+# Final summary
+
+The key message in these blinks:
+
+**Pharmaceutical companies have been selling the public a story that depression is caused by a chemical imbalance in the brain. Research shows little evidence to support this claim. There are nine main causes for depression, ranging from trauma and loneliness to disconnections from meaningful values and nature. Happily, there are also seven ways we can heal ourselves, including acknowledging our disconnections and rethinking our values.**
+
+Actionable advice:
+
+**Practice the sympathetic joy meditation.**
+
+Close your eyes and imagine something wonderful happening to you, like falling in love. Let that joy flow over you.Next, imagine that joy happening to someone you care for and let the joy flow…Next, imagine this happening to someone you don’t know very well, let the joy flow…Now imagine this happening to someone you don’t like, and let the joy flow…Finally, imagine this happening to someone you really don’t like, perhaps someone who’s a source of envy for you, and let the joy flow…
+
+If you do this for 15 minutes every day, feelings of jealousy will start to dissipate and a new capacity for feeling joy will start to flourish inside you.
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****Rise from Darkness *****by Kristian Hall**
+
+*Rise from Darkness: How to Overcome Depression through Cognitive Behavioral Therapy and Positive Psychology* (2015) details techniques anyone can use to help overcome depression. These blinks explore the causes of depression and map out the near- and long-term strategies readers can use to develop a recovery program.
+
+
+Source: [Lost Connections by Johann Hari](https://www.blinkist.com/en/nc/daily/reader/lost-connections-en/)

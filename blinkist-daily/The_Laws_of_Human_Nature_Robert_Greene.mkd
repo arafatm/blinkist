@@ -1,0 +1,232 @@
+![The Laws of Human Nature](https://images.blinkist.com/images/books/5bcc9bef6cee070007879f9e/1_1/470.jpg)
+# The Laws of Human Nature
+*Robert Greene*
+
+>The Laws of Human Nature (2018) takes an in-depth look at the many aspects of the human condition that often go overlooked or unacknowledged. As author Robert Greene explains, we are all a bit narcissistic, irrational, short-sighted and prone to compulsive and aggressive behavior. But once we accept and start to understand these aspects of human nature, we can begin to control and even benefit from them.
+
+
+# What’s in it for me? Learn about the aspects of human nature that affect your day-to-day life.
+
+Who doesn’t want to make better decisions? Well, the key to this is to better understand the influences involved and our underlying motivations.
+
+These blinks aim to highlight the aspects of human nature that go overlooked or are under-discussed and make sure that we understand just how influential they can be. For the most part, we don’t like to admit that we’re envious, self-centered and prone to group mentality. However, we all have these tendencies. Once we acknowledge these aspects of human nature, we can begin to make the best of it by curbing these impulses or even using them to our advantage.
+
+We are all complex individuals, but there are parts of the human experience that touch us all. With a better understanding of human nature, you can start to live a better life with more control over your impulses.
+
+In the following blinks, you’ll find
+
+- why it’s better to have a farsighted perspective;
+
+- why you should always maintain a “reality group;” and
+
+- why it’s beneficial to keep death in mind.
+
+
+# We are all prone to irrational behavior.
+
+We like to think that modern human beings are a clever and highly rational bunch. But the truth is we tend to make a lot of our decisions based on the emotions we feel at any given moment, which means we’re often pretty irrational.
+
+This struggle between our emotional and rational sides has gone on for ages. One of the early champions of rational behavior was Pericles, a well-respected statesman in Athens around the fifth century BC.
+
+When Athens was under threat of attack by the Spartans, Pericles was able to convince leaders to show restraint and not engage in all-out war. Unfortunately, his wisdom didn’t prevail when Athens was struck by the plague and Pericles died. Instead, emotions took over and resulted in a costly and drawn-out war that brought Athens to its knees.
+
+The secret to Pericles’s wisdom was patience, and this is what we still need to rely on to curb our irrational decisions. If there was a problem or important decision to be made, Pericles would withdraw to his home and calmly think it over, consider all the potential consequences and make the decision that’s in everyone’s best interest, not just the leaders or wealthiest people.
+
+So, whenever possible, increase your reaction time so that you’re not making decisions in the heat of an emotional moment. And meanwhile, try to consider all the possible biases influencing the decision.
+
+There are a number of these, including *confirmation bias*, where we tend to seek out information that supports our prejudices, and *conviction bias*, that leads us to believe that the stronger our emotions are, the more something must be true.
+
+Other biases include the* appearance bias*, which leads us to believe that someone who looks appealing, whether it’s attractive or rich, must somehow be of good character. Then there’s the* group bias*, which leads us to believe whatever the group we belong to suggests. For example, if you’re a member of a right or left-leaning political party, you might agree with every one of the party standpoints without considering alternate views.
+
+Our biases can easily lead to bad decisions, so it’s always good to be skeptical, analytical and curious about differing viewpoints. Plus, it’s wise to balance thinking with your emotions. You don’t have to be an emotionless robot when making a decision, but you’re bound to make better decisions when you’re feeling calm.
+
+# We’re all narcissistic to some degree, and we should judge character by actions, not appearances.
+
+Along with our tendencies to be irrational, human nature also carries with it the need for a certain amount of attention and self-absorption. In fact, by our very nature, we’re all narcissistic to some extent. This means each of us exists on a spectrum, ranging from healthy levels of narcissism to *deep narcissism*.
+
+Deep narcissists are usually people with a faulty sense of self, where they see other people as an extension of themselves. This can be traced back to childhood and the years between two and five years old, the age when a person stops seeing themselves as an extension of their mother and develops a sense of individual personhood.
+
+At this point, deep narcissism can develop for two reasons: either the parent was too involved, preventing the establishment of an individual identity, or the parent didn’t give the child any attention, creating a sense of abandonment. This results in low self-esteem and feelings of insecurity. As a result, deep narcissists try to cope with their broken sense of self through behavior patterns that include jealousy, attention-seeking, over-controlling, taking everything personally and being unable to handle criticism.
+
+Ironically, narcissism is often associated with “self-love.” This is actually what many deep narcissists lack, a proper sense of self to love. Indeed, one of the best ways to gain a healthier level of narcissism is to create a sense of self that you can love, which will reduce insecurity and raise self-esteem.
+
+Empathy is another thing that deep narcissists lack, and this is one of the best tools you can have in life. Empathy is the ability to sense what others are going through, thereby connecting us to the people in our lives. It’s also great for recognizing people’s true character and having the insight to turn yourself into a person of superior character.
+
+When it comes to being a judge of character, it’s important to understand that we all wear masks in our day-to-day life. We’re always trying to win people over by presenting ourselves in what we think is the best light and saying things we think people want to hear. As Shakespeare famously wrote, “All the world’s a stage.”
+
+So we shouldn’t accept what we see and hear as a reflection of a person’s true character. A person’s true character often reveals itself in how they face adversity, work with other people and whether or not they learn and adapt.
+
+# We should strive to be of superior character and use covetous behavior to our advantage.
+
+Each and every one of us has a character that is a mix of strong and weak qualities. Some of these qualities we gain genetically, others are from our upbringing. Then there are the ones we pick up later in life. For example, researchers have found evidence that some newborns are more hostile than others, suggesting that our aggression levels are genetic.
+
+But our innate traits aren’t a prison. We can control them, and even weak ones can be used to our advantage. No matter the cards we’ve been dealt in life, we can strive to be of superior character.
+
+The first step is to be honest and admit that our characteristics are part of human nature and are nothing to be ashamed of. We can start by taking an honest look at ourselves, our past mistakes and our weaknesses and strengths.
+
+For example, a *hyperperfectionist,* who feels the need to control everything and can’t delegate tasks, shouldn’t deny it and put herself into situations in which she’ll be smothering people or fighting for the spotlight. Instead, she should find work that allows her to be in charge of a workload that doesn’t require delegation.
+
+Another aspect of human nature that people don’t like to admit to is envy. Yet, it’s a simple fact that we all tend to covet what we don’t have. As the sayings goes, the grass is always greener on the other side of the fence, and there’s always a better place just over the horizon.
+
+There are some biological reasons for our envious nature. For starters, we’re not wired to be complacent. Instead, we’re competitive by nature and feel the same strong desire for things whether we encounter them in the real world or in our imagination.
+
+One of the reasons we tend to deny our feelings of jealousy is because admitting we feel covetous is also admitting that we feel inferior to someone else. Still, it doesn’t do any good to ignore or deny our jealousy, and once we admit to the fact that everyone has these feelings, we can start putting it to work for us.
+
+Knowing that we covet what’s elusive, we can start to make ourselves more appealing to others by employing the traits of elusiveness. In other words, we can be a bit mysterious and hard to pin down. The more we make people use their imagination, the more fascinated they’ll be.
+
+# 
+
+*“By some perverse force within us, the moment we possess something or get what we want, our minds begin to drift toward something new…”*
+
+# Everyone is prone to being short-sighted and defensive.
+
+You might wonder why so much money and attention goes toward fighting terrorism while global warming, which affects all living things on the planet, is trivialized.
+
+The reason is very much tied to human nature. You’re far more likely to react to something that’s right in front of you here and now. This short-sightedness goes back a long way, to when survival was based on immediate concerns, such as finding food and water and avoiding violent predators like the saber-toothed tiger.
+
+To perform at your best, you need to recognize the tendency to neglect the big picture in favor of immediate concerns. However, it’s far better to adopt a *farsighted perspective*.
+
+First, remember to take a step back when making decisions and calmly consider the problem at hand, what your options are and what the consequences are likely to be. When you also recognize that today’s problems are likely the consequence of actions taken in the past, you’ll be better able to assess them.
+
+You should also know that sometimes doing nothing is the best thing to do! Western culture often considers doing nothing a sign of weakness, but Japanese and Chinese cultures both recognize the strategic wisdom in waiting to see what happens and letting the enemy wear himself out.
+
+Another strategy is to know how to deal with people’s natural defensiveness.
+
+Everyone is defensive to some degree, because everyone privileges autonomy and free will. That’s why one of the best techniques for managing human nature is to make someone agree with our plan as though it was their idea. This is done by showing our appreciation of the other person, validating their individuality and intelligence and playing to their natural stubbornness.
+
+Take the early career trajectory of the US politician and eventual president, Lyndon B. Johnson. When he first became a senator, he already had a reputation of being a hotheaded Texan, but Johnson knew he wasn’t going to get far using the same rabble-rousing tactics he employed as a congressman.
+
+Instead, he became fast friends with veteran democrat Georgian senator Richard Russell, outwardly admiring his experience and expertise. Russel, in turn, was impressed with Johnson’s organizational skills and helped Johnson get a seat on the Armed Services Committee after just a year and a half in the Senate, which is practically unheard of for such a prestigious committee.
+
+Johnson’s shrewd but friendly tactics led him to become the youngest ever senate leader of the Democratic Party at the age of 44.
+
+# Prevent self-sabotage by employing a positive attitude and avoiding repression.
+
+Do you ever feel like you’re cursed, or perhaps doomed to failure? If so, it’s likely due to certain unhelpful traits that you need to recognize and get under control. When you look within and see what’s repeatedly causing the same negative outcomes, then you can turn things around and avoid future calamities.
+
+Believe it or not, one of the main contributors to self-sabotage is a negative attitude. Fortunately, that’s something you can change.
+
+If you think your bad attitude is justified, just look at the life of legendary playwright Anton Chekhov. When he was a young boy, Chekhov lived with a father who regularly beat him and forced him to work at his shop rather than do his school work. What’s more, due to his father’s bad business sense, his family had to flee to Moscow. In doing so they literally abandoned Chekhov when he was around sixteen years old, leaving him behind to fend for himself while he finished school. The only reason he survived was because he was able to find the odd job as a tutor.
+
+It would have been understandable if Chekhov had developed a pessimistic attitude. Yet what Chekhov had was a remarkable sense of empathy that enabled him to pity his father, rather than be angry with him. When his family left, it gave him the opportunity to see them in a new perspective, and he recognized that his father had to cope with his own terrible upbringing and that he was really a lost, helpless old man.
+
+When Chekhov felt forgiveness for his father, he felt as though his mind was finally free. He felt liberated from anger. Negative emotions must be let go. If you hold on to or repress feelings of anger or worthlessness, they’re likely to lead to a prison of your own making, where things like drugs and alcohol become ways to numb the pain and repress your true feelings.
+
+If you have a dark side to your personality, whether it’s negative feelings or just selfish impulses, the first step is to acknowledge it. Then you can begin to use it in positive ways.
+
+The author refers to the dark feelings one represses as a “shadow self,” and the more these feelings are repressed, the more destructive they can be when they come to the surface. Look at former US president Richard Nixon, who bottled up his feelings of resentment and abandonment until they led to destructive behavior that destroyed his presidency.
+
+# Everyone is prone to feelings of grandeur, which should be brought down to reality.
+
+If you know someone who’s experienced even a little success, you may have looked on in wonder as that success went to their head and they proceeded to lose touch with reality. This is known as the *Law of Grandiosity.*
+
+Take the career of Michael Eisner: In 1976, Eisner made the leap from successful TV executive to head of the Paramount film studio. During his tenure, Paramount had a string of hits, even becoming the leading studio in Hollywood for a period.
+
+In 1984, Eisner then became the new CEO of Disney and proceeded to oversee the release of fifteen hit movies that revitalized the struggling brand. Eisner also came up with the idea of strategically using the company’s back catalog in the burgeoning home video market.
+
+In Eisner’s eyes, everything he touched turned to gold. But then he focused his attention on theme parks and building Euro Disney in France. It was far from a success, with attendances around half of what they’d hoped for. But Eisner was quick to cast blame elsewhere. In 1994 he shocked the industry by firing his underling Jeffrey Katzenberg, who’d been largely responsible for many recent hits, including *The Lion King*.
+
+Eisner also declined to purchase Yahoo! and instead orchestrated Disney’s own internet portal called Go. It was another calamity that leaked vast amounts of money. Meanwhile, Katzenberg successfully sued Disney for $280 million in unpaid bonuses while Pixar CEO Steve Jobs said he would refuse to work with Disney ever again due to Eisner’s meddling. Finally, with Disney’s stock prices dwindling, Eisner was voted out by board members in September of 2005.
+
+As a TV and film executive, Eisner showed he had a keen grasp on the tastes of US audiences, but afterward, with Euro Disney and Go, he showed little understanding for the tastes of Europeans or what people want in an internet service.
+
+But Eisner had lost his sense of reality. In not accepting the limits of his expertise and instead feeling insecure and threatened by underlings like Katzenberg, he helped precipitate his own downfall.
+
+Surely, a person with a grip on reality would have known that someone with Katzenberg’s talents would become a competitor once fired from Disney, which is exactly what happened when Katzenberg helped found Dreamworks.
+
+When you experience success, it’s easy to forget that mentors and teammates, as well as timing and luck, likely helped you get there. So it’s important at the best of times to be aware of contributing factors and your own strengths, limits and weaknesses. Remember: be realistic.
+
+# We should all try to prevent our tendency toward gender repression and aimlessness.
+
+In 1463, Caterina Sforza was born into a powerful dynasty in Milan, Italy, giving her the chance to pursue whatever interests she had.
+
+From a young age, Caterina had been drawn to physical combat training as well as fashion and the arts, so she became a student of both. In other words, Caterina was free to indulge both her feminine and masculine sides, becoming a strong figure who fascinated both the men and women of Milan. This universal fascination is something that artists like David Bowie achieve as well, when they explore both the masculine and feminine parts of their personality.
+
+We attain masculinity and femininity both from our genes and our upbringing. Due to society’s influence, men generally repress their feminine side and women their masculine side, but we’re better off embracing this duality within us. For starters, it would improve our relationships, making us more empathetic to those of the opposite sex. It can also improve problem solving, creativity and confidence.
+
+Men and women tend to think of the world in different ways, with men looking closely to separate and categorize things and women stepping back to see patterns and connections. The best minds will have ready access to both ways of thinking.
+
+Another way to experience a big boost in life is to get closer to a sense of higher purpose. Since we’re all complex people, we can easily slip into a sense of aimlessness and feel a general lack of cohesion. But if we take a calm look within, we can find what it is that really excites us.
+
+Often, we can trace back our higher purpose to a moment in childhood. For Steve Jobs, it was seeing his first electronics store as a young boy. For Marie Curie, it was being immediately fascinated when seeing chemistry tools for the first time.
+
+For legendary film director Akira Kurosawa, it happened later in life when he worked as an assistant for another director, Kajiro Yamamoto. Until then, he hadn’t recognized the full potential of film. But standing behind Yamamoto, he experienced a transcendent moment where everything suddenly became clear and made sense. It’s these moments we should be searching for, as they’re the ones that point to a higher purpose in life.
+
+# We tend to conform to group mentality and feel a false sense of entitlement.
+
+We like to think of ourselves as unique, civilized and sophisticated individuals with independent minds. But if we pay close attention to human nature, we see that we also spend a lot of time worrying about what others think and how well we fit into certain groups.
+
+While it’s true that we’ve come a long way from our tribal roots, we still tend to devolve into primitive, reactionary thinking when we’re part of a group. It’s not a pleasant thing to consider, but we’d all be better off to recognize that this tendency is within all of us.
+
+One of the best examples of group mentality gone wrong is the Chinese Cultural Revolution under Chairman Mao Zedong. The revolution was intended to be a rebellion against the elitists and their unfair hierarchies, but in a group mentality, any nuanced thinking went out the window. Soon, anyone wearing clothing that resembled Western fashion was attacked in the streets as being part of the elite. As a result, a police state formed to try and control the chaos, and the revolution ended up achieving the opposite of what it set out to accomplish.
+
+To avoid such things from happening, we should all be part of what the author calls a *Reality Group*. You can think of this group as the gold standard in teamwork,  where everyone stays focused on the original goal, while also making sure the group doesn’t get caught up in power plays or pointless disputes. This structure focuses on the beneficial aspects of teamwork, and emphasizes that people can accomplish great things when they cooperate.
+
+Another unpleasant aspect of human nature is entitlement. Although all of us will feel entitled from time to time, there is no institution that represents this unfortunate trait more than royalty. For centuries, people have been expected to honor and worship individuals just because they are born into a certain family. Though many royals demand respect and authority automatically, one monarch in particular can teach us how to really earn it.
+
+Queen Elizabeth I stands out in history as one of the few who wanted to earn the respect and loyalty of her subjects. So she declined her income and used that money to help the people of England, and she only made decisions she believed were in the best interest of her people.
+
+What Elizabeth understood is that the entitlement of earlier monarchs only leads to resentment. So we should all prove ourselves worthy of admiration by working hard, owning up to our mistakes and making sacrifices when it’s in the greater interest.
+
+# 
+
+*“What creates a functional, healthy dynamic is the ability of the group to maintain a tight relationship to reality.”*
+
+# All human beings are aggressive by nature, but controlled aggression can be put to good use.
+
+In the mid-nineteenth century, businessman Maurice Clark met an unassuming guy who came from a troubled background. This was John D. Rockefeller. Rockefeller’s father had been a notorious con man who would often take off suddenly, leaving his family with barely enough money to keep from starving.
+
+Clark didn’t know it at the time, but Rockefeller’s childhood left him with an obsession for accumulating money and being in control of an orderly and predictable environment – the things he’d grown up without. All Clark saw was a guy who was deeply religious and had a knack for irritating him to no end.
+
+The two men had gone into business together, but Rockefeller was so irritating in pressuring Clark to expand the business that Clark agreed to sell his shares of the business at an auction, thereby playing right into Rockefeller’s hands. Rockefeller bought those shares and turned that small initial business into the Standard Oil Company, one of the most powerful companies ever created.
+
+Rockefeller was an aggressive businessman, but he was a sophisticated aggressor. He knew how to read people’s motivations and recognize what people would accept in order to get what he wanted.
+
+We all have some level of aggression in us – our aggressive nature helped make us the dominant species on the planet – and we shouldn’t try to repress this part of our personality, as it will lead to passive aggression. Repressed anger can also show up as an internal voice that projects the aggression inward, toward yourself. It’s better to accept healthy levels of aggression and find ways to put it to good use.
+
+The first step is to recognize where the aggression comes from. It might be due to insecurities, domineering parents, trauma from childhood or wanting to control your environment.
+
+Once we understand our aggression, we can direct it toward productive ends, like using it to fuel ambitions and realize goals. We can use it as energy to be tenacious and fearless in pursuing a higher purpose.
+
+Plus, when we better understand aggression, we can recognize it in others and know how people use it to hide their own vulnerabilities. This can help us defeat an aggressor, and there are few things in life more rewarding than outwitting a bully.
+
+# We are all influenced by generational values and can benefit from embracing the fact of death.
+
+Back in the fourteenth century, the Egyptian historian Ibn Khaldun suggested that generations run in a cycle of four different types.
+
+The first is a revolutionary generation that brings about great change, which is followed by a generation of order and stability. The third generation focuses on pragmatism and comfort, while the fourth generation is one of inquiry and cynicism. The trends in this pattern aren’t set in stone, but we can see how each generation is influenced and responds to the one that came before it.
+
+For example, in the first half of the twentieth century, the US had the* Silent Generation*, who grew up in the shadow of the Great Depression and fought in World War II. By and large, they practiced conservative values. They were followed by the *Baby Boomers* who rebelled against their conservative parents and blossomed in the counterculture movement of the 1960s and ‘70s. They were followed by *Generation X*, who chafed against the perceived hypocrisy of their parents and championed pragmatism and self-reliance. Then came the *Millenials*, who in turn champion teamwork rather than individualism, and generally oppose conflict and confrontation.
+
+Understanding how generational values influence decision-making is more important than ever. Nowadays, the world is highly connected, and it’s very likely that we’ll see trends that span the globe in future generations. So by understanding today’s historical context, we’ll be well positioned to understand the zeitgeist of tomorrow.
+
+Finally, one of the biggest influences on our decisions has always been our sense of mortality. It’s easy to understand why a person would prefer not to think about death. However, its incredible influence on us is precisely why we should think about it.
+
+It makes little sense to deny the inevitability of death, and when it’s embraced, it can serve as a great motivator for leading a productive and vibrant life. It’s also a great source of empathy, since death is the great equalizer that unites us all.
+
+When twentieth-century American writer Flannery O’Connor discovered she had the fatal disease of lupus, she didn’t despair. In fact, she became more empathetic, open-minded and enthusiastic about life. The Russian writer Fyodor Dostoyevsky had a similar reaction after a near-death experience – he felt reborn, with a renewed sense of wonder.
+
+So stop going through life on autopilot, with an inward, distracted gaze. Recognize how amazing it is that we exist on this planet to begin with, and commit to doing something beautiful to honor this remarkable gift.
+
+# Final summary
+
+The key message in these blinks:
+
+**Human nature is full of laws that greatly influence our day-to-day lives. These include the laws of irrationality, narcissism, envy, shortsightedness, aggression and the denial of death. Some of these laws are aspects of the human condition that aren’t easy to accept. Once you do accept their existence, though, you can begin to improve your life. With a better understanding of human nature, you can recognize when emotions are leading to irrational decisions, or when your opinions are too influenced by groups and organizations. Understanding human nature is also a way to understand the commonalities between all humans, which can provide a much-needed boost to your empathy levels.**
+
+Actionable advice:
+
+**Be motivated by the sublime.**
+
+Take a moment to consider all that happened in order for life to occur on this planet. Against great odds, the right conditions fell into place, one thing led to another and billions of years later here you are reading this sentence. To grasp the amazing chain of events that led to your conscious life, as well as all the mountains, oceans, plants and wildlife, is to grasp what’s known as *the sublime*. Your life is a wondrous thing and you should never lose sight of this.
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****The 48 Laws of Power *****by Robert Greene**
+
+*The 48 Laws of Power* (1998) takes an irreverent look at the fundamental characteristics of power, and how to understand it, defend against it and use it to your advantage These blinks offer compelling insights, backed by historical examples, into the dynamics of competition and control.
+
+
+Source: [The Laws of Human Nature by Robert Greene](https://www.blinkist.com/en/nc/daily/reader/the-laws-of-human-nature-en/)

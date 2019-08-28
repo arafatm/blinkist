@@ -1,0 +1,222 @@
+![Napoleon Hill’s Golden Rules](https://images.blinkist.com/images/books/5bab5587862c43000738128d/1_1/470.jpg)
+# Napoleon Hill’s Golden Rules
+*Napoleon Hill*
+
+>Napoleon Hill’s Golden Rules (2009) offers a wide array of tips and life hacks to improve your life and bring you closer to realizing your goals. Author Napoleon Hill developed his techniques – many of which stem from the power of positive thinking – nearly a century ago, but they’re still the cornerstone of many of today’s self-help and personal development theories.
+
+
+# What’s in it for me? Learn some enduring tips for self-improvement from one of the legends in the field.
+
+Napoleon Hill was one of the original self-improvement gurus, and his books are still ranked among the biggest best-sellers in the genre despite being published way back in the 1920s and 30s.
+
+One reason his advice continues to attract readers is that he didn’t believe you had to be born with natural talent to succeed in life. In Hill’s estimations, with a little determination and hard work, anyone can develop the skills needed to reach his goals and be a success in his field.
+
+Many of Hill’s techniques come down to how you think. If you want to get ahead in life, considering yourself unworthy of good fortune and thinking defeatist thoughts isn’t going to cut it. But it’s not just positive thinking that Hill teaches. As you’ll hear in the blinks ahead, when you put your thoughts to work, you can develop new skills and helpful habits that will bring energy and action into your everyday life.
+
+In these blinks you’ll find out
+
+- how to make it easier to wake up when you want to;
+
+- how a vivid imagination can lead to better public speaking skills; and
+
+- how a chocolate eclair can help you remember someone’s name.
+
+
+# We create our lives through our thoughts, and this can lead to transformative success.
+
+Have you ever met someone who exudes total self-confidence and seems to succeed at everything she turns her hand to? Maybe you think she comes across as cocky, or you feel jealous that she seems to know the secrets to success and you don’t.
+
+But here’s the thing: we can all create the life we want. The secret is simply how we use our thoughts.
+
+One powerful method is through *autosuggestion*, which allows you to shape how you develop as an individual by feeding your mind inspiring thoughts and images.
+
+The author had a regular practice of thinking up imaginary meetings where he’d sit down and chat with such distinguished and inspiring guests as Abraham Lincoln, Socrates, Napoleon and Aristotle.
+
+During these imaginary meetings, Hill would focus on certain characteristics of his guests that he hoped to make his own. In Lincoln’s case, he hoped to take on his ability to be fair, to help others and to be courageous in finding new ways of doing things.
+
+Every night, Hill would spend an hour performing this exercise, adding more inspiring figures to his meetings as he would learn about them.
+
+He found that by using autosuggestion to focus on inspiring thoughts, you can transform your life and find success.
+
+In Hill’s case, autosuggestion allowed him to overcome his fear of public speaking and focus on taking on the qualities of successful orators, such as the abolitionist clergyman, Henry Ward Beecher.
+
+After just a week’s worth of autosuggestion, Hill received a standing ovation and a return invitation after one highly successful speech. A year later, he was touring the country as one of the most sought-after speakers in the US. He even received an award for his 1920 speech at a convention in Pittsburgh from the Associated Advertising Clubs of the World.
+
+And it was all made possible by the power of thought.
+
+# Shakespeare teaches us how to gain anyone’s confidence – another key to success.
+
+Difficult problems require creative solutions. Yet, when it comes to developing these great ideas, there are two difficulties: one is developing the idea, the other is convincing people how great it is. Often, the latter problem is the hardest to solve.
+
+If you want to improve your skills in convincing others, then your best teacher isn’t a guru or businessman – it’s the poet and playwright William Shakespeare.
+
+In his play *Julius Caesar*, we can see how the path to changing someone’s mind starts by taking his side. During Caesar's funeral, Marc Antony attempts to change the minds of those in attendance to see his friend Caesar as a great man.
+
+Quite a challenge, since the first person to address the crowd is Brutus – the man who killed Caesar – who gives an impassioned speech that convinces everyone of how evil Caesar was.
+
+Once Brutus has finished, it’s Marc Antony’s turn to speak. He knows he can’t accomplish his task by immediately forcing his position upon the crowd and contradicting what Brutus said, so he starts off by praising Brutus and agreeing that Caesar should be forgotten.
+
+This allows Marc Antony to quickly get the crowd on his side. He then starts to feed his audience new ideas, such as how much Caesar did for the population of Rome – he even wrote in his will that he wanted his riches to go to the Roman people! Slowly but surely, Marc Antony’s praise for Brutus changes from genuine, to ironic and finally damning.
+
+Eventually, Marc Antony is able to completely change the mood of the crowd, so much so that they condemn Brutus for killing Caesar and run him out of Rome.
+
+Such a technique can be easily transferred to the professional world.
+
+The author once watched this method used to great effect by a lawyer who was a student of Shakespearean texts. When he began to address the jury, he didn’t do so by attacking his opponent. Instead, he listed all the positive remarks the opposing side made and agreed that they made good points. In doing so, he gained the jury’s attention and confidence, at which point he began to list all the flaws in the opponent’s case. Needless to say, he prevailed at trial without much difficulty.
+
+# Positive suggestions can improve performance at work and even make people healthier.
+
+If you think back on your life, can you recall a time when you felt properly motivated after being harshly criticized or humiliated? Probably not, because if you want someone to do something the best way is through positive reinforcement.
+
+In other words, if you want to improve the work performance of your employees, you need to use positive suggestions, not negative ones.
+
+The author knew a manager who never criticized his workers. Instead, he would walk through the offices and compliment each worker, one at a time, for their great work. While doing so, he would always make the subtle suggestion that they could do even better if they tried.
+
+On one occasion, the manager had to deal with an employee whose efficiency had taken a nosedive in recent weeks. But here too, it was positive suggestion that worked.
+
+The manager knew that criticizing him for the dip in efficiency would only demoralize the employee. So he put his hand on the employee’s shoulder and told him that he was impressed at how the pace of his work had improved and that it was setting an excellent example for the other employees. Remarkably, by the end of that very same day, the employee’s efficiency rose by 25 percent.
+
+If you’re a salesperson, you’ll find it extremely easy to experience the benefit of positive suggestion. For example, make it part of your sales pitch: when introducing the customer to a product, mention that even though it’s a new product, she’ll surely recognize how useful it is due to its numerous features.
+
+This way, the customer won’t think that you’re trying to convince her of anything. Instead, you’ll be subtly suggesting that not only is the product of high quality, but it was her idea to come to this conclusion, not yours.
+
+Finally, the power of positive suggestion can also lead to improvements in your health.
+
+Hill knew a doctor who could convince ailing patients that their health was improving. Sure enough, many patients suffering from illnesses such as pneumonia were convinced by his positive suggestions and begin to recover.
+
+# Use the power of prayer and the law of retaliation for better business deals.
+
+When you think about “praying” for something, your first thought might be to pray for the strength to be more virtuous, or for someone else to get well.
+
+But prayer can also be used for more practical things, such as an improvement in your business performance.
+
+To use prayer, you don’t have to believe in any particular faith, or that one god is better than another. As far as Hill is concerned, when you pray, it just means you’re sending a thought out into the universe, and this thought can act like a wave of electricity – influencing the well-being of your business or whatever it is your prayer might be about.
+
+Once, when Hill was negotiating a business deal, the offer he’d made to a potential new business partner ended up being turned down. So he sent out a prayer that he would change his mind and accept the offer. And wouldn’t you know it, two minutes after he prayed, that’s precisely what happened.
+
+Another tool that can benefit your business is the* law of retaliation*, which states that people will act toward you as you act toward them. It might sound simple – and it is – but it’s also one of the most effective ways to find success. With this principle, you can get anyone to do just about anything you want, so long as you do something for him first.
+
+If you want someone to give you something, for example, give him something first. Let’s say a boy and his friend are having lunch in the playground, and one boy tries to take a snack away from the other without asking. Chances are, the only thing that greedy boy is going to get is a punch in the arm. But what happens if the boy starts by offering one of his own snacks to his friend? The friend will likely offer the boy a snack without even being asked.
+
+This schoolyard transaction applies to adult business as well. If you want your more successful colleagues to recommend you to one of their business partners, the first thing you can do is make a point of speaking highly of that colleague to some of your contacts.
+
+# 
+
+*“Through the principle of retaliation, we can actually convert our enemies into loyal friends.”*
+
+# Self-confidence is an important part of success and can be improved through affirmation.
+
+Many people go through life with two main goals: material wealth and happiness. The good news is, you can attain both of these with just one characteristic: self-confidence.
+
+How important is self-confidence? Well, to start with, you’ll never be happy without it, because if you hope to gain the things you want in life, you first need to believe that you deserve those things, and that takes self-confidence.
+
+You can work day and night, seven days a week, but without self-confidence, you’ll never make the big bucks since that’s what it takes to jump at an opportunity, take chances and be innovative.
+
+So, how do you develop self-confidence? It’s all about realizing that your life and happiness are in your hands and no one else’s. You need to start taking full responsibility for your life and appreciating that the buck stops with you.
+
+Once you stop believing that other people are responsible for your fortune – or misfortune – you can start to see that you are the key to your own success. When this happens, you’ll find that you have access to an endless source of energy and vitality that will allow you to reach your most challenging goals.
+
+To help facilitate this shift in understanding, use *affirmations*.
+
+An affirmation is simply a positive thought that you can repeat and focus on until it becomes a reality.
+
+Some powerful affirmations include:
+
+“I know that I can accomplish anything I set out to do. I know that if I truly believe this, and act accordingly, success will be mine.”
+
+“I know that whatever I think eventually takes a material form in the physical world, which is why I can think my way to success. Every day I will think of the person I want to be, until the image is so detailed that it can become reality.”
+
+“From now on, I will start by planning exactly what I want to do, and then I will focus entirely on this plan until it has become reality.”
+
+If you practice these affirmations every day, you’re sure to see both your confidence and your life improve.
+
+# 
+
+*“Keep fear away from your conscious mind as you would keep poison out of your food.”*
+
+# Autosuggestion can also assist in the development of helpful habits.
+
+You won’t get far if you give up on a project at the first sign of trouble. If you want to turn an idea into a successful business, it’s going to take persistence.
+
+If you feel you lack the willpower to stick with a task when it starts to get unpleasant, here’s some more good news: there’s a simple process for developing habits which will keep you persistent in achieving success.
+
+Developing new and helpful habits is a terrific way to reach your goals without having to rely so much on willpower.
+
+If your current habit is to sleep until noon and shuffle through the day in a sleepy haze, it’ll take significant willpower to suddenly start getting up at six in the morning.
+
+But you can turn your 6 a.m. wake-up call into a habit by repeating it often enough, thereby making it an ingrained part of your everyday life. Before long, you won’t even have to try to wake up early – it’ll just happen naturally without any willpower required.
+
+Using this technique can fill your day with positive habits, such as starting the day bright and early, exercising, reading to learn new skills and always jumping at the chance to make a new business contact. It might sound like a lot now, but engaging with these habits will leave you energized and with a surplus of willpower that you can put to use doing good and successful work.
+
+When in the difficult early stages of forming a new habit, autosuggestion can help. After all, if you’re relying solely on your alarm clock to get you out of bed at 6 a.m., there’s a good chance you’ll turn the alarm off, roll over and go back to sleep.
+
+Here’s how the addition of autosuggestion can come in handy: Several times a day, take a few minutes to imagine yourself waking up feeling energized, well-rested and with the ability to spring right out of bed. When visualizing this process, picture every detail. Maybe you start by yawning, then stretching your arms before getting up and out of bed.
+
+With the help of autosuggestion, this process will make its way from your thoughts to your body, and waking up early will soon be a daily, effortless habit.
+
+# We should fill our environment with positive influences, and remove the negative influences from our prisons.
+
+It’s no coincidence that the students who go to the best schools tend to become our leading researchers, politicians and artists. Like the rest of us, they’re shaped by their environment, and in the case of a world-class school, shaped into world-class professionals.
+
+Whether you realize it or not, you’re constantly being influenced by your environment and surroundings, since what you’re exposed to everyday impacts your thoughts, and your thoughts play a huge factor in determining what occurs in your life.
+
+When you consider this, it only makes sense that you choose carefully the right environment that’ll help you achieve the goals you’ve set for yourself.
+
+If you hope to be a successful business executive, then it makes sense to live near other successful business executives, or at least spend time at clubs or places where they socialize. The best environment for you to be in is one surrounded by people who share your goals in life or career, and to avoid being around people with negative or defeatist attitudes.
+
+When you know what you want to achieve, picture each and every detail about what your perfectly supportive environment will look like. Once you have that image in mind, it’s time to go out and find it.
+
+Unfortunately, there are aspects of our society where people are being harmed by their environment, and we should work to fix this.
+
+In particular, the prison system has a horrible and corrupting influence on those behind bars.
+
+Most are confined to small spaces with other criminals, giving them little or no opportunity to rehabilitate, educate themselves or experience anything besides routine violence. Under these conditions, there’s little chance of an inmate reforming himself.
+
+But it doesn’t have to be this way. We could place criminals into clean, healthy, safe environments, where the focus is on the development of new skills which will allow them to be successful contributors to society. Imagine the amount of criminal activity we could wipe out!
+
+# Tips for strengthening the memory include a technique that also sharpens our powers of observation.
+
+Here’s an all too familiar scenario: You’re at a party, and you notice someone familiar approaching you with a smile and a friendly greeting. She knows your name, but you’re drawing a blank and can’t seem to recall hers, or where it was you met her. Oh, the awkwardness!
+
+While this kind of unfortunate embarrassment can make networking a challenge, the good news here is that a faulty memory can be strengthened.
+
+There are three steps to recharging your memory bank.
+
+First is to start paying attention. If you’re always daydreaming while meeting new people, you shouldn’t be surprised when you forget someone’s name at a later date. Likewise, if you’re not paying attention to where you parked your car and which roads you go down, you’re bound to have trouble finding your way back later on.
+
+Start paying better attention by taking the time to look at someone carefully when you first meet her, and to thoughtfully form a full impression of that person.
+
+The second step is to make mental associations. When someone tells you her name, there’s a good chance you’re familiar with something that either shares her name or is very close to it. It could be another person, a place, a favorite product or anything that’s highly relevant to you and your life.
+
+Say you meet someone who shares your sister’s name – associate her with your sister. If you’re introduced to someone named “Clare,” associate her with one of your favorite desserts – a chocolate eclair.
+
+The third and final step is the power of repetition. Never underestimate the effectiveness of repeating someone’s name multiple times immediately following an introduction. It’s also wise to recall the name from time to time over the next few days. If you do, you’re sure to find yourself with a stronger memory and fewer awkward encounters.
+
+Another tip for improving the memory is to sharpen your senses. The logic here is that when your powers of observation are strong, so is your memory.
+
+Here’s a simple practice you can do to heighten your powers of observation and memory: Start by entering a room in your house and carefully observing everything you see. Then, exit the room and begin writing down everything you can remember. Repeating this exercise daily, using different rooms, will soon find both your memory and observational skills getting sharper.
+
+Now you know the golden rules of success, it’s time to start putting them to work for you and your goals.
+
+# Final summary
+
+The key message in these blinks:
+
+**Success isn’t out of your reach once you put your mind to it. By developing the right thoughts and strengthening your self-confidence, you’ll soon find yourself getting closer to your goals with greater ease. There are a variety of techniques that can help you make important social contacts, seal big business deals and develop useful habits that make life easier – all with a minimal amount of effort needed. Never underestimate the power of positive thinking to effect real changes in your life.**
+
+Actionable advice:
+
+**Dress for success.**
+
+Being well-dressed has many advantages in the professional world. First of all, it’ll make you feel more comfortable and confident – two crucial elements to success. Secondly, smart clothes will give your colleagues a more favorable first impression of you, which in turn will make you more trustworthy in their eyes.
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****Outwitting the Devil *****by Napoleon Hill**
+
+Originally written in 1938, Napoleon Hill’s *Outwitting the Devil *(2011) remained an unpublished manuscript for over seventy years. Edited and annotated by Sharon Lechter, who contextualizes the content for contemporary readers, Hill’s book is a compendium of advice on how to succeed in life. Readers now have full access to Hill’s personal beliefs on the forces that are holding us back from leading a successful life and the principles that will enable us to overcome those forces.
+
+
+Source: [Napoleon Hill’s Golden Rules by Napoleon Hill](https://www.blinkist.com/en/nc/daily/reader/napoleon-hills-golden-rules-en/)

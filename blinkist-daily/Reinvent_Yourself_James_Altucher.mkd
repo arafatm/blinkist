@@ -1,0 +1,191 @@
+![Reinvent Yourself](https://images.blinkist.com/images/books/5bcc764b6cee07000720639d/1_1/470.jpg)
+# Reinvent Yourself
+*James Altucher*
+
+>Reinvent Yourself (2016) shares practical techniques on how to continually reevaluate and readjust your approach to life and to business in order to forge your own path to success. Author James Altucher illustrates how to do this using inspirational stories drawn from the religious leaders, artists and billionaire entrepreneurs from whom he learned the art of self-reinvention.
+
+
+# What’s in it for me? Discover how to remold your life to fit in with our fast-paced modern world.
+
+We live in an era of relentless change. Whether we’re dealing with technology, work or even politics, the ground seems constantly to be shifting beneath our feet. As a result, we face new challenges on a daily basis, and we have to continuously adapt if we want to be successful.
+
+Of course, this is easier said than done. How do you do it? The secret lies in implementing the strategies that will enable you to perpetually reinvent yourself. By doing this, you can put yourself in a position to conquer the challenges of modern life. As the proverb goes, if the mountain will not come to Muhammad, then Muhammad must go to the mountain. The world isn’t going to adapt to you – so it’s time for you to start adapting to it.
+
+In these blinks, you will learn
+
+- what  Pope Francis and Eminem can teach us about the best ways to deal with suffering;
+- how being broke can be a blessing in disguise; and
+- how to wake up every morning with a sense of excitement for the day ahead.
+
+# Refuse to let your degree or job title define you, and find mentors to help you redefine yourself.
+
+Once upon a time, the road to success was straightforward: you earned a degree, landed a stable job and saved up for a comfortable retirement. This road has become a thing of the past, and yet many people are still trying to follow it – saddling themselves with debt from student loans, credit cards and mortgages along the way.
+
+The old road is no longer viable because in today’s fast-paced, ever-changing world there simply isn’t a linear, fixed and preestablished route to success; you need to blaze your own path.
+
+One of the keys to doing so is to avoid letting your degree or job title define you. Consider a company that exemplifies reinvention: Google. Catching up with a friend who works at Google, the author asked, “What are the latest projects your company is working on?”
+
+The author expected them to be search-related. But, actually, they were totally different: building an automated car, developing a bracelet to cure cancer and connecting remote areas to Wi-Fi through stratospheric balloons. In other words, Google doesn’t let its “job” (providing a search engine) define it.
+
+Google’s cofounder Larry Page doesn’t let his degree define him, either. He majored in computer science, but his job today isn’t about tinkering with software; it’s about solving major societal problems.   
+
+Of course, breaking free of the confines of your degree or job title is easier said than done. Fortunately, just because you have to blaze your own path doesn’t mean you have to go it alone; mentors can provide guidance. Here are some steps to finding them.
+
+First, do some research on a person you respect and want to learn from. Read her bio. Check out articles she’s written or interviews she’s given. Next, contact her with ideas that might help her.
+
+For example, when the author was seeking mentorship from someone who had written an academic article, he didn’t just read the article; he sent feedback, thus providing value as a mentee.
+
+As you continue on your journey, provide your mentor with progress updates every three months. That way, she can see her influence on you in action and feel appreciated.
+
+Finally, don’t just seize opportunities to meet up with your mentor; **create** those opportunities. It might even be worth going so far as to fly to another country and send her a message saying you’re available to discuss an idea further!
+
+# 
+
+**“Learning never stops. Many people die at 25 but are not put in the coffin until 75. The learning stopped for them early.”**
+
+# Practice your passion on a daily basis, and find it by thinking back to your childhood.
+
+Some of history’s most creative people have also been the most prolific. Pablo Picasso created 50,000 works of art, which averages at two per day. Jimi Hendrix recorded enough music to fill nearly 70 albums, despite living only 27 years.
+
+Now, you don’t need to churn out work every minute to be creative – but high production can help you sharpen your talents. As the saying goes, practice makes perfect.
+
+The writer Barbara Cortland provides an inspirational example of how much you can accomplish if you put in enough work. In 1983, she set the world record for writing the most novels in a single year: an astounding 23.
+
+Her passion was writing about romance, and she pursued it every day. Thanks to her dedication, she published 723 novels and sold 600 million copies of them.
+
+The rapper Coolio provides another example. As a child, he set his heart on becoming a famous rapper. To that end, he wrote lyrics on a daily basis, beginning at the age of 14. For the next 17 years, he continued to practice and refine his craft.
+
+Finally, in 1994, his perseverance paid off with his first big hit, “Fantastic Voyage.” The next year, his perseverance paid off even more with “Gangster’s Paradise,” which, at the time, became the number-one song in the world.
+
+In theory, you could follow Coolio’s lead by taking **any** skill and practicing it until you achieve your breakthrough. But how do you decide which one to practice? How can you tell which one lies in the direction of your calling?
+
+One way is to recall your childhood and ask yourself: What did I love doing or dream of doing back then? Which activity made me lose my sense of time while doing it or imagining doing it?
+
+There lies your calling. It might not seem practicable – but even if it was childish, it can still give you a starting point from which to set out.   
+
+Chip Conley, the head of hospitality at Airbnb, for instance, was led into his career in the hospitality industry by recollecting the hours he would spend imagining he was running a restaurant as a child. And a friend of Chip’s went from being a dissatisfied lawyer to a world-renowned pastry chef by remembering the pastime of her six-year-old self: making mud pies!
+
+# 
+
+**“People tend to think they are meant for something BIG in their lives. I understand that. But to get to BIG you have to focus on today.”**
+
+# Your burning desire will enable you to overcome obstacles and conquer your fear of failure.
+
+Imagine if every morning, you woke up feeling so motivated and excited about the day ahead that you practically bolted out of bed. Does this sound like a dream compared to your present reality? If so, it’s a sign that you need to identify the goals and activities that will fill you with a burning desire to start your day and pursue your passions.
+
+Once kindled, this desire will give you the drive to overcome the obstacles in your path – a power that’s exemplified by the story of Wayne Dyer.
+
+To say the odds were stacked against him would be an understatement; he was an orphan who spent his childhood bouncing between foster homes. Nonetheless, he was able to earn a PhD in educational counseling and become a professor. He then wrote his first book, **Your Erroneous Zones, **which eventually sold a whopping 35 million copies.
+
+But his journey from orphanhood to best-selling author wasn’t a smooth one. At first, his book sold only 5,000 copies, which he considered a failure. However, rather than give up, he decided to buy all of the unsold books from his publisher and go on a cross-country adventure, visiting bookstores in person to convince them to sell his book.
+
+To market his book, he also tried to appear on national television – only to be rejected by the producers of every show he approached. But once again, he refused to give up; instead, he drove from station to station and promoted his book face-to-face. Thanks to his tenacity, he was able to take his initial sales numbers and multiply them by 7,000!
+
+Empowered by a burning desire like Wayne Dyer’s, you’ll be able not only to overcome your obstacles, but also to conquer your fear of failure. To see the importance of doing so, consider the Rolling Stones.
+
+Two of its founding members, Mick Jagger and Keith Richards, were childhood friends who were brought back together by the passion they shared for music, which led them to form the band.
+
+The rest is history, right? Well, not quite. At first, music critics panned their songs. Reviewers derided Mick Jagger’s voice, which they said was “fuzzy and undisciplined . . . complete chaos.”
+
+But the band didn’t give up. Instead, they welcomed every gig that came their way, performing 200 concerts per year, despite earning little money from them and attracting audiences as small as four people.
+
+It was their zeal for music that enabled them to overcome their fear of failure and to become one of the most successful bands of all time.
+
+# 
+
+“**Choosing yourself is not about launching a rocket to Mars. Or making $1 billion. It’s about not letting anyone tell you that you can’t.”**
+
+# We should strive to help others with their pain and channel our own suffering into our passions.
+
+Imagine a world without borders – one where trade flows freely between nations, innovation flourishes in its wake and people extend their generosity to everyone, overcoming their ethnic, racial and social divisions. Wouldn’t this be an ideal world to live in?
+
+Well, it may take many years for this vision of the world to be realized, but we can still live by the values that animate it in the here and now by continually striving to benefit others.
+
+One person who embodies such a spirit of generosity is Pope Francis. Here is just one example. A young woman became pregnant, and her husband pressured her to have an abortion. Wanting to keep the baby, she divorced him. Afterward, she sank into depression.
+
+Desperate, she sent a letter to the pope. A few weeks later, her phone rang – and, to her surprise, it was Pope Francis himself! He comforted her over the phone, and later he even baptized the baby himself.
+
+If you think about it, such an act of kindness is remarkable. After all, the pope leads an enormous, nearly 2,000-year-old institution. Nonetheless, he frequently takes time to call the ordinary people who write to him, just to bring some happiness into their lives.
+
+Such acts of kindness earn the pope plenty of adulation – but rather than basking in it, he actively discourages us from viewing him as some sort of moral Superman. Instead, he reminds us that he is a human being who laughs and cries just like us. Why is that truth important? Because the flip side is that we are just as capable of kindness as he is.
+
+Now, it’s clear that we should try to alleviate other people’s pain – but what should we do about our own pain? One answer is to channel it into our passions.
+
+Someone who did that to great effect was the rapper Eminem. Growing up in a poor family in a trailer park, he suffered many tribulations, which continued into his young adulthood with a slew of familial betrayals and bad jobs.
+
+However, rather than stewing in his troubles, he used them as grist for his creative mill – transforming them into material for the rap lyrics that would eventually propel him from underground rap battles in Detroit to worldwide superstardom, with 220 million record sales under his belt.
+
+# Without determination, talent can only take you so far, and being broke can drive you forward.
+
+Imagine you’ve sparked your burning desire and identified the talent that represents your calling. Mission accomplished, right?
+
+Well, not quite. You’ve ignited your inner fire, but now you need to keep fueling it. One way of doing so is to keep practicing. Now, habitual practice takes great willpower. That’s why determination is the key to success; without it, your talent will peter out before it’s taken you far.
+
+Consider Serena Williams. She’s extremely talented at tennis, but she didn’t acquire her talents overnight. It took her years of hard work to develop them.
+
+When she was only three years old, she started a daily training regimen with her father. By the time she turned ten, she’d achieved her first success: playing in the junior circuit.
+
+But she didn’t stop there. She kept practicing and competing – and after devoting 30 years of her life to tennis, she had the goods to show for it: 23 Grand Slam titles to date, more than any other player in the world.
+
+On the opposite end of the physicality spectrum, consider the author Charles Bukowski. When he was young, he managed to get only two stories published. Then, he stopped writing for a decade. No determination, no success.
+
+But then he returned to writing with a newfound sense of resolve. For 15 years, he wrote stories and poems every single day, and he submitted thousands of them to every publication possible, enabling him to live off his writing. With his first novel, **Post Office**, he finally attained success. He was 49 years old.
+
+Besides challenges, there’s another form of kindling that can feed your inner fire: being broke. While this might seem like the opposite of success, it can also help you to achieve it.
+
+Consider the story of Daymond John. When he was young, his mother taught him how to sew wool hats. After sewing 80 of them, he sold them for $10 each, bringing in a total of $800 – a significant sum for them at the time, since they were strapped for cash.
+
+His fire was sparked, and he started fueling it right away. Eventually, he started the clothing brand FUBU. Within a few years, the company achieved $350 million in sales. Ten years later, it was worth $6 billion.
+
+Dedication brought him to that achievement – but being broke gave him the drive to start down his path to success.
+
+# 
+
+**“Being broke is temporary but poverty of mind is permanent. You have to avoid poverty of mind.”**
+
+# Remember your values and make growth-oriented decisions.
+
+Every business has a set of values, and those values are embodied in its goals, which could range from boosting customers’ confidence to providing them with healthy, delicious food.
+
+Like a business, your values are what guide you on your journey toward success. Also like a business, if you lose sight of them, you run the risk of losing your way.
+
+That’s what often befalls family-run businesses; they go under by the third generation. Why? Well, they begin with a set of guiding values – providing upward mobility to their employees, perhaps, or ensuring customer satisfaction. The founder tries to pass those values down to her successors, but with each new generation, they get weaker and weaker.
+
+How can this be avoided? Dick Yuengling provides one answer. His family-run brewing company, D.G. Yuengling &amp; Son, is still going strong, despite having reached its fifth generation of ownership. What’s his secret?
+
+Well, he set up his company in a novel way: instead of simply inheriting it, each new generation must purchase it from the previous one. Having to literally invest themselves in the company, the new owners are naturally led to reevaluate its values as they figure out how they want to run it.
+
+By keeping sight of your values, you too can keep your eye on the prize: your goals. But that’s not enough. To truly make progress, you also have to ensure you‘re making decisions that help you grow.
+
+Every time you make a decision in your career or business, you should ask yourself, “Was my decision fear-based or growth-oriented?” Many decisions are made out of fear. The author himself once took a job simply because he feared going broke, even though he didn’t feel any passion for the position itself.
+
+When you make a fear-based decision, it generally points toward an underlying insecurity. For example, you might stay in a job you hate because you’re afraid you won’t find another one.
+
+It’s natural to make such fear-based decisions, but it’s also inadvisable. In the author’s experience, they always lead to regret.
+
+But it’s never too late to reverse course. After just three days into the job he took out of fear, the author simply got up and walked off into the proverbial sunset. As he left, he felt a profound sense of empowerment and freedom.
+
+That’s not to say everything was easy for him from there on out. Moving forward, he often had money troubles. But his growth-oriented decision to quit his job enabled him to begin his journey toward becoming the successful author he is today.
+
+# Final summary
+
+The key message in these blinks:
+
+**In today’s fast-paced world, the only constant is change. Companies go bankrupt, technologies become obsolete and governments change their policies. To succeed in such a world, we must master the art of reinventing ourselves in order to navigate our way through the ever-shifting seas of the modern world and reach the shores of success. **
+
+Actionable advice:
+
+**Every day, write down ten ideas on new ways you could pursue your passions.   **
+
+If you get into the daily habit of writing down ten ideas per day, you’ll generate 3,650 ideas in a single year. Whether it’s about the business you want to start, the novel you want to write or the public-speaking skills you want to develop, each of these ideas will represent one possible path you could take toward achieving your goals and living out your passions. Out of all those ideas, at least one or two of them are bound to take you closer to where you want to be!
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading: ******Choose Yourself ******by James Altucher**
+
+Author James Altucher explains that after the 2008 global economic crisis, you can’t wait to be chosen; you have to **Choose** **Yourself.** This means you have to take full responsibility for your own success and happiness by reclaiming control of your aspirations and dreams. To do this, the book gives you both tools and effective practices to stay physically, mentally, emotionally and spiritually healthy.
+
+
+Source: [Reinvent Yourself by James Altucher](https://www.blinkist.com/en/nc/daily/reader/reinvent-yourself-en/)

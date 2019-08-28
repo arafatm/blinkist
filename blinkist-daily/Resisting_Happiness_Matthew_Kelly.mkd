@@ -1,0 +1,232 @@
+![Resisting Happiness](https://images.blinkist.com/images/books/5b39ab51b238e10007ffd9af/1_1/470.jpg)
+# Resisting Happiness
+*Matthew Kelly*
+
+>Resisting Happiness (2016) is a probing exploration of the reasons we sabotage our own happiness. Drawing on author Matthew Kelly’s deep well of personal experiences, it’s a profound and personal guide to leading a happier and more meaningful life. Happiness, Kelly believes, is a choice. If we want it, we have to choose it. And that means overcoming resistance and negativity.
+
+
+# What’s in it for me? A hands-on guide to happiness from a best-selling self-help guru.
+
+You can’t put a price on happiness. Like the best things in life, it’s free. But that doesn’t mean you don’t have to work to find it.
+
+So where do you start looking?
+
+Luckily, best-selling author Matthew Kelly is on hand with a helpful roadmap to a contented and meaningful life. By turns practical and philosophical, these blinks argue that the best place to start is by overcoming resistance.
+
+Once you defeat the niggling doubts and fears that stand in the way of attending to the things that matter most, you can start finding out who you really are and what your life mission is.
+
+In the following blinks, you’ll find out
+
+- why reading will make you happier than earning loads of money;
+
+- how prayer can help focus your mind; and
+
+- why embracing solitude is the best way to defeat the fear of loneliness.
+
+
+# When you overcome resistance you can get more done and lead a more spiritual life.
+
+What is resistance? Take an everyday example. The alarm rings in the morning and you sleepily fumble in the dark and hit the snooze button. That’s resistance at work. And you’ve just lost the first battle of the day.
+
+In other words, it’s that familiar and discouraging feeling that makes you put off things that you know need doing.
+
+Resistance is a major problem, especially when it comes to long-term projects.
+
+Most people who start writing a book, for example, never end up finishing it. Laziness, lack of confidence or just plain self-sabotage get in the way.
+
+That’s something Matthew Kelly knows a lot about. As a published author, he’s regularly asked for advice on how to get a book into print. But most of the people who ask him for tips haven’t even finished writing their own books!
+
+Kelly tells them to get back to him once they’re done with the writing process – and he never hears another word from around 95 percent of his correspondents. These people clearly lost their individual battles against resistance. Procrastination or sloth won out.
+
+So how could these budding authors have achieved full bloom?
+
+Well, one way to start fighting resistance is to name the obstacle. Once you’ve identified the nature of the hurdle you face, it’s much easier to work out how you can get over it.
+
+Another option is prayer.
+
+Take Kelly. He’s a busy guy and spends a lot of time on the road. Constantly encountering new sights and sounds could easily become a source of distraction. That’s why he took up the habit of devoting ten minutes each day to praying.
+
+When he prays, he considers four questions. Who am I? What’s my life’s purpose? What’s most important? What’s least important?
+
+Answering those questions provides clarity. It leaves him with a sense of purpose and reaffirms what he’s passionate about. And that’s a great basis for making better life decisions.
+
+The added bonus? It’s helped him become more spiritually fulfilled.
+
+# Accepting the inevitability of death and understanding that life is a struggle for everyone can help you realize your full potential.
+
+Happiness can be hard to pin down. Lots of people think that they’d be truly content if only they could afford a nice car, buy a luxury home or marry their true love. But reality isn’t like that. Conventional ideas and material goods don’t lead to lasting happiness.
+
+So how do you find out what will really make you happy?
+
+It’s much easier to get a handle on your true values when you confront the inevitability of death head-on. That in turn puts you on the road to leading a joyful life.
+
+Kelly realized this when he was consulting for a well-known hospital. One day, he got to talking with some hospice nurses. What, he asked them, do people talk about as they’re dying?
+
+The nurses’ answer was a revelation.
+
+Most people, they said, dwell on their regrets. If only they’d been brave enough to be themselves, communicated their feelings better or had the courage to take more risks….
+
+Kelly saw that this provided a clue about how to live in the here and now. By pondering the inevitability of death and imagining what you’d say on your deathbed, you can begin prioritizing what’s really important to you.
+
+That means making sure you’re doing the things that matter to you – in other words, the things that will make you happy.
+
+That’s easier said than done, right? What helps is understanding that everyone faces their own unique struggle. Once you realize that, you’ll become more compassionate.
+
+Take another example from Kelly’s life. The day he was diagnosed with cancer changed his perception of the world forever.
+
+It was a dazzlingly sunny day. He’d just heard the worst news imaginable. But, looking around, he saw that everyone was simply going about their usual business.
+
+Nobody knew what he was going through. This drove home a profound realization: people can look fine from the outside even when they’re struggling deep down.
+
+Compassion is awareness of the fact that everyone is fighting their own battles. And understanding others will also give you a better understanding of yourself.
+
+# 
+
+*“It may sound weird or warped, but I think being told by your doctors that you have six months to live is one of life’s ultimate luxuries.”*
+
+# Make your life more meaningful by reading and recognizing that money isn’t the most important thing in life.
+
+It doesn’t matter how prestigious the school is or how nice the teachers are, most kids dread the classroom and the prospect of learning from books.
+
+But reading is an invaluable resource. Books are like friends that keep your spirits up even when times are tough.
+
+Take it from Kelly, the proud owner of over a thousand volumes.
+
+In *The Rhythm of Life*, one of his previous works, Kelly selected 37 titles that had had the greatest impact on his life. These are the books that take pride of place at the top his shelf.
+
+So what did he choose?
+
+The books that have really influenced him come from a range of subjects, including philosophy, theology, psychology, business studies and history. They included works like Parker J. Palmer’s *Let Your Life Speak *and Peter J. Kreeft’s *Three Philosophies of Life*.
+
+What he values in these books is their positivity. As he himself admits, he’s a fairly negative thinker.
+
+Reading helps him learn about the world and take a wider perspective on things. And that makes him think more positively about life.
+
+Reading reminds the author to strive to be the best possible version of himself, which is a much more gratifying approach to life than the simple pursuit of wealth. If you think money is truly all-important, just consider the following scenario.
+
+Kelly knocks on his neighbor Joe’s door, asking him if he can help plant trees at the local school for $1,000 an hour.
+
+Joe shows up and does a couple of hours of half-hearted, lazy work. He leaves $2,000 richer but feeling oddly deflated. That’s because you only really feel satisfied when you’ve given your best.
+
+Now imagine Kelly knocks on Joe’s door and asks him if he has time to volunteer at the local school and plant some trees. Joe spends the day giving it his all, and when he is finished, the teachers and Kelly thank him for a job well done. Joe leaves with a smile on his face, knowing he’s done his best.
+
+What’s the difference? Well, money, for one. In the second example, Joe leaves not a cent the richer. But that just shows that cash alone won’t make us happier or better people.
+
+# Embracing solitude and becoming an active listener are essential when it comes to finding happiness.
+
+Loneliness can weigh heavily. Indeed, isolation can be so scary that people do plenty of silly things to avoid it, such as making poor dating decisions and overfilling their schedules with plans.
+
+But the only true answer to loneliness is spending more time alone!
+
+That’s because learning to enjoy your own company is essential to leading a passionate life.
+
+Take a woman in her thirties. If someone asks her out on a date and she doesn’t feel like it, she’ll simply decline the offer. In her twenties, by contrast, she might well have accepted, even though she didn’t really feel like going.
+
+The difference is that, as she got older, she came to appreciate solitude. She’s realized that nothing beats reading a good book and drinking a glass of wine in the bathtub. Why go out just for the sake of going out?
+
+It’s when you spend quality time with yourself that you begin to understand who you really are. No one else – not your friends or your parents or society in general – can help you discover that.
+
+Learning to appreciate solitude is a great basis for really connecting with others. And once you’re happy in your own skin, you can start working on becoming a better listener.
+
+So how do you go about that?
+
+Kelly lists five key techniques that’ll instantly improve your listening skills and boost your relationships.
+
+The first is deceptively simple: make eye contact. Meeting the gaze of your conversation partner and smiling shows that you’re interested in what that person is saying.
+
+Then there’s body language. If you pay close attention, the way people position their bodies speaks volumes about how they feel. Crossing your arms, for example, usually conveys a lack of interest.
+
+The third tip is avoiding interrupting others. No one likes being cut off mid-sentence. It suggests that the person interrupting you thinks that what they have to say is more important. Even if you disagree with something, it’s best to wait your turn before voicing your opinion.
+
+Being fully present in the moment is also important. Even if you think it’s not obvious, your partner can notice if you’re not fully engaged. So put your phone away and focus on the conversation!
+
+Finally, you can ask questions. Following up on points is a great way of demonstrating that you care about what’s being said.
+
+# 
+
+*“Being alone is not the same as feeling lonely, but one can slip effortlessly into the other without a moment’s notice.”*
+
+# Surround yourself with great friends and learn to delay gratification to become your best self.
+
+The longing for community is as close as it gets to a universal human trait. Everyone seeks meaningful connections and relationships. So surrounding yourself with friends is a great idea. The best friends of all are those who challenge you to become your best self.
+
+Take an example from Kelly’s life.
+
+One day, his friends invited him on a golfing trip. He was excited about the prospect of unwinding and spending some time outdoors. But he was in for a surprise. When he arrived, he realized he’d been misled. His friends had planned an intervention.
+
+They told him that they were worried he was traveling too much. That, they claimed, was having a negative impact on his life. It was the reason he was still single, for example.
+
+Kelly took this badly at first. But he reminded himself that they’d intervened only because they cared about him. They had his best interests at heart.
+
+In the end, he decided to take their advice and start using the internet to connect with more people. That turned out to be a great idea!
+
+Kelly used the internet to promote and spread information about the Dynamic Catholic Institute, a nonprofit organization he founded in 2009 that aims to help Americans reconnect with the Catholic faith.
+
+Setting up the institute provided another important life lesson. Sometimes it’s important to delay gratification if you want to achieve success.
+
+Founding Dynamic Catholic involved plenty of sacrifices. Kelly spent two-thirds of the year on the road. That meant missing out on other opportunities and rarely seeing his friends. But it all paid off in the end. After all, authoring multiple books, selling over ten million copies and giving talks in 50 countries is nothing to be sniffed at!
+
+But don’t just take Kelly’s word for it. Delaying gratification has been scientifically proven to have positive effects.
+
+That was shown by Stanford psychology professor Walter Mischel in the 1960s and 1970s in the famous Stanford marshmallow experiment. For the purpose of the study, Mischel gave children a choice between eating one marshmallow immediately or waiting for 15 minutes and receiving two.
+
+A follow-up study conducted in 1988 underlined the long-term effects of the ability to postpone gratification. The children who’d taken the latter option were generally healthier and happier. They were also more successful, having done better on the SATs.
+
+# 
+
+*“Your friendship with others is not to be taken lightly… Sooner or later, we all rise or fall to the level of our friendships.”*
+
+# Learn to help others and ignore criticism if you want to stay focused on your own goals.
+
+Dissatisfaction is often the result of not knowing what you want to achieve in life.
+
+Imagine using a snowblower as a vacuum cleaner. The results wouldn’t be pretty, right? Life is like that too. When you use something for a purpose it wasn’t designed for, things go awry. That’s why it’s so important to discover what your life’s mission is.
+
+If you want to make your life more meaningful, a great place to start is helping others.
+
+Take a leaf out the book of a woman Kelly encountered through his work with Dynamic Catholic.
+
+Having reached the age of 70, she was homebound. If she could relive her life, the one thing she’d do is spread the word of God in the same way that Kelly does. In the here and now, though, that didn’t seem possible.
+
+But one morning she had an epiphany. She realized that she didn’t need to leave the house to help others – she had the gift of time. So she ordered a box of Kelly’s book *Rediscovering Catholicism* and started sending copies to the most important people in her life.
+
+Four years on and she’s received innumerable letters from people whose lives she changed for the better!
+
+But pursuing your mission can be tough. You’ll encounter plenty of naysayers. That’s why it’s vital to ignore criticism from others and listen to the people who encourage you.
+
+Kelly learned firsthand about the importance of having a thick skin.
+
+Early on in his career as a religious public speaker, two event organizers told him that the only thing going for him was his age. Once he hit 25, they said, that’d all change – no one would be interested in hearing what he had to say.
+
+Luckily, there were others on hand to offer encouragement.
+
+He carried on speaking past the age of 25 and showed his doubters how wrong they’d been by reaching millions of people around the world with his work.
+
+It was the people who continued to believe in him even when the going got tough that kept him motivated.
+
+# 
+
+*“He [God] gave you your particular mix of talents and abilities because they match up with your mission he has in mind for you.”*
+
+# Final summary
+
+The key message in these blinks:
+
+**Whether it’s procrastination, self-sabotage, laziness or fear, resistance comes in many guises. And it’s a wily thing. It has plenty of tricks up its sleeve to stop you accomplishing your goals and leading a meaningful life. That means learning to be happy begins with defeating resistance. And once you start breaking down the obstacles in your way, you’re already that much closer to becoming your best self.**
+
+Actionable advice:
+
+**Write a list of everything you’d regret not doing if you died today.**
+
+What would you regret if you were told you only had the rest of the day to live? Take a moment to think of the things you’d say you would have liked to achieve in your life. Now write them down! That list contains everything you need to know about your mission in life – those are the things you need to work on achieving if you really want to be happy.
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****The Monk Who Sold His Ferrari *****by Robin S. Sharma**
+
+*The Monk Who Sold His Ferrari* (1997) offers a remedy to the problems of modern life. A fable, it tells the story of the enlightenment of ex-lawyer Julian Mantle and gives advice on how to live a happier, more rewarding and enlightened existence.
+
+
+Source: [Resisting Happiness by Matthew Kelly](https://www.blinkist.com/en/nc/daily/reader/resisting-happiness-en/)

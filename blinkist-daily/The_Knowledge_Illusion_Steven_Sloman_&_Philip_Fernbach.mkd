@@ -1,0 +1,298 @@
+![The Knowledge Illusion](https://images.blinkist.com/images/books/5b8319c2b238e10007d7deea/1_1/470.jpg)
+# The Knowledge Illusion
+*Steven Sloman & Philip Fernbach*
+
+>The Knowledge Illusion (2017) is an in-depth exploration of the human mind. It argues against the view that intelligence is solely an individual attribute, offering compelling arguments for how our success as a species would have been impossible without a community of knowledge.
+
+
+# What’s in it for me? Learn why we never think alone.
+
+The myth of the lone genius is a compelling one. We’re taught in school that ultra-brilliant individuals like Isaac Newton and Albert Einstein are responsible for history’s great scientific discoveries. According to this narrative, intellectual progress is driven by paragons of braininess – people who, for whatever reason, were born with especially capacious minds.
+
+But this isn’t at all the case.
+
+Human intelligence is far more communal than it is personal. Indeed, without a community of cognizant fellow citizens, most of us would barely be able to think at all. By laying out arguments for why that is almost certainly the case, these blinks go a long way toward proving that we never think alone.
+
+In these blinks, you’ll also learn
+
+- why a Venus flytrap isn’t like a jellyfish;
+
+- how we evolved such big brains; and
+
+- that pig genes don’t confer pigginess.
+
+
+# The illusion of explanatory depth causes us to think we know more than we actually do.
+
+You can probably ride a bicycle. Most people can – after all, it’s a pretty straightforward activity. Once you master the balance part, simply hop on, push the pedals and off you go. So it stands to reason that you could explain how a bicycle works, right?
+
+Well, you might be surprised. Here’s the thing: people have a habit of overestimating how much they know about how things work, even when they don’t know much at all. This gap between assumed understanding and actual knowledge is called the *illusion of explanatory depth*, or IoED, for short.
+
+To get an idea of how the IoED works, let’s return to the matter of bikes.
+
+At the University of Liverpool, a psychology professor named Rebecca Lawson put her students’ knowledge to the test by handing out copies of a drawing. It depicted an incomplete bicycle, which lacked, among other parts, a chain, pedals and sections of the frame. She then asked her students to complete the drawing.
+
+The resulting drawings varied in accuracy. One had two sets of pedals; another lacked crucial parts of the frame. Few would have fared well on the open road.
+
+This led the students to an uncomfortable realization: they were unable to articulate knowledge that they’d been sure they possessed, and their understanding was in fact quite shallow. That’s the IoED in a nutshell.
+
+How a bicycle works is just one of many things that people, when put to the test, have difficulty explaining. Other tests have revealed that people overestimate their knowledge of all sorts of everyday objects, from zippers to toilets to wristwatches. Indeed, people tend to overestimate their knowledge of *everything*.
+
+The inevitable conclusion to be drawn from this fact? People don’t know as much as they think they do.
+
+This leads us to a question that bedeviled early cognitive scientists: how much *do *we know?
+
+# The human brain didn’t evolve to store information and the world is extremely complex.
+
+Throughout the 1960s and 1970s, the predominant theory among cognitive scientists was that the brain was basically a sort of organic computer. This makes perfect sense, considering that modern computers and the field of cognitive science emerged in tandem.
+
+Computing wasn’t merely an apt metaphor; it was the foundational model for the nascent discipline. In the first half of the twentieth century, the work of mathematical luminaries such as Alan Turing suggested that the mind might function in much the same way as a computer – and many early cognitive scientists bought into this theory.
+
+So it was no small deal when, in the 1980s, a pioneering cognitive scientist named Thomas Landauer turned this model on its head.
+
+Landauer figured that, if the brain’s main job was to carry out computer-like functions – things like storing and processing information – then it would be informative to estimate the size of human knowledge in computational terms. And that’s exactly what he did.
+
+His methods were ingenious. For instance, he calculated how many bytes would be required to store the average adult’s vocabulary. From this number, he extrapolated the approximate size of an average adult’s entire store of knowledge.
+
+He carried out many other, similar calculations – but each estimate of how many bytes our knowledge base would require was essentially the same: roughly one gigabyte.
+
+Now, even if this number were ten times larger, it’d still be laughably small. This proves an important point: our brains, unlike computers, are not designed to function primarily as repositories of knowledge.
+
+This revelation was groundbreaking at the time, but, in fact, it makes perfect sense. The human brain didn’t evolve to store vast quantities of information because there is, quite simply, too much of it.
+
+The world is an infinitely complex place. For example, did you know that there’s not a person alive who understands all there is to know about modern airplanes? They’re simply far too complicated, and understanding them completely requires a team of specialists.
+
+Or consider the complexity of the natural world. Scientists are far from understanding natural phenomena such as weather systems, why we experience love and what makes ice slippery, just to name a few.
+
+This raises yet another tricky question: what *did *our brains evolve to do?
+
+# The human brain evolved for action, and diagnostic reasoning may be what differentiates us from other animals.
+
+What’s the difference between a Venus flytrap and a jellyfish? Sure, one lives on land, traps bugs and is capable of photosynthesis, while the other floats around in the water, has tentacles and looks bizarre – but what makes them fundamentally different?
+
+Well, one of them is capable of action, and the other is not. This difference is profound, because the ability of organisms to act on and interact with their environment is what led to the evolution of the brain.
+
+Jellyfish possess about 800 neurons (Venus flytraps have none), and though this hardly constitutes a brain, it does enable the blobby invertebrates to take actions. While the bug-consuming plant must wait around for hapless insects, the jellyfish is capable of, among other primitive actions, snatching prey with its tentacles and moving that prey to its mouth.
+
+Now, the more neurons an animal has, the more complex the actions it’s capable of. Insects, for example, have thousands of neurons and are capable of many complex actions, such as flight. Rats have millions of neurons and carry out actions of greater complexity, such as constructing nests and navigating mazes.
+
+Humans possess billions of neurons. We can travel to space and compose concertos. But we evolved such complex brains for the same reason that jellyfish evolved their rudimentary system of neurons: to enable effective action.
+
+So if all brains evolved to assist action, what (besides billions more neurons) differentiates humans from other, less neuronally endowed animals? Well, one answer might be our ability to engage in causal reasoning.
+
+Not only can we reason forward, predicting how today’s actions may shape tomorrow’s events; we can also reason backward, explaining how today’s affairs may have been caused by yesterday’s actions. This is called *diagnostic reasoning*, and although we’re by no means perfect at it, our ability to do it is arguably what sets us apart from other sentient creatures.
+
+Indeed, we may be the only diagnostic reasoners out there. In the next blink, we’ll explore why this ability has helped us thrive in a world that rewards intelligent action.
+
+# It’s hard to reason from effect to cause, so we use storytelling to help us make causal sense of the world.
+
+Do you know the Yiddish story about the shopkeeper whose storefront was defaced by vandals? He cleaned off the offensive graffiti, but it reappeared the next day. So he waited around for the culprits to show up. When they did, he paid them $10 to deface his store again. The next day, he paid them $5 for their troubles. After that, he reduced the payment to $1.
+
+Soon, they stopped showing up entirely. Why do so much work for so little money?
+
+This droll parable has a few causal lessons to teach, but the most pertinent relates to the difficulty of diagnostic reasoning. As the tale demonstrates, we’re not exactly adept at reasoning backward, from effect to cause. When the vandals get confused about what’s causing their actions (bigotry? money?), spray-painting the storefront no longer seems worth it.
+
+Reasoning from effect to cause is simply harder than reasoning from cause to effect. For instance, it’s much easier to predict that someone with a stomach ulcer will experience pain than it is to determine that someone experiencing pain has a stomach ulcer.
+
+But it’s arguably the ability to reason from effect to cause at all that’s made *Homo sapiens *such a successful species. No other animal is capable of diagnostic reasoning in any sophisticated sense. And, without it, we’d be bereft of countless useful skills, such as the ability to diagnose disease and conduct scientific experiments.
+
+Another lesson to be learned from the Yiddish yarn has to do with storytelling itself. The story is such an effective conduit for a lesson about causality because stories are humanity’s way of making causal sense of the world.
+
+Some stories reach back in time, explaining where we came from (the Bible’s book of Genesis is perhaps the most famous example), while others extend forward, imagining where we might be going. This latter sort of story – think science fiction and utopian treatises – has played a significant role in human progress.
+
+Stories make it easier for us to envision counterfactual events, and thus to consider possible alternatives to current actions. If people couldn’t do this, democracy would never have arisen from monarchy and no human would have ever set foot on the moon.
+
+# 
+
+*“A good story has a moral that applies not just to this world but also to other worlds that we might find ourselves in.”*
+
+# We reason in two different ways: intuitively and deliberatively.
+
+Quick! Answer this question! What animal’s name starts with the letter *e*? Did you instantly think “elephant”? If so, you’re not alone.
+
+For most people, this answer instantaneously comes to mind, with little or no conscious thought. Why is that?
+
+Well, to arrive at an answer, let’s start by explaining how humans think. When trying to answer a question or solve a problem, people engage in one of two kinds of reasoning. Either they use *intuition*, or they use *deliberation*.
+
+Intuition is what helped you answer “elephant!” with such lightning speed. It’s also what makes people fall victim to the illusion of explanatory depth.
+
+The thing is that, usually, our intuitive answers are good enough. The word “elephant” does indeed begin with an *e* (though, of course, other animals’ names do, too). But sometimes our intuitive response is far from accurate.
+
+Here’s another question: The combined cost of a ball and a bat equals $1.10. The bat costs $1 more than the ball. How much does the ball cost?
+
+Did you blurt out “ten cents!” If so, then you just tumbled into one of the pitfalls of intuitive reasoning (grab a pen and paper, and the correct answer – five cents – becomes obvious).
+
+We use intuition all the time because it’s sufficient for day-to-day purposes. But when things get more complicated – when we have to draw a bicycle rather than just ride it, for example – intuition breaks down.
+
+Now, if you paused before shouting out the price of the ball and were able to work out the correct answer, then you might be one of those rare creatures: a person who favors deliberation over intuition.
+
+Such people are highly reflective and, unlike most of us, yearn for detail. They are also less likely to exhibit any illusion of explanatory depth. It’s not that they know more; it’s that they’re aware of how little they know. They’re probably no better than most people at drawing a bicycle, but they *know *that they can’t do it.
+
+Intuitions are subjective – they are yours alone. Deliberations, on the other hand, require engagement with a community of fellow knowledge possessors. Even if you deliberate in solitude, you’ll converse with yourself as though talking to someone else. As will become clear in the next blink, this is just one of the many ways that we externalize internal thought processes to assist cognition.
+
+# We think with our bodies and the world around us.
+
+You may not be a philosopher (most people aren’t), but you’re probably familiar with René Descartes’s famous words, *Cogito, ergo sum*: “I think, therefore I am.” Descartes believed that our ability to think, not our physical body, is what determines our identity, and that engaging in thought is distinct from physical activities.
+
+This Cartesian emphasis on the preeminence of thought contributed to a faulty assumption made by early cognitive scientists, namely that thought is carried out in the mind alone.
+
+As we learn more about the mind, however, it appears that, when thinking, we also employ our bodies and the world around us, using them as tools to assist our everyday calculations and cogitations.
+
+In general, we assume that the world will continue to behave as it always has. We assume that the sun will rise and that what goes up must come down. This enables us to store a great deal of information in the world. You don’t need to remember every particular detail of your living room because, in order to remind yourself what’s there, you only need to take a look.
+
+We also use the world to help us make complex computations, rather than conducting them in our head.
+
+If, for example, you have to catch a fly ball in a baseball game, you don’t need to conduct an array of difficult calculations to determine where the ball will land and where you’ll need to be to catch it.
+
+Rather, you look at the world. If you’re moving in the direction the ball is flying, and your gaze, locked on the ball, is constantly lifting, you’ll inevitably end up in the right spot.
+
+We also use our bodies and physical actions to aid thought. This is called *embodiment*, and its proponents assert that thought is not an entirely abstract process that plays out inside your head.
+
+For example, children learning to count almost always use their fingers. And adults almost always find it easier to do math problems and spell words with the help of pen and paper.
+
+Along similar lines, our emotions function as a sort of memory bank. We don’t need to memorize a long list of substances that we ought to avoid touching or consuming, for example, because we simply *feel *disgust when we encounter a puddle of fetid water or a pile of feces. In this way, physical or emotional responses fill in for knowledge.
+
+# Our success as a species is the result of collective intelligence and the ability to collaborate.
+
+Have you ever wondered how our brains got so big? Why did we, unlike all other animals, evolve intelligence so sophisticated that it enabled us to outsmart and prey on larger, fiercer creatures, like mammoths and bison?
+
+Well, the most compelling theory is called the* social brain hypothesis*.  
+
+It essentially argues that big brains are the result of communal living. Living with one another and collaborating on certain projects (such as hunting mammoths) exerted new mental demands on our ancestors – demands that they then evolved to meet.
+
+As these demands became more complex – as we, say, began divvying up mammoth meat among tribe members – our brains also grew in complexity. This, in turn, made us better at communal living, which made it possible for us to form even larger communities. Navigating these complex social systems had a profound effect on our cognitive abilities.
+
+This theory is supported by strong evidence. For instance, anthropologist Robin Dunbar conducted extensive research on the relationship between the brain sizes of primates and the environments they live in. In every case, there was a clear correlation between brain size and group size. The bigger the group the primate lived in, the bigger its brain.
+
+When *Homo sapiens *first emerged, their brains were already quite complex; living in groups, however, made us expert collaborators. And it was this collaborative ability that led to the development of another crucial skill: the *division of cognitive labor*.
+
+If we were unable to parcel out cognitive work, modern life would be impossible.
+
+Just think of the house you live in. It wouldn’t exist without droves of specialists, from architects to electricians, plumbers to plasterers. Sure, you might be able to bang together a habitable structure, but it would probably have problems. The pipes might leak or the walls might be uneven.
+
+The division of cognitive labor makes it possible to take one skill (building houses) and divide it into subskills, like plumbing and building walls. What’s more, it makes it possible for wall builders, even if they know little about plumbing, to construct walls that plumbers can put pipes in.
+
+They can do this because of *shared intentionality*. Each worker can collaborate with all the others because everyone shares the same intention: building a house.
+
+Humanity’s greatest accomplishments, from smartphones to space exploration, are the result of these two abilities: the division of cognitive labor and shared intentionality.
+
+# Machines can’t share intentionality and it’s unlikely that a superintelligence will emerge.
+
+You’ve no doubt heard a news story about some feckless individual who, beguiled by his GPS system, went driving into a lake or down some impassable road. Such things happen with unsettling frequency.
+
+But how could someone be so silly?
+
+Well, here’s the thing. Technology has become so advanced that we treat it more like a living organism than the tool it really is.
+
+People have evolved to use tools. We naturally use objects as though they were extensions of our bodies. When you write with a pen, for instance, you’re aware of the pressure of the nib on the paper, not the pressure of your fingers on the pen. But technology isn’t like most tools.
+
+Indeed, it’s so complex that it seems lifelike; our phones talk to us and our laptops automatically install mysterious updates. And technology’s lifelike quality fools us into thinking that it, like other people, can share our intentions.
+
+But, of course, it can’t. Just because it can help you arrive at your destination doesn’t mean it *wants *you to get there. It’s easy to forget this, however, and so, when the GPS system tells us to turn left, we turn left – and end up in the lake.
+
+Clearly, technology’s inability to share intentionality can be inconvenient. But, in fact, it’s probably good that it can’t – at least, not yet.
+
+Have you heard of the concept of a “superintelligence” – a machine or collection of machines with godlike intelligence and the ability to wipe out the human race?
+
+Brainiacs like Elon Musk, Bill Gates and Stephen Hawking have warned that one might emerge. If this happened, they say, and it didn’t share humanity’s goals, *Homo sapiens *might be driven to extinction.
+
+However, this is probably an idle fear. Machines, unlike humans, can’t share intentionality. They may seem smart but, actually, they simply have access to vast stores of information that they can process very quickly. They can only do what they’ve been programmed to do.
+
+The exponential growth of the human brain was caused by collaborative instincts and an ability to share intentions – we have no idea how to program those skills. So the birth of an evil superintelligence probably isn’t imminent.
+
+More worrisome is our overreliance on machines that, though sophisticated, aren’t actually very bright.
+
+# Fear of new developments can lead to anti-scientific sentiment, which is hard to reverse.
+
+New technologies can be scary. The possibility of a superintelligence is, however remote, deeply unsettling, so it’s reasonable to be a bit wary of the whiz-bang pace of technological change.
+
+But such fears can also go too far, becoming reactionary rather than reasonable. And this can lead to anti-scientific thought.
+
+One benign scientific development that people tend to fear is genetic modification. People worry that genetically modified organisms (GMOs) are unhealthy. Indeed, they seem to think that genes work like germs.
+
+In one study, people were asked to rate their opposition to a range of genetically modified products, including food items, skin products and construction materials. Almost no one was opposed to the construction materials, and many felt fine about the skin products. But the food items were met with strong opposition. People seemed to believe that ingesting a gene was as repellent as ingesting a germ.
+
+So how can we disabuse people of such misguided beliefs? Well, it’s not such an easy thing to do.
+
+The geneticist Walter Bodmer proposed that people fear new technologies because they don’t understand them. This idea, that people distrust what they don’t understand, is called the *deficit model*. Bodmer proposed that the easiest way to allay groundless fears would be to fill the deficit by helping people become better informed.
+
+But despite countless educational initiatives, this approach hasn’t worked. When it’s explained to people that introducing a pig gene into an orange tree won’t make that tree’s oranges strange or pig-like – and that, in fact, it would help the tree resist citrus greening disease – they *still* harbor strong negative beliefs about GMOs.
+
+A major reason for this is that we tend to construct faulty causal models.
+
+For instance, people often try to heat their houses quickly by cranking the thermostat all the way up. This doesn’t cause your house to get warmer faster – but it’s clear why people do it. Intuition suggests that electricity flows like water, and when you fully open a faucet, more water comes out. So why wouldn’t furnaces work the same way? It’s a faulty causal model.
+
+This happens with GMOs, too, causing us to vaguely imagine ridiculous things – for instance, that introducing a pig gene into a tree will have some sort of porcine effect.
+
+# 
+
+*“The opinions that are held with passion are always those for which no good ground exists.”* – Bertrand Russell
+
+# We can avoid groupthink by thinking causally and politicians simplify matters by appealing to sacred values.
+
+The horrors of the twentieth century have baffled historians and social scientists for decades. How could so many normal citizens support dictators such as Joseph Stalin, Mao Zedong and Adolf Hitler – men whose policies and politics led to the deaths of millions of innocent people?
+
+Well, one reason is *groupthink*, a term used by the social psychologist Irving Janis. Groupthink is the tendency of communities (or a sufficient majority of their members) to uncritically arrive at a consensus on a particular issue. When everyone around you believes the same thing, it’s difficult to believe something else. This is what happened in Soviet Russia, Nazi Germany and Communist China – and, clearly, its effects can be catastrophic.
+
+So how can we avoid falling victim to groupthink ourselves?
+
+One way is to fully understand the policies promoted by modern-day politicians – or, at the very least, to know how little you understand about them.
+
+Consider an experiment conducted by the authors. They asked participants to rate, from one to seven, their opposition to or support of particular political policies, such as whether unilateral sanctions should be imposed on Iran. They then asked them to explain, in causal terms, the effects that such policies would have. Unsurprisingly, most participants had difficulty doing this.
+
+Next, the authors asked them to again rate the strength of their opposition or support. Interestingly, after struggling to give a causal explanation, radical participants (those who’d initially strongly opposed or strongly supported a particular policy) rated themselves as much more moderate.
+
+So promoting causal understanding may be a way to bridge political divides; however, there are some beliefs that no amount of causal explanation can dislodge.
+
+Take abortion. Pro-lifers don’t really consider the effects of antiabortion laws. They simply *believe* that killing a human fetus is wrong. With similar intractableness, pro-choicers *believe *that women should have the final say in what happens to their bodies.
+
+Such beliefs are based on sacred values, which are all but impossible to alter. There’s nothing wrong with that, but beware: politicians often use the language of sacred values to promote policies that deserve closer scrutiny.
+
+A drawn-out speech about the complex geopolitical effects of placing sanctions on Iran is unlikely to win votes. So politicians simplify matters, using a barrage of bromides about shared values to distract voters from actual policy.
+
+# We need to redefine smart and reassess education.
+
+You’re no doubt familiar with Martin Luther King Jr. and Albert Einstein. As anyone will tell you, these titans of the twentieth century were responsible for two of history’s major paradigm shifts – one social (civil rights) and the other scientific (the theory of relativity).
+
+But here’s what often goes unmentioned: neither man worked alone. Each benefited from a rich network of collaborators. And each stood on the shoulders of the hard-working individuals who’d come before.
+
+We forget this because the whole story is far too complex for most of us to remember in great detail. Their names function as a sort of shorthand.
+
+This leads to a problem, however. Most of us begin to believe the simplified story – that a small cohort of individual geniuses are responsible for history’s great deeds and discoveries.
+
+According to the authors, it would be wise to abandon this view. They propose two ways of doing this: redefining smart and reassessing education.
+
+Remember, we didn’t evolve to be repositories of knowledge. Nor did we evolve to work in a vacuum. As has already been argued, we evolved to divide cognitive labor and collaborate.
+
+A new definition of smart would take these abilities into account. So, rather than merely measuring a person’s IQ, we ought to assess her ability to contribute to group tasks.
+
+We should also encourage collaborative abilities in school by eschewing lectures and introducing hands-on activities.
+
+Most people’s view of education is quite limited. Attending school isn’t all about memorizing facts. After graduation, one shouldn’t necessarily possess more knowledge than one’s undergraduate self. What one *should *possess is the ability to engage in collaborative enterprises.
+
+The purpose of education isn’t only to pass on knowledge; it’s also to remind people of their ignorance. After all, once you’re aware of how little you know, you’ll be much more likely to seek help from the community of knowledge possessors that you’re a part of.
+
+That’s not only an invaluable skill. It also shows that you understand something we should all keep in mind: we never think alone.
+
+# Final summary
+
+The key messages in these blinks:
+
+**Most of us think we know more than we actually do. We think this because we ignore complexity and believe that our brain, like a computer, is designed to store information. This isn’t the case. Rather, our brains evolved to work with other brains and to engage in collaborative activities. Indeed, it’s our ability to divide cognitive labor and share intentionality that’s led to our species’s success. So, when thinking about intelligence, we should take into account people’s collaborative aptitude, and we’d do well to encourage more collaboration – not just in school, but in society as a whole.**
+
+Actionable advice:
+
+**Don’t let the illusion of explanatory depth drain your bank account.**
+
+People tend to think they understand how money works: the less you pay, the more you’ll have. But here’s the thing: if you take out a loan, the more you pay now, the less you’ll end up paying in the long run. Imagine you take out a $10,000 loan with an annual interest rate of 12 percent. If you decide to pay $110 per month, it’ll take more than 20 years before you’re debt free (and you’ll pay more in interest). If you pay $120 per month, you’ll be in the clear in 15 years, and you won’t have to pay as much interest. So remember that, sometimes, spending more actually means spending less.
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****The Wisdom of Crowds *****by James Surowiecki**
+
+*The Wisdom of Crowds *explores why, and under which circumstances, groups of people can come up with better solutions to problems than any one person – even if that person is an expert. By analyzing the way individuals and groups make decisions, the book gets to the bottom of *the wisdom of crowds*, and shows how this wisdom can be used to make reliable decisions.
+
+
+Source: [The Knowledge Illusion by Steven Sloman & Philip Fernbach](https://www.blinkist.com/en/nc/daily/reader/the-knowledge-illusion-en/)

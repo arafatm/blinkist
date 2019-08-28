@@ -1,0 +1,148 @@
+![The Gentle Art of Swedish Death Cleaning](https://images.blinkist.com/images/books/5b8fa55eb238e10007f3a7ee/1_1/470.jpg)
+# The Gentle Art of Swedish Death Cleaning
+*Margareta Magnusson*
+
+>The Gentle Art of Swedish Death Cleaning (2018) provides a helpful guide through the process of taking stock of your life’s belongings and getting rid of the things that you don’t need and that may trouble your loved ones. This is especially important as you get older and face mortality. Instead of leaving the burden of sorting and discarding to your children, you can take control with death cleaning, with the added benefit of appreciating a life’s worth of memories at your own pace.
+
+
+# What’s in it for me? Learn how to take stock of your belongings.
+
+You may have heard of some of the benefits of keeping a tidy house, whether for a minimalistic approach or because a clear environment equals a clear mind. But there’s another important reason for keeping your home clear of clutter – you ensure that someone else doesn’t have to do the job later on.
+
+You might think of cleaning up or reorganizing your life as a hassle best avoided or otherwise put off to a much later date. Generally speaking, we put stuff in our basement, attic or storage space, so we don’t have to think about it. But here’s the thing: if *you* don’t want to go through your boxes and figure out what’s worthwhile and what isn’t, why would you want to make your loved ones do it after you’re gone?
+
+While you may not like tidying up, these blinks will show you that it doesn’t have to be a big painful ordeal. Regularly taking stock of your belongings and keeping your house in order can be peaceful and reassuring.
+
+In these blinks, you’ll learn
+
+- why selling an heirloom may be better than holding onto it;
+
+- how death cleaning can be an opportunity for family bonding; and
+
+- how a “throw-away box” can save your family from embarrassment.
+
+
+# Döstädning or “death cleaning” is the Swedish practice of clearing away extraneous belongings before you die.
+
+Have you ever stopped to consider what’s going to happen to all of your stuff when you die? Whatever you leave behind will inevitably end up being the responsibility of your loved ones. And having to go through all your belongings isn’t just a tall order in terms of time and effort; it’s also sure to take quite a psychological toll.
+
+Of course, acknowledging your own mortality can be uncomfortable, but when you think about it, the considerate thing to do would be to take care of your belongings ahead of time. The Swedish have a name for this – *döstädning*, or “death cleaning.”
+
+There are a number of reasons you might find yourself cleaning house and reducing your amount of belongings. You may have lost a loved one, found yourself facing a break-up or divorce, downsizing to a smaller home or making the transition to a nursing home.
+
+Having lived a long life, moving 17 times, the author knows a thing or two about the art of death cleaning. With each move, she’s gained more insight into what deserves to be carried around.
+
+Now, you don’t need to be sick or even elderly to take steps to make things easier for your loved ones. In fact, the smart thing to do is start cleaning up now rather than later.
+
+The art of *döstädning* is more than just dusting and tidying up; it’s essentially taking a fine-toothed comb to all of your belongings to chuck away any unnecessary things. What’s more, it’s a permanent state of living your life in such an organized way that things constantly run smoothly.
+
+You might find the process difficult, but there are ways to emotionally prepare yourself and make it as quick and painless as possible.
+
+For example, when the author’s parents passed away, she inherited a lovely bracelet from her mom. Now, if she were to keep this item in her possession, it would create the possibility of conflict between her five children as to who would inherit the bracelet.
+
+When she practiced death cleaning, she avoided this problem altogether by selling the bracelet. After all, each of her kids had already inherited something from their grandparents, so why complicate things with jealousy and hard feelings?
+
+# 
+
+“*Putting your house in order, if you can do it, is one of the most comforting activities, and the benefits of it are incalculable.*” – Leonard Cohen
+
+# Begin your döstädning by tackling small spaces first, giving away things and avoiding photographs for now.
+
+If you know that going through all of your stuff would be a heavy and painful burden for your loved ones, figuring out how to downsize could very well take you a lot of time. Nevertheless, it’ll only get worse the longer you wait.
+
+So let’s get started and learn some practices and preparation that can make the process easier.
+
+The best place to begin your *döstädning* is at the top or the bottom, depending on whether you have a basement, attic or both since this is where needless clutter tends to pile up. You may also find junk you forgot you had piling up in cupboards by your front door.
+
+Whether it’s sports equipment you haven’t used in ages or an old dollhouse gathering dust, consider who in your life *would *use and enjoy these things now. If you’re not sure, you can invite people over to have a look at all the books, toys or tools for which you have no use.
+
+This can be a good opportunity to bond with your family as well, especially grandchildren who may not be so familiar with your younger days. As you go through your things, you can bring up the stories and old memories associated with these belongings. This is a perfect win-win situation; you’ll get closer to your loved ones, and they might get some great things they’ll cherish!
+
+The more time you spend going through your belongings, the easier it will become to know what to keep and what to get rid of. You may also find yourself knowing just who to give items to.
+
+The author’s mother-in-law, for instance, owned a store filled with imported goods, including items from Japan, hand-made baskets, precious china and printed tablecloths. As she got on in years, she began to give away an item from her inventory to each family member that visited, generously adding beautiful things to her family’s homes.
+
+Now, while attics and basements make for a good place to start, you don’t want to begin with stacks of personal letters, papers or photographs.
+
+These are bound to be the most sentimental, humorous, poignant and potentially sad items among your belongings. They can easily get you pausing to read each page, bog you down in memory lane and keep you from making any progress with all your other stuff.
+
+So leave these items until you’ve made significant progress on figuring out the destiny of your big pieces of clutter, like furniture, books and other belongings that take up the most space. When it comes to death cleaning, size really does matter!
+
+# Broach the topic of death cleaning with your loved ones with tact, honesty and creativity!
+
+Back when the author was growing up, it was thought of as impolite for a child to ask an adult questions about death. As a result, young people generally had no idea what adults thought about death or how they prepared for it.
+
+Fortunately, honesty is more valued than politeness these days, so it’s more acceptable to ask a loved one something like, “What do you plan on doing with all of your things when you’re no longer able to look after yourself?” So now’s the time to ask your relative the difficult question if you are worried about having to take care of their things when they’re gone.
+
+This is a common worry for those of us with elderly parents; few people look forward to putting things on hold so they can sort through the belongings of a deceased parent.
+
+If this is something you’re concerned about, but want to be more gentle in your approach, you might try a question like, “Wouldn’t it be easier to clean and manage your home if we gave away some of these things?” Or maybe, “Can I help you sort through some of your things now, so we don’t have to do it all at once later on?”
+
+If your parents don’t pick up the hints the first time around, just give it some time and try rephrasing the subject.
+
+Certainly, it can be challenging to find both the honesty and tact to bring up death cleaning. So, if all else fails, you might find success by bringing up the traditions of the Vikings!
+
+During the age of the Vikings, a loved one would be buried with their belongings so that they wouldn’t miss them in the afterlife. But this practice had the additional benefit of helping the surviving loved ones move on since they weren’t surrounded by the old belongings and spirits of the dead.
+
+Of course, this isn’t so practical today. Given all the junk we accumulate, we’d have to be buried in graves the size of a giant swimming pool for everything to fit!
+
+# 
+
+*“A loved one wishes to inherit nice things from you. Not *all *things from you.”*
+
+# Be mindful of discreet secrets in the process of death cleaning.
+
+If you have a secret vice that you don’t discuss with anyone, think about how awkward this might be if a loved one stumbled upon it after you’re gone. Or, think about how you’d rather not come upon some secret that changes your understanding of someone close to you.
+
+So you’d be doing others a big favor by getting rid of any embarrassing private letters, diaries or anything else that has the potential to hurt your loved ones. And don't just put the incriminating documents somewhere they'll never find them – burn them or feed them to a shredder.
+
+When the author was death cleaning her parents’ home after they had passed away, she found a few surprising things, including secret cartons of cigarettes her mom had hidden in the linen closet.
+
+But perhaps more mysterious was the large piece of arsenic she found in her father’s desk. It must have been there for 30 years, likely dating back to the time when they feared the Germans would invade Sweden. But the question remained, why would he hold on to it for so long? Did he think the poison would still come in handy someday?
+
+The more considerate act would be to avoid having loved ones consider such troubling questions and dispose of items like these yourself.
+
+If you can’t bear to get rid of sentimental yet potentially troubling items, consider putting them in an easily disposable “throw-away box.” This way, you don’t have to burn cherished items, and your loved ones don’t have to sort through them; they can simply dispose of the box. Just keep it small and shoebox-sized, and label it with “please throw away” instructions so that it’s easy for others to handle.
+
+The author has found that one of the most important life lessons she’s learned is knowing when to let go of things, be they belongings, pets or people.
+
+# Be especially mindful and considerate of how you take care of photographs.
+
+Once you’ve taken care of the larger things and thrown away your personal and potentially troubling items, it’s time to deal with the smaller objects that can still pack a heavy emotional punch: the photographs.
+
+Your collection of personal snapshots may continue to hold a great deal of meaning for your family after you’re gone. However, since everyone’s memories are different, a photograph you cherish might not have the same meaning for your child.
+
+You may find it helpful to follow the author’s lead and give each of your kids their own personal photo album. This way, you can send them a stack of new photos from time to time and let them decide which photos they want to keep in their album. This worked out well for the author as her children looked forward to getting photos in their mailbox, and she didn’t have to worry about dividing them up.
+
+When going through your own photographs, there are some simple tips to help make it a little less painful.
+
+First of all, discard superfluous copies and chuck any photos full of people you can't name. If loved ones want multiple copies, let them deal with it on their own. And if you can't name all the people in the photo, chances are no one else can either.
+
+Digitizing your photos and putting them all on a USB memory stick is another helpful way to declutter a closet worth of photos onto a small, convenient device.
+
+The author recommends that you start the death cleaning process no later than the age of 65. This is a time when you’re likely to start coming to terms with your mortality but are still young enough to have plenty of time to sort out all your belongings at a leisurely pace.
+
+Remember, the gentle art of *döstädning* is as much about letting you peacefully recall a lifetime’s worth of fond memories as it is about being considerate to those you leave behind.
+
+# Final summary
+
+The key message in these blinks:
+
+**By going through your belongings in preparation for death and considering what you leave behind for others to deal with, you’ll be saving your loved ones time and heartache. But the experience can also be an enjoyable one for you. Start the process early and give yourself, and your family, plenty of time to take pleasure from your belongings and their histories.**
+
+Actionable advice:
+
+**Ask yourself some important questions before adopting a pet.**
+
+If you’re approaching old age and would like a new pet, consider adopting an older one that has a similar energy level to you from a shelter. And make sure you have someone who is willing to care for the animal when you pass on. If you can’t find anyone, think twice before adopting.
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****The Little Book of Hygge *****by Meik Wiking**
+
+Different countries, like different people, have different personalities. Some are more upbeat; some are more downcast. Out of all the countries in the world, Denmark is often rated as the happiest. And that’s because Denmark has *hygge*. *The Little Book of Hygge* (2016) explains this concept in full and offers tips on how you can achieve it, too – wherever you live.
+
+
+Source: [The Gentle Art of Swedish Death Cleaning by Margareta Magnusson](https://www.blinkist.com/en/nc/daily/reader/the-gentle-art-of-swedish-death-cleaning-en/)

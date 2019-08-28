@@ -1,0 +1,214 @@
+![Collaborative Intelligence](https://images.blinkist.com/images/books/566607dbcb2fee0007000000/1_1/470.jpg)
+# Collaborative Intelligence
+*Dawna Markova, Ph.D. and Angie McArthur*
+
+>Collaborative Intelligence (2015) is a guide to developing your own personal form of intelligence by utilizing your unique ways of thinking. These blinks will teach you how to identify and build on your strengths as well as those of others, while adjusting your communication accordingly.
+
+
+# What’s in it for me? Prepare yourself for the collaborative economy.
+
+The days of the rat race are over. No longer will employees strive against their rivals for position and wealth. No, in the future we will all work together to share our ideas, develop them in friendly teams and bring them to fruition for the benefit of all.
+
+OK, so that’s not going to happen.
+
+What is going to happen though – in fact the change has already begun – is that society and the economy will reach a happy medium between a scenario where rivals fight for market position and one where they share ideas. And, if you want to succeed in this type of economy you’d better improve on your collaborative intelligence, which means your ability to work and generate ideas with others. 
+
+In these blinks, you’ll discover
+
+- how you can stop your attention drifting;
+
+- how to make all your meetings productive; and
+
+- why, when it comes to the brain, we are all different. 
+
+
+# In a world where value is not just placed on things but also on ideas, collaboration has become the most important skill.
+
+Have you ever been stuck in a mind-numbing meeting, feeling like time has slowed to a crawl? Well, here's one explanation for this common experience: in general, people know very little about how to work well with others.
+
+That’s because instead of being prepared for collaboration, we’ve been trained for a *market-share economy*, in which value is placed on things and power is exercised over others. In this world, success can be measured in the assets one accrues – things like money, cars and houses. 
+
+But it’s also a world in which we’re taught to be right and focus on our individual ability, self-sufficiency and independence; one in which a leader is someone who’s comfortable saying “I’m right and you’re wrong,” while handling difference through eradication and control. 
+
+On the other hand, in what the authors call a *mind-share economy*, wealth is based more on ideas and relationships than on transactions. For instance, if two people come up with an idea and talk about it, they’ll both have other ideas. That means the more we share, the more everyone will know.
+
+This simple fact makes generating, developing and executing ideas with other people one of our most valuable abilities. So, instead of trying to outdo your colleague, listen to their perspective and try to learn from them.
+
+But that doesn’t mean doing away with market-share mentality. It just means balancing it with mind-share mentality so we can compete and collaborate while striving toward a common goal. For instance, LinkedIn is in direct competition with headhunters, but also shares with them. As a result, the site knows what headhunters need and can better assist them in using the site to hire LinkedIn’s users – a direct benefit to the company. 
+
+However, to emulate LinkedIn you’ll need *collaborative intelligence*, or the ability to reach out to others, listen to them and open your mind to difference. Because only by doing so will you be able to achieve together. 
+
+# 
+
+*“Market-share mentality is trying to answer who is right and who is wrong, whereas mind-share asks for what is possible.”*
+
+# There are three kinds of attention, all of which are valuable.
+
+If you were asked to define the word *attention* it would be a piece of cake, right? Think again, because this common word actually breaks down into three forms.
+
+That’s because attention dictates what and who you notice, but also regulates the information flow within yourself and that between you and others. Not just that, but you can aim it, follow it or shift it, depending on your intentions.
+
+The first type of attention is called *focused* attention, which describes being concentrated on one entity and ignoring everything else. It makes your thoughts certain and directed, helping you accomplish goals. For instance, when you’re on a computer, all your attention is aimed at the screen as if nothing else exists.
+
+But attention can also be *sorting*, that is, shifting between the internal and the external. This form of attention is good for categorizing and digesting information, letting you clearly comprehend the big picture.
+
+A common example of sorting attention is the back-and-forth of weighing different options. At times like this your brain takes in all the available information by saying “on the one hand . . . but then again on the other hand . . .”
+
+The third state of attention is *open*, meaning your focus is diffuse, allowing you to access memories, images and ideas while producing new insights and thoughts. For instance, when you’re rethinking ways to solve an old problem.
+
+So, there are three distinct forms of attention and during the day you shift between them according to your own rhythm.
+
+Unfortunately, society places far too much importance on focused attention. Just think of how many times you heard that more focus would make you more productive! The thing is, all three forms of attention are essential, and favoring or neglecting any of the three kinds of attention can have major consequences.
+
+# 
+
+*“There is no one way of ‘paying attention.’ Our brain uses all three states to learn and think.”*
+
+# Understanding how your brain works is essential to being the best you can be.
+
+When you think of a lemon, what comes to mind? Most people would say the color yellow, a citrusy smell as well as the shape and feel of the fruit. But which came easiest to you?
+
+Your answer depends on the three perceptual channels that profoundly affect the way humans process information. Because when you thought about a lemon you actually experienced three distinct sensations: *kinesthetic*, meaning the way a lemon feels, *visual*, or the printed word “lemon” as well as the bright color of the fruit, and finally *auditory*, or hearing the word “lemon” in your head. 
+
+Furthermore, brain-wave studies conducted on school children have found that there is no single way that information can be presented that will focus the attention of all kids. That’s because some find visuals the most engaging, while others need to be listened to and talked with. 
+
+Not just that, but combining the three types of attention with the three perceptual channels creates six mind patterns, each with its inherent strengths and weaknesses. For instance, people who are visually focused find it easy to see details in their minds and can readily take in complex visual information. However, they might also be prone to spacing out and envisioning new possibilities. 
+
+Take Jesse, who is visual-focused, kinesthetic-sorting and auditory-open. It’s easy for him to work hard at visual tasks – he has great visual recall – but he can’t remember names, he doesn’t like speaking on the fly and he often has to gesture to find his words. 
+
+So, what does this mean for you?
+
+Well, knowing which mind pattern you use is essential to guiding your thinking and helping you accomplish the task at hand without getting stuck. Before Jesse makes an important decision, for instance, he might build his sorting attention by talking with a friend and going for a walk, or taking a moment to gaze out the window to shift his brain into neutral.
+
+# 
+
+*“Language does not seem to play any role in my mechanism of thought . . . in my case the elements are of visual and muscular type.” – Albert Einstein*
+
+# Foster awareness of your own mind pattern and adjust your communication strategies to better collaborate with others.
+
+Have you ever had a colleague whose words you just couldn’t seem to follow? The root of this difficulty might be a mere difference of mind patterns. So, it’s key to understand your own mind pattern and the tools you need for effective communication.
+
+If you find yourself needing to move around to focus and see your attention drifting when people speak, it might be helpful to have a whiteboard handy on which you can jot down notes following a conversation. Or you might benefit from taking small breaks of silence during meetings to allow yourself the space to think things through on your own. 
+
+Once you’ve identified ways to help *yourself* comprehend and communicate, it’s essential to adapt your approach according to your understanding of your conversation partner’s mind pattern. To do this you can start by asking people which communication forms they find the most effective and try to integrate these into your meetings. 
+
+Then, after a meeting you can ask participants how they felt each communicative element functioned. For example, some people really like discussing problems in small groups and others might find that taking silent breaks makes them lose focus. 
+
+But it’s also important to be aware of how you affect others and to have a plan to adjust your strategy. If it seems like one person is speaking too much it could be because talking helps him focus. Try asking people like this to move around and you might find that kinesthetic input will shift their focused attention to a sorting or open one, both of which will make them more attentive and open to input. 
+
+If this strategy is particularly effective for your group you might want to start every day by holding a 15-minute walk during which you discuss your agenda for the day. 
+
+# Name, contain and aim your talents to contribute the best of yourself to your team.
+
+Do people ever ask how you got so good at what you do? Most people can’t think of any response other than, “I don’t know, I just do it.” However, there could be a neat explanation and it’s got everything to do with *thinking talents *– your innate capacity to think in ways that boost your mental energy. 
+
+In fact, there are 35 different talents and each human has approximately five of them, which together make up their unique form of intelligence. Some have a talent for *creating intimacy *– it’s easy for them to forge deep relationships with others. Other people are good at *making order* and enjoy sorting different variables. People like this dive head first into confusing situations and organize them. A third talent is *taking charge*, which describes people who motivate others to action. They might be bosses and generally feel comfortable confronting others when necessary. 
+
+So, everyone has specific thinking talents, but our deficit-oriented culture obscures them. That’s because we’re obsessed with fixing our shortcomings instead of maximizing our strengths. That means our talents sometimes end up hidden behind other, less desirable traits. 
+
+A logical person might have to think through every idea before accepting it. But other people might view this tendency as overthinking that stalls new ideas. 
+
+Therefore it’s essential to communicate your talents. Because doing so allows others to see your perspective and helps you utilize your skills. When it seems like your talent could be helpful, simply tell everyone your intentions. This could be as easy as beginning a series of questions with a preface that states where you’re coming from, like “I tend to think very logically, so I just need to ask a few clarifying questions . . .”
+
+But be sure to use your talents and don’t let them get hidden away. Because studies have found that the more employees a company has that can answer the question “can you use your strengths at your workplace?” with a “yes,” the higher its success. 
+
+# 
+
+*“Mind-share mentality is about asking ‘What can I be learning from this?’ instead of ‘Who is wrong and who is right?’”*
+
+# Understanding cognitive styles, thinking talents and blind spots will improve teamwork and communication.
+
+Are you always having fantastic ideas but rarely getting the opportunity to execute them? Or do you lack good ideas but seem to end up being the one who actually *does* something? Well, the category you fall into could relate to your preferred way of knowing and approaching challenges – also known as your *cognitive style*.
+
+What’s that?
+
+Well, just like most people have a preferred hand, foot, eye and ear, we also tend to have a preferred way of thinking. In fact, Ned Hermann, author of *The Creative Brain*, described four different cognitive styles, two from each hemisphere of the brain, for a total of *four quadrants of thinking.*
+
+In the left hemisphere there’s *analytical thinking* – a preference for data, facts, numbers and rationality. But there’s also *procedural thinking*, which focuses on processes, logistics, operations and tactics, like detailed step-by-step procedures.
+
+In the right hemisphere there’s *relational thinking*, which is all about feelings, morale, teamwork and human development. And there’s also *innovative thinking*, a cognitive preference for the future, newness, possibilities, strategy and the grand scheme of things.
+
+Not just that, but each thinking talent is associated with a cognitive style, meaning you have natural sweet and blind spots. For instance, if you or your team is well-stocked with innovative thinking talents, like being highly adaptive and always learning, but are also lacking in procedural skills, you’re likely to have lots of ideas, but have difficulty making them a reality. In fact, studies have found that only three percent of humans have natural talents in all four areas.
+
+But knowing your own cognitive styles and those of others will improve collaboration and communication. For example, it’s common to hear “yes-but” questions when you’re presenting a new idea and someone asks, “This sounds great, but how can we get enough people on board to realize it?”
+
+Many people react to such questions by feeling attacked or stressed, but it’s better to consider where the person is coming from. This will help you see that your interrogator is actually embracing your idea, just from a different perspective.
+
+# 
+
+*“The fact that we are different doesn’t mean that one of us is wrong. It just means that there are different kinds of right.” – Faith Jegede*
+
+# Asking questions and accepting uncertainty will let you find inspiration and seek help from others.
+
+How long does it take you to admit your ignorance when you're faced with an idea you don't know the answer to? People who take a long time to fess up in such situations might benefit from knowing that intelligence is not something people are born with, but something we develop. 
+
+That’s because thinking that intelligence is fixed makes people feel like they’ve got to know everything and hide what they don’t so people will think they’re smart. The inverse of this approach is what psychologists call a *growth mind-set *– the perspective that intelligence evolves and that challenges are learning opportunities.
+
+People with this outlook see every experience as a chance to learn. When criticized for the repeated failures he made before he invented the lightbulb, Thomas Edison pointed out that it wasn’t that he’d failed – instead he’d proved 700 ways in which a bulb *didn’t *work. 
+
+So, the best way to learn, develop and connect to others is to ask questions. That’s because good questions link us to what we know and inspire us to seek new possibilities by viewing the world from different perspectives. Every great idea begins with a great question.
+
+Just take George de Mestral. One day he was walking in a field and noticed a burr stuck to his pant leg. Instead of just brushing it off, he thought, “what could this be used for and what can I learn from it?” The result was Velcro. 
+
+But for questions to be beneficial it’s essential that you be comfortable with uncertainty. That’s because the best questions are not easily answered, and we shouldn’t expect ourselves to find simple solutions. However, we’re trained in school to come up with answers and even have competitions over answering the fastest. 
+
+As a result, questions that go unanswered tend to annoy us and we try to avoid them. But actually, being able to bear uncertainty is like exercising a mental muscle. That’s because doing so opens your mind to exploring new possibilities. 
+
+# 
+
+*“The power to question is the basis of all human progress.” – Indira Ghandi*
+
+# Different types of questions can free your thoughts and broaden your perspective.
+
+Have you ever been in a meeting where it felt like nothing was getting accomplished? Well, there’s a way to avoid this situation and it’s all about *success-based *and *intentional questions*. Questions like these can be just the thing to get you or your team moving when you’re stalled or overwhelmed. 
+
+Here’s how they work.
+
+A *success-based inquiry* is designed to remind you of a past success and, by identifying the conditions that made it possible, to increase your present confidence. For instance, “When in the past did we face a similar challenge and what did we do to overcome it?” Asking questions like this helps you bring the knowledge of one experience to bear on another by using the intelligence of team members to promote a growth mind-set. 
+
+But an *intentional inquiry* reminds you of what’s essential to clarify your priorities. If you feel lost, overwhelmed and confused, helpful questions might be, “What’s challenging me?” “What’s most important to me about this?” or “What do I want to learn from this?”
+
+Each of these is an open question that only you can answer. They’ll give you the strength to excel despite uncertain and complex situations. 
+
+Not just that, but asking *influential questions* about all four quadrants of the cognitive styles will enable your team to explore different perspectives by building on difference. That’s because while every person has his or her preferred style of thinking, we also each have our preferred way of asking questions. 
+
+To reap the benefits of this diversity you can get each team member to ask questions that come most naturally to them, ensuring that the issue at hand is explored from every angle. Someone with an analytic style might ask, “What is the most logical solution?” While a procedural thinker would say, “How much time will it take?” 
+
+In this way, influential inquiry will reconnect you and your team with your natural strengths while teasing out areas in need of more support. 
+
+# Focusing your group’s attention on a common goal will shift its mind-set toward collaboration.
+
+Capturing a group’s attention is a good feeling. So, how can you prevent them from losing interest?
+
+By aligning your attention with that of your team, which means focusing on the present and accounting for individual differences. In a meeting you can draw everyone’s attention by identifying the different assets and skills in the room. You might do so by recounting each person’s past contributions and what they are each good at. 
+
+Then it’s key to give each person the chance to tell the group what keeps them focused personally and encourage them to each take the necessary steps to stay on task, whether that means taking a walk or a moment of silence. 
+
+But remember that intention drives actions and it’s essential to keep it aimed at a goal. If you’re working on a team project, you can ask everyone to bring in a photo that sums up their intentions in participating. Hanging all these photos together on a wall will unify the group’s intentions. 
+
+Then you can create the drive your group needs to realize its goal by combining these strategies with an imaginative perspective aimed at a common vision. It’s easy to aim your imagination – it just means identifying the value of your shared intentions to create and explore possibilities. 
+
+When unified, these three elements of mindshare will form a trajectory that advances unstoppably. For instance, just one year after apartheid ended, South Africa hosted the Rugby World Cup. In an effort to bring the country together, the national team traveled to all the poorest townships and played with local kids, thereby boosting goodwill and support. As a result, the nation’s attention, intention and imagination focused on a common goal and they won the cup. 
+
+# 
+
+*“It’s no failure to fall short of realizing all that we might dream; the failure is to fall short of dreaming all that we might realize.” – Dee Hock*
+
+# Final summary
+
+The key message in this book:
+
+**Each person has a unique style of thinking, questioning and approaching challenges. To work together effectively it’s essential to understand your own ways of working and those of your teammates. Exploring the diversity of your group will greatly improve its ability to communicate and collaborate.**
+
+Actionable advice:
+
+**Create a collaboration handbook for your team.**
+
+Have each member of your team write a one-pager on their mind patterns, thinking talents, blind spots, cognitive styles and anything else that helps them, like ways they prefer to receive information and feedback. Then meet as a group to share and explain your findings, finally gathering them in a booklet for everyone. 
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+
+Source: [Collaborative Intelligence by Dawna Markova, Ph.D. and Angie McArthur](https://www.blinkist.com/en/nc/daily/reader/collaborative-intelligence-en/)

@@ -1,0 +1,178 @@
+![The Future of Work](https://images.blinkist.com/images/books/5ba7fc6c862c43000712340c/1_1/470.jpg)
+# The Future of Work
+*Darrell M. West*
+
+>The Future of Work (2018) offers keen insights about what to expect when automation and artificial intelligence change the face of the global workforce. Author Darrell M. West gathers a wealth of expert opinions to provide a thorough look at the challenges we’ll face when the industrial economy is replaced by a digital one.
+
+
+# What’s in it for me? Find out what’s in store in the upcoming economic revolution.
+
+Drones dropping off Amazon packages at your front door. Digital menus at restaurants. Algorithms buying and selling stocks and approving loans. Driverless cars and trucks taking you and your goods to their destinations. These are no longer ideas for the future, they’re just some of the ways automation is impacting the workforce today, and more developments are expected tomorrow.
+
+In many ways, technological advances like these are inevitable and make perfect business sense. You can’t expect a company to decide *not *to save millions of dollars by carrying on employing people to do something that a robot can do four times as fast, non-stop with fewer mistakes. When McDonald’s announced their plan to replace cashiers with automated menus, their stock went up immediately. It’s good business.
+
+So what does all this change add up to? It’s what people are calling the new digital economy, and while it may be inevitable, there are many things that need to happen if we hope to prevent chaos and disarray. As author Darrell M. West explains, we need to rethink our approach to work, job training and how we receive benefits like health insurance and pensions. If we act now, we may be able to make the transition smooth; if not, there may be trouble.
+
+In these blinks, you’ll learn
+
+- which 1888 book was quite prescient in its depiction of a future workforce;
+
+- which CEO considers artificial intelligence one of the greatest threats facing civilization; and
+
+- how something called a *citizen account *may be key to the future workforce.
+
+
+# Automation is already displacing workers as we transition to a digital economy.
+
+Back at the turn of the twentieth century, the United States underwent what the author refers to as a “megachange” as a result of the nation’s shift from an agrarian economy to an industrial one. It took decades for the government to deal with the effects of this change and for things to settle down.
+
+Now, we are at the brink of another megachange, and this time, the nation will be shifting from an industrial economy to a digital one.
+
+At the heart of this change is a new business model built around automated robots and artificial intelligence (AI). And we’re already starting to see it emerge, especially around blue-collar jobs.
+
+Some of the most reliable jobs for people who didn’t or weren’t able to go to college have been in restaurants, retail or in transportation – and these are now being affected by automation.
+
+Restaurants across the United States are replacing waitstaff with tablets that make recommendations and explain the menu. An increasing number of retail stores are replacing cashiers with self-checkout options that are getting more advanced. Amazon has a chain of retail stores where customers will soon be able to use an app to have purchases charged to their Amazon account.
+
+Meanwhile, at an average income of $43,590 a year, driving a truck has long been one of the more lucrative jobs for someone with a high school education. But now, automated vehicles are expected to become an industry standard.
+
+In all of these cases, automated services offer a way for businesses to save money. Not long ago, robots and automated services cost more than it would cost to pay an employee for the same job. But this is no longer the case. At Dynamic, a manufacturer of metal parts, a robot can perform the same job of four people for the one-time cost of $35,000. Plus, it doesn’t catch colds, need breaks or health insurance.
+
+Another noteworthy factor is the reduction in human error. At the cell phone manufacturing company, Precision Tech, 60 robots now do what 650 employees used to, and mistakes have dropped from 25 to 5 percent, while production has more than doubled.
+
+As for automated vehicles, experts expect fewer accidents and better fuel efficiency due to smoother acceleration and braking than with human drivers.
+
+# 
+
+In 1962, AT&amp;T was the top US business, with a market cap of $20 billion (adjusted) and 564,000 workers. Today, Apple is at the top, with a market cap of $800 billion and just 116,000 employees.
+
+# Artificial intelligence is also part of the digital economy, and it comes with some ethical concerns.
+
+Steven Mnuchin, the Trump administration’s treasury secretary, told the press that he isn’t concerned about AI as he believes it won’t be a factor until 50 or 100 years from now. Others aren’t so quick to brush off the immediate concerns surrounding AI.
+
+According to Tesla CEO, Elon Musk, AI poses one of the greatest risks to civilization and can certainly be a cause of great disruption to the job market.
+
+What really makes AI competitive is *machine learning*. This is the ability to make a decision based on a certain set of factors, and then use the results of that decision to inform future choices. This process results in continuous improvement, and it’s what allows AI to now be a viable replacement for all sorts of jobs that were once strictly human occupations, like driving vehicles or making financial investments.
+
+Indeed, while AI is likely found on your mobile device or at home, whether it’s Apple’s Siri, Amazon’s Alexa or Microsoft’s Tay, it’s also currently making decisions about a lot of important everyday things, including finances, defense systems and public safety.
+
+Already, AI is replacing many jobs in the financial sector because it can spot tiny fluctuations in the stock market that could signal a good time to buy or sell stocks. It can also quickly make thorough background checks to determine if someone qualifies for a bank loan. As a result, experts predict that bank branches could soon let go of as many as half their staff.
+
+The US military is using AI as part of Project Maven, a national defense scheme. The military uses AI to scan through massive amounts of surveillance footage and flag anything that looks suspicious or unusual.
+
+Some hospitals are using AI in a similar way by having it scan medical images to detect things like potentially cancerous lymph nodes. Again, this automated service saves money, since radiologists can charge upward of $700 to look at four images in one hour, while AI is seen as more efficient and also more accurate.
+
+But some ethical issues have already arisen. In Chicago, AI is being used by law enforcement to determine which areas are most likely to have criminal activity. Already, there are complaints that this has led to innocent people in those areas being harassed by the police.
+
+This highlights another important aspect of AI: its predictions can never be totally objective, as they are heavily influenced by the amount and quality of the data used, as well as the value judgements of the designers when they define “fair criteria” for the system.
+
+# The Internet of Things will change entire industries, including healthcare and public works.
+
+A major component in the digital economy will be the *Internet of Things* (IoT). Made possible by the high connection speeds of the fifth generation (5G) internet network, the IoT is when entire systems of physical goods and household objects become connected and can be monitored and adjusted in real time.
+
+For example, your smartwatch could be used to track vital health statistics that are monitored by a physician who could periodically advise you to cut down on your sugar intake or drink more water.
+
+Indeed, healthcare is an industry that is expected to be hugely impacted by the IoT and its use of sensors and monitors. Your health data is expected to be available soon to any medical professional through cloud storage, and with an increasing number of portable monitoring devices, patients in rural or hard-to-access areas will benefit greatly from these services.
+
+Already, in Taipei, Taiwan, the Citizen Telecare Service System monitors the elderly in their homes using the city’s free wi-fi. The program has already shown great results in quickly recognizing the warning signs of cardiovascular disease by monitoring heart rates for arrhythmia.
+
+Infrastructure has also seen improvements from the IoT.
+
+In some US towns, as much as 30 percent of water usage is wasted through leaky pipes, and 5G sensors allow these leaks to be spotted immediately. Water usage sensors are particularly valuable in dry areas like California, which is already putting them to use in homes, leading to a reduction in water usage of 15 to 20 percent.
+
+Some areas have taken up “smart city” initiatives where real-time monitoring of everything from garbage collection, transportation, traffic lights, energy management and public safety is underway.
+
+And some 75 towns in the United States are using a sensor called Shot Spotter, which recognizes the sound of a gun being fired and immediately sends the coordinates to the police for a speedy response.
+
+And who wouldn’t want to sit in less traffic? With smart traffic lights, cities and towns will no longer have to deal with inefficient lights that only operate on one pattern, regardless of how many cars are on the road. And the benefits go beyond reducing traffic. By adjusting traffic lights in real time, there will be less pollution from fewer cars idling, and people will get to their destinations faster.
+
+# We should rethink jobs to include volunteer activities and other work that benefits society.
+
+According to MIT economist, Andrew McAfee, we should expect most of the jobs currently available to be replaced by automated services at some point in the future. The jobs that are more likely to continue existing are interpersonal ones like mental health therapy and social work.
+
+This brings us to one of the primary changes we need to make in order to prepare for the new economy, which is to rethink and broaden our definition of which jobs are worthy of receiving a wage and benefits like insurance and a pension.
+
+Currently, people perform many jobs that benefit society yet aren’t paid, including various volunteer posts, mentoring, parenting and other community activities. But it’s time we started considering the monetary value of such jobs.
+
+In Edward Bellamy’s novel *Looking Backward *(1888), the protagonist falls asleep in 1887 and awakens in the year 2000 to find that people are no longer defined by their jobs. With technology keeping the world running, people spend their days learning new skills, teaching others and following their own personal interests. What once was science fiction is looking very much like the near future.
+
+The United Kingdom has already taken a step in this direction, as the government considers volunteer work to at least qualify as “looking for work,” so it therefore helps a person qualify for social insurance if they are unemployed. To take it a step further, why not make the activities we now consider volunteer work worthy of a salary?
+
+Art is also something that benefits society and could therefore be considered a worthwhile pursuit. Harvard economist Lawrence Katz believes that the new economy could very well have a category for those who find meaning in life through self-expression.
+
+This meaning is at the heart of many concerns about unemployment. For so long, many of us have centered our purpose, identity and meaning in life around our nine-to-five job, and therefore unemployment can come with great existential worry. However, it wasn’t always like this. In fact, throughout much of human history, our identity was based on family, community, religion and tribal matters – and it may very well be that this is what we’ll return to in the new economy.
+
+# To support economic change, we should look to portable benefits and lifetime education.
+
+Back in 1954, union boss Walter Reuther was visiting a Ford Motors plant that had recently installed new robotic machines on the factory line. A Ford employee asked Reuther how he planned on getting union dues from the robots, to which Reuther replied, “How are you going to get them to buy Fords?”
+
+This anecdote cuts right to the problem of a changing workforce: When workers are displaced by companies eager to cut costs and raise productivity, it doesn’t just mean there are fewer people working, it also means they’re making less money and are therefore less likely to buy the products sold by the company.
+
+The effect of displaced workers is far reaching and extends beyond a drop in consumer spending. One of the big concerns is health insurance.
+
+Currently, most Americans, over 155 million of them, get their insurance through their job. But already there is a growing tally of people who earn their income through freelance or contract work that comes with no benefits. In fact, many new businesses cut costs this way, by hiring a small number of full-time employees and contracting out the rest of the work.
+
+So, to avoid a bigger healthcare crisis than already exists in the United States, some economists are suggesting portable or flexible *citizen accounts*. These would be accounts with a number of safety net items to which all workers would be entitled, regardless of whether they were unemployed or working full- or part-time. These items would include health and life insurance, retirement funds and unemployment compensation, as well as credit that could be put toward continued education and learning new skills.
+
+This brings us to another step we need to take in preparing for the new economy: job training.
+
+The idea that a person’s education stops at around 25 is no longer relevant. Technology and jobs are quickly and constantly changing, and society needs to recognize education as a lifelong endeavor. Fortunately, there have already been impressive strides in *remote learning*, which uses online courses that allow people to learn on their own schedule, which could be a great asset for job training.
+
+These are just some of the considerations that need to be made now, before the next economic crisis hits. We should also be talking about the possible benefits of providing people with a basic minimum income, more flexible requirements around professional licensing and new ways to tax the wealthiest citizens in order to fund the programs we’ll need to transition into the new economy.
+
+# The current political climate isn’t conducive to change, and inaction will only make matters worse.
+
+As we can see, society needs to prepare for the job displacement many economists anticipate. Yet there is very little discussion happening on Capitol Hill.
+
+A big reason why few politicians are paying attention to the growing threat of automation is the extremely polarized nature of today’s politics. Getting a fiercely partisan Congress to agree on anything, never mind broad changes to fundamental programs like unemployment insurance or creating new employment options, is virtually impossible.
+
+It’s worth noting that Barack Obama did address these very concerns before leaving office. He made a speech telling Americans how changes in the workforce were making it necessary to rethink traditional ideas about a 40-hour workweek and minimum wage. In his view, the United States needed to act immediately to give itself a “runway” that would hopefully “make the transition less abrupt.”
+
+This is precisely what the author is stressing, but he sees little movement from the Trump administration or the House and Senate to suggest that this runway is being worked on.
+
+Trump’s actions suggest that he blames any unrest in the workforce on bad trade agreements and lost manufacturing jobs, but the threat of displaced workers goes far beyond these factors. He should recognize that technological advancements are changing business models and threatening jobs in nearly every sector.
+
+If Trump’s current attitudes go unchanged, the populist, anti-Wall Street, anti-globalization sentiment he has stirred up will likely worsen, and this does not bode well for easing the transition into a new economy. Inaction will only increase the tensions and insecurity being felt by the US workforce.
+
+In the past, Trump has recognized that workers feel like their jobs and even their identities are at risk, but unless he does something meaningful about it and seeks to address the new digital economy, the plight of American workers will only get worse.
+
+Researchers already see a direct correlation between unemployment and the number of suicides, drug overdoses and alcohol-related deaths in the country. A study by Princeton University concluded that these issues are especially prevalent among people with only a high school education or less – which is a group that is particularly vulnerable to job losses caused by automation.
+
+# We need to enact social and political reforms to prepare for a changing economy.
+
+The societal impact of automation is already being felt. As it currently stands, many new businesses are worsening the wealth inequality in the United States. Thanks to automation, they have relatively few full-time employees, meaning that only a small group is reaping the earnings.
+
+To prevent an unemployment crisis and dangerous levels of social unrest, the United States needs to enact social and political reforms.
+
+Regarding social reform, citizen accounts could separate health insurance and retirement pensions from being tied to one job, and social programs like permanent job training need to be put in place. One problem with getting such them enacted is that while Democrats tend to support government spending on social programs that benefit low-income families and the unemployed, Republicans tend to advocate for a smaller government and less spending on such programs.
+
+But the real problem here likely stems from a disproportionate influence of the nation’s wealthiest 1 percent. Data from the 2016 election shows that just 100 people account for $1 billion of the $1.8 billion that went to super PACs (political action committees), which are used to fund candidates’ campaigns. That’s a lot of political influence from a small number of people.
+
+And what kind of values do the wealthiest 1 percent have? In surveys, only 35 percent believe the government should work to provide jobs if none are available in the private sector. They are also more likely to believe the government shouldn’t care for the unemployed or the quality of public schools.
+
+While the wealthiest in the United States have a disproportionate influence on politics now, it doesn’t have to stay that way. Political reforms could reduce inequality and bolster democracy, starting with campaign finance reform and putting an end to the electoral college.
+
+Political donations need to be more transparent so that voters have faith in the electoral process. This faith in democracy also extends to the voting process. Currently, the electoral college gives sparsely populated states a disproportionate amount of power. For example, the densely populated state of California gets one elector for every 713,637 people while Wyoming gets one for every 195,167.
+
+In the recent past, two presidents have already been elected despite not having won the popular vote. Each time that happens, more people lose faith in democracy and start believing that the system is rigged. If the United States hopes to ease tensions, democracy needs to be strengthened. This is necessary for preparing the nation for what lies ahead.
+
+# 
+
+The constitutional amendments for income tax and women’s suffrage were also responses to economic changes.
+
+# Final summary
+
+The key message in these blinks:
+
+**There’s a new economy on the horizon: a digital economy, which is based on automated robots and artificial intelligence performing most of the tasks most day jobs comprise today. To prepare for this inevitability, we need to rethink how we define the jobs we deem worthy of wages and benefits.**
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****Out of Control *****by Kevin Kelly**
+
+Though written from the perspective of 1994, these blinks paint a startlingly current and still futuristic image of how technological developments like the internet and artificial intelligence could affect society and humanity.
+
+
+Source: [The Future of Work by Darrell M. West](https://www.blinkist.com/en/nc/daily/reader/the-future-of-work-en/)

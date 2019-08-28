@@ -1,0 +1,212 @@
+![Dying for a Paycheck](https://images.blinkist.com/images/books/5b508460b238e10007b7ed1f/1_1/470.jpg)
+# Dying for a Paycheck
+*Jeffrey Pfeffer*
+
+>Dying for a Paycheck (2018) reveals that 120,000 American die every year because of work-related health issues. This makes work the fifth leading cause of death in the United States – and as dangerous as second-hand smoke. But things could be different, as a number of companies have demonstrated. Backed up by hard facts and the author’s years of expertise, Dying for a Paycheck presents timely solutions for a pressing issue.
+
+
+# What’s in it for me? Find out why 120,000 people are dying from work annually – and how to stop it.
+
+Dangerous occupations are nothing new. Jobs like coal mining or construction are known to be physically damaging to our health, and regulations have been put in place to limit their adverse effects.
+
+But what’s often ignored is the mental health of white-collar workers. Stress from overwork, unemployment or lack of job control has been proven to affect health negatively. From increased chances of heart attacks to higher rates of depression, the modern workplace is putting unneeded stress on millions of Americans.
+
+It doesn’t have to be this way. Employers need to institute positive change in the workplace to make sure their employees are living happy, healthy lives. And what’s more, this results in a win-win situation; healthy workers mean increased productivity and higher profits.
+
+In these blinks, you’ll discover
+
+- what the mayor of San Francisco did to lower emergency room admissions;
+
+- why layoffs are bad for both employees and employers; and
+
+- how the American healthcare system is different from those of other highly developed nations.
+
+
+# Stressful workplaces can adversely affect our health, but it doesn’t have to be this way.
+
+Most of us have experienced stress in the workplace. The statistics agree. In fact, studies show that workplace stress is getting increasingly worse and shows no sign of abating. The American Institute of Stress reported that a staggering 80 percent of Americans experience regular stress at work.
+
+But if workplace stress is such a widespread phenomenon, then what are the consequences?
+
+In short, work can be detrimental to one’s health. For example, according to *Fortune* magazine, Salesforce is meant to be one of the best companies to work for in the United States. But numerous anecdotal reports from employees show a different side to the company.
+
+One unnamed employee who joined the company as a manager was soon compelled to take antidepressants to cope with the stressful work environment. Her constantly changing schedule and demanding job meant she often had to work – or travel for work – on weekends. To cope with all this, she ended up spending around $2,000 a month on therapy and a personal trainer.
+
+But not everyone can afford such coping techniques, particularly in the fast-growing gig economy.
+
+The gig economy is characterized by precarious short-term contracts and often low wages; some have predicted that 40 percent of the American workforce will be gig economy workers by 2020. The economic uncertainty of such work, combined with little to no paid time off, led to a review of 93 studies concluding that gig-economy work leads to decreased safety on the job, as well as a decline in workers’ overall health.
+
+But things don’t have to be this way.
+
+An inspiring example of companies trying to do things differently is Aetna. After CEO Mark Bertolini suffered a terrible skiing accident in 2004, he developed an interest in health. This made him rethink his company’s attitude to employee well-being.
+
+In 2015, Aetna instituted a minimum hourly wage of $16, leading to a 33 percent pay increase for the company’s lowest earners. This, combined with improved employee health insurance and free meditation classes, led to employees reporting 28 percent less stress and 20 percent better quality of sleep.
+
+What’s more, the company’s healthcare costs decreased, showing that caring about employees’ well-being can result in a win-win situation on both sides of the paycheck.
+
+Sadly, companies like Aetna are few and far between. As we’ll see in the blinks that follow, workplace stress extracts an enormous toll on people worldwide.
+
+# The cost of workplace stress in the United States is abominable; it’s the fifth highest cause of death.
+
+Everyone knows that secondhand smoke is unhealthy. Because of this, smoking in public places such as restaurants is increasingly forbidden in the United States. Disturbingly, the author’s research team found that workplace-induced stress is just as deadly as inhaling carcinogenic secondhand smoke.
+
+So why aren’t policymakers legislating against this deadly trend?
+
+Workplace stress in the United States is actually the fifth-highest cause of death, amounting to 120,000 preventable deaths every year. After careful analysis of data relating to public health and workplace conditions, the author and his research collaborators arrived at this troubling figure.
+
+But how does workplace stress contribute to so much suffering?
+
+This is partly because in the United States work isn’t just the place where people spend time to earn money, it’s also usually where many get their health insurance. This means that at least 85,000 of these 120,000 deaths are due to a lack of health insurance, whether via unemployment, freelance work or simply a lack of employer-provided coverage.
+
+For those in employment, an estimated 28,000 deaths are due to stress from overwork, lack of job control or social support in the workplace. Causes include global competition leading to increased working hours. The growth of mobile technology also means employees are increasingly expected to be “online” and work outside office hours.
+
+All of this increased stress affects our physical health, with numerous studies showing the link between stress and disease. In men, for example, stress leads to heightened chances of many types of cancer.
+
+Monetarily speaking, the price of stressful workplace practices led to $190 billion in excess mental healthcare costs or about 8 percent of total US healthcare expenditure.
+
+At least half of these deaths could be avoided if the United States were to adopt a policy similar to its highly developed European counterparts. In fact, workplace deaths are half as common in Europe as they are in America. Why?
+
+Because Europe’s highly developed countries tend to spend more money on healthcare as they get richer, leading to better health and lower levels of deaths caused by one’s environment – including workplaces.
+
+So if the United States were to align itself closer to European workplace regulation and healthcare systems, the country would be able to avoid 60,000 deaths – and about $63 billion in healthcare costs.
+
+# 
+
+*A 2006 Chinese study estimated that up to a million people die in China every year due to overwork.*
+
+# Layoffs result in a lose-lose situation for both employers and employees.
+
+When ArcelorMittal acquired bankrupt Bethlehem Steel in 2008, the new owners decided to shut down its New York plant. This meant the plant’s 260 workers were all laid off.
+
+Three weeks later, tragedy struck: a 56-year-old ex-employee, George Kull, had a heart attack and died. His 55-year-old coworker Don Turner suffered the same fate directly after. He’d worked at the plant for decades.
+
+Such tragic events are a direct result of layoffs and the economic insecurity and subsequent mental health issues they induce. Countless studies in developed countries show a similar trend backed by strong empirical evidence: layoffs result in people dying.
+
+One such study of 13,000 American adults who suffered heart attacks from 1992 to 2010 found that nearly 70 percent of cases occurred after job loss. What’s more, those who’d suffered more than four job losses in the period had a 63 percent higher chance of having a heart attack than those who had not.
+
+The same trend can even be found in other highly developed nations.
+
+For example, a Swedish study followed employees laid off by companies that shuttered their doors between 1987 and 1988. They found that in the four years after losing their jobs, suicide rates in the sample doubled. Another Swedish study found that 20 weeks into unemployment, the alcohol consumption of those laid off rose by 400 percent.
+
+The tragic irony of all this? Companies themselves also lose out as a result of layoffs. The costs of layoffs are many – severance pay, possible lawsuits, decreased morale of those not laid off, and lessening productivity.
+
+Aside from these costs, layoffs don’t even fix the underlying issue facing businesses: it’s not excessive costs that are the problem, but lack of revenue. And layoff announcements often correlate to stock prices dropping; this should hardly be surprising, as layoffs imply companies are very clearly not in the best shape.
+
+So what’s the alternative?
+
+Well, take the US airspace closure that occurred after 9/11. Practically all major airlines began laying off employees – 80,000 in total – to counter the lost revenue.
+
+But one airline stood out: Southwest. Instead of laying off employees, they gave out refunds to all customers who wanted them and even kept a promise to pay out $179 million into a workers’ profit-sharing plan.
+
+At the end of 2001, Southwest was in great shape. Not only did it have a profitable year, but by 2002, its market capitalization was also larger than the rest of the industry put together!
+
+# The American health insurance system leaves millions uninsured, thus extracting a high human cost.
+
+All highly developed nations have enshrined healthcare as a fundamental human right that should not be left to competitive markets. That is, all highly developed nations except the United States.
+
+Tragically, an estimated 50,000 people die yearly in the United States because they do not have access to – or cannot afford – healthcare.
+
+Just take women suffering from breast cancer, for example.
+
+A study showed that when uninsured, their chances of not surviving the disease jump by a hefty 49 percent. And a long-term study of 9,000 Americans of all ages between 1988 and 2000 showed that anyone uninsured has a 40 percent higher risk of dying.
+
+Casino workers in Atlantic City are another example group.
+
+Since 2011, the city has shed half of its casino jobs. Worse, many of the remaining jobs have had their associated healthcare canceled or reduced, with employers citing financial problems.
+
+A survey commissioned by an Atlantic City casino workers’ union found that 72 percent of its workers were having trouble paying their bills due to high health-insurance costs, and half had developed symptoms of depression.
+
+Sadly, decreasing employee-provided healthcare coverage is a trend that shows no sign of abating. As health insurance gets more and more expensive, more employers cannot afford to offer it to their employees.
+
+In 2011, 40 percent of employers were not providing insurance to employees, up from 30 percent in 2000. And even when employers do provide coverage, employee contributions went up threefold from 2001 to 2011, from $355 to $921 per year.
+
+In such grim circumstances, what can companies do to make sure their workers are healthy while keeping up profitability? After all, it’s not just that healthy employees are more productive. Companies that show they care about their employees also inspire loyalty and engagement, and increase job retention.
+
+In the absence of a huge policy shift toward universalized healthcare and away from competitive health insurance markets, companies can provide on-site doctors. This bypasses the need to deal with pricey insurance companies, thereby guaranteeing cheap and efficient coverage for employers and reduced-cost – or even free – coverage for employees.
+
+Companies as small as 400 employees have switched to this system and found that it has reduced absenteeism and allowed for earlier prevention of disease.
+
+# 
+
+*In 2015, Gallup found that in the previous year one in three Americans had to postpone medical procedures because of high costs.*
+
+# Giving employees control over their work, coupled with social support, allows them to prosper.
+
+Employee perks are all the rage these days. Whether it’s onsite free alcohol or games rooms, Silicon Valley-inspired perks are increasingly found in modern offices.
+
+But such amenities are often superficial and cannot alone resolve the high levels of stress found in the workplace. Real workplace change takes time and effort.
+
+An important factor contributing to employee happiness is having control over one’s work life.
+
+This was demonstrated in the 1970s when British researchers discovered differences in civil servants’ chances of getting heart disease. They found that higher-ranked civil servants were 50 percent less likely to report chest pain. This correlated directly to the amount of control they were given within their jobs, with higher-ranked civil servants having more choice over what they worked on and how and when they did it.
+
+In fact, lacking control in one’s job can lead to people feeling helpless. When, say, a popular manager at a company is fired, and no reason is given, employees feel higher levels of stress as they have no control over the negative situation. Indeed, an Indiana University study found that those in stressful, demanding jobs with low levels of control had a 15.5 percent increased risk of death.
+
+But things don’t have to be like this.
+
+Take outdoor fashion giant Patagonia, for example. The company employs flat organizational structures that don’t allow space for micromanagement. When the weather is good outside, employees are encouraged to take hours off work to enjoy outdoor sports. Such a workplace philosophy allows them to work when and how they want.
+
+Social support in the workplace is as important in guaranteeing employee health. Research has consistently shown that having a strong social support network of close friends is good for one’s health.
+
+But how can workplaces contribute to such sentiments?
+
+First, companies should avoid ranked performance reviews of their employees. These force employees to compete with one another, increasing infighting and decreasing collaboration.
+
+Secondly, invest in long-term relationships with employees.
+
+Google did so in 2011 when they announced a radical life-insurance scheme for employees and their families. Upon the passing of an employee, the family would receive all the employee’s unvested stock and half of their salary for ten years.
+
+Such actions inspire a sense of community in the workplace, relieve employees of stress and increase psychological health.
+
+# 
+
+*Studies show that the amount of Americans reporting they don’t have any close friends has almost tripled in the last couple of decades.*
+
+# People should not die for a paycheck; we can do much to ensure this doesn’t happen.
+
+As has been shown, there are plenty of obvious reasons why companies should treat their employees like family. Healthy employees are more productive, more loyal and live longer lives.
+
+But what can we do to change the current situation where profits are prioritized over employees’ happiness?
+
+Firstly, start measuring employee happiness.
+
+This can be done via employees self-reporting their health. Simply pose a straightforward question regularly to employees: “How good is your health in general?”
+
+A Finnish study of 2,800 respondents found that when they self-reported their health for one year, it correlated to visits to their doctor. By encouraging self-reporting, companies can therefore best keep track of just when employees are unwell. Knowing when employees are feeling sick or down can help businesses adjust workplace conditions accordingly.
+
+Secondly, toxic companies need to be publicly called out.
+
+In the same way that companies that treat the environment badly are increasingly called out as polluters, so should the social pollution of an unhealthy workplace be made public. By being called out, companies would be incentivized to make their workplaces healthier. No company wants to be branded as bad for human health.
+
+Finally, companies should be forced to pay the health costs for which they are responsible.
+
+Take Walmart, for example. The company’s low wages and patchy health insurance take their toll on their employees’ well-being. Their policy also forces employees to rely on public healthcare, the cost of which Walmart doesn’t have to bear. One study estimated that Walmart employees had public health expenditure amounting to $455 million yearly.
+
+To alleviate this shifting of expenses to the taxpayer, companies should be forced to pay out a minimum proportion of employee healthcare costs. San Francisco did just that in 2007, legislating that employers had to contribute $1.37 per hour per employee for healthcare.
+
+The result? Emergency room costs were hugely reduced, as employees were able to better prevent sickness in primary care rather than at the last minute.
+
+At the end of the day, employers and policymakers must realize that there is a moral issue at stake. A hundred and twenty thousand people per year are literally dying for a paycheck so that companies can make more money. And if people are dying because of work, they are being robbed of their dignity. This needs to change.
+
+# Final summary
+
+The key message in these blinks:
+
+**Around 120,000 Americans are dying every year because of job stress. The US health insurance system places an unfair burden of health costs onto employees rather than employers, causing many Americans to be uninsured, pay huge medical bills or even die. The same goes for layoffs, which lead to a myriad of health problems. But by giving employees more control over their work, together with increased social support, a healthier workplace environment can be fostered. Combine that with shifting medical costs onto employers rather than employees, and we can hopefully reduce the number of work-related deaths in years to come.**
+
+Actionable advice:
+
+**Accept that there is no trade-off between employee well-being and profitability.**
+
+These go hand in hand. Healthier employees mean increased productivity and loyalty, in addition to decreased turnover rates. Spending more on healthcare for employees results in lower costs for employers, as healthy employees are less prone to absenteeism and extended stints in the hospital. And, of course, morally speaking, if more companies took better care of their employees, fewer employees would suffer from workplace-related illnesses or even death.
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****Powerful *****by Patty McCord**
+
+Based on the work practices at Netflix, *Powerful* (2017) is a guide to building a work culture that can adapt to today’s fast-paced and ever-changing markets. It offers insights that are rooted in an unconventional way of managing people. You’ll discover eight practices of management that’ll help you create a successful work culture and business.
+
+
+Source: [Dying for a Paycheck by Jeffrey Pfeffer](https://www.blinkist.com/en/nc/daily/reader/dying-for-a-paycheck-en/)

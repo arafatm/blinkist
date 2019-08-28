@@ -1,0 +1,166 @@
+![Girl, Wash Your Face](https://images.blinkist.com/images/books/5b9bc78f862c43000758bba7/1_1/470.jpg)
+# Girl, Wash Your Face
+*Rachel Hollis*
+
+>Girl, Wash Your Face (2018) is about one crucial truth – you, and you alone, are responsible for your life and happiness. It’s an empowering and sometimes challenging guide to living a joyful, productive and ambitious life.
+
+
+# What’s in it for me? Stop believing lies about yourself and become the person you are supposed to be.
+
+Have you ever believed that you’ll never find your dream job so you might as well settle for something less? That you should just be satisfied with your OK-but-not-great sex life? That you’ll never be thin? That it just isn’t possible to change things?
+
+Well, you’re not the only one. Millions of women tell themselves these lies every day – and they believe in them. But when it comes down to it, there is one simple truth in which you have to believe. You – and you alone – are in control of your life. And you have the power to follow your dreams. To be a great mom and embrace the chaos of home life rather than despair of it. To have fantastic sex, every day.
+
+Everyone has the power and the passion within themselves to break out of a cycle of negativity and to choose the life they want to lead. But sometimes, you need a little inspiration, and this is where these blinks come in. Drawing inspiration from the author’s own experiences and a little help from God, these blinks show how you can act on your dreams and goals today and find the strength and motivation to lead a more confident, joyous and graceful life. Not tomorrow, or next month, or next year. But today.
+
+In these blinks, you’ll learn
+
+- why you should stop breaking promises to yourself, right now;
+
+- why you should never take no for an answer when it comes to your dreams; and
+
+- how a $1,000-purse kept the author relentlessly focused on success.
+
+
+# Stop breaking promises to yourself – act on your goals today.
+
+How many times have you made a commitment to yourself but not followed through on it? Perhaps you’ve promised to go for a jog after work, only to abandon the idea when a colleague invited you for a happy-hour cocktail. Or maybe you’ve got all excited about learning French, but after a few classes, your books are gathering dust on a shelf.
+
+Far too often, we break the promises that we make to ourselves. To see how damaging this is, let’s take a look from a different perspective.
+
+Consider a hypothetical friend. We can call her Pam. Every time you make a plan with Pam to do something important together, she cancels on you at the last moment. And to make it worse, she usually has a completely pathetic excuse like, “I’d love to play tennis with you like we agreed, but this Netflix show I’m watching is *so* good. I need to watch another episode.” Pam is always claiming to be starting a diet. But a couple of days later, you find her washing down a pepperoni pizza with a large coke.
+
+Most likely, you’d pretty quickly get irritated and unimpressed with Pam, right?
+
+But this is exactly how you are treating yourself when you break your promises. Blowing off an evening run, a French class or a calorie-controlled diet might not seem like a big deal at the time. But it is, because when you keep making and then breaking promises to yourself, you are letting yourself down every time.
+
+So try to form a habit of keeping your promises. You can make it easier by keeping them realistic. If you want to run your first half marathon, don’t just promise yourself that you’ll sign up and run. Start by promising yourself that you’ll run one mile a day, four times a week. That’s a commitment you can probably keep. And once you’ve proved to yourself that you can do it, then promising yourself that you’ll run two miles, four times a week won’t seem so tough.
+
+Keep at it, and you’ll train your mind to keep your promises. You’ll build a new, higher expectation for yourself, that will make it easier to keep future promises. That’s got to be better than being like Pam.
+
+# Your dreams are no one else’s to manage, so don’t take no for an answer.
+
+The author is often asked for the secret to her success. She gets up at 5 a.m. every morning to work. She isn’t afraid to ask for help. She’s happy to fail, over and over. But lots of people do all these things, but aren’t successful. So what’s the secret?
+
+The author is successful because she never, ever, took no for an answer when it came to pursuing her dreams.
+
+It’s easy to give up on your dreams. All too often, we listen to what other people think. Maybe your parents told you not to apply for Harvard, for fear of rejection. Or maybe your first boss said you weren’t cut out for your dream job, so you’ve settled for less.
+
+The author herself always dreamed of being a published author. When she submitted her first novel, about a sweet, innocent events planner finding her way in Los Angeles, all the publishers said the same thing. Unless the author put in some sex, no one would buy the book. It was far too innocent. Well, there was no way the author was going to do that. But she also didn’t want to give up on her dream of being published, just because all the experts told her it was impossible. Eventually, she published the book herself, the way she wanted to. The result? To date, *Party Girl* has sold more than a hundred thousand copies.
+
+Another reason people tend to give up on their dreams is for lack of patience. But the truth is, big things take time, so don’t be put off by how long your dreams take to achieve.
+
+Julia Child, the classic food writer, took a decade to write *Mastering the Art of French Cooking*. But once published in 1961, the book became a bestseller and was so popular that it’s still in print today, over half a century later. The movie director James Cameron took 15 years to create *Avatar*, but it became the most successful film of all time.
+
+You can bet that all sorts of people questioned the dreams of Child and Cameron. But Child and Cameron kept going, despite the years it took.
+
+So remember, if you really want to follow your dreams – however long it takes, however many times people say it can’t be done – don’t take no for an answer.
+
+# 
+
+“*You, and only you, are ultimately responsible for who you become and how happy you are*.”
+
+# Whoever you are, don’t believe the lie that you should settle for a boring sex life.
+
+When the author first met her husband, she had about as much experience of sex as she did of hunting big game in Africa – none. And as is the case in many marriages, for a long time, her experience of sex was terrible. Out of touch with her own sexuality, and never having really had any education on the subject, she would agree to sex but not embrace it. Sensing her lack of enthusiasm, her husband wasn’t having much fun either.
+
+But now? Her sex life is exceptional. She has more sex than a mother of four could reasonably expect! How did she manage it?
+
+Firstly, she embraced her body. Having low self-esteem about your naked form ruins your ability to enjoy sex. It’s also *ridiculous. *What was her husband thinking as she undressed and worried about whether her tummy was too soft, or her butt too big? He was just excited to be getting naked together and getting some action. He didn’t care about her supposed imperfections.
+
+If you question your attractiveness, try *positive self-talk* – telling yourself how great your legs look, or how sexy you are. The author did it for long enough that she started to believe it.
+
+Lots of women think that an orgasm is just a cherry on top. Well, here’s the truth. The female orgasm isn’t a nice side effect or a bonus. It’s the whole reason for sex! So another thing the author did was *commit to her orgasm*, deciding that she would never have sex that didn’t involve her orgasm. Her husband thought this was a brilliant idea – after all, your partner should love giving you pleasure. And if both partners are committed to the woman’s orgasm from the start, it will happen.
+
+Finally, if you need further encouragement, commit to having sex every day for a month. No excuses. The author tried this and found that it created the opportunity to experiment and try out new things. And surprisingly, she also found that having more sex made her and her husband want to have … well, even more sex. So why not try out a sexy September or naughty November? You might just find that it builds a habit that will last longer than just that month.
+
+# You can’t control the chaos of your home and family life, so embrace it.
+
+If you are a mom with kids and a job – or heck, even just the kids – then you know what chaos looks like. It’s an unexpected hospital visit with a five-year-old at the same time you’re supposed to pick up your oldest child from school, or a broken washing machine on laundry day.
+
+We often *despair* when faced with chaos.
+
+That’s because we think we should be in control and take chaos as a sign of our failure. But in reality, you can’t control everything, only yourself. So rather than trying to control the chaos, embrace it. It’s easier to swim with, instead of against the tide, right? The same goes for your home life.
+
+The first step toward embracing chaos is to laugh at it. When the author and her husband were trying to become certified as foster parents, a social worker interviewed her children. All was well until her son Ford said he got upset when Daddy came into his room at night and was mad with him. The author pretty much started hyperventilating at this point, thinking not only “there goes our chances of fostering” but also “maybe they’ll take our existing kids away.” Thankfully, it became clear that Ford was just talking about the night before, when his dad was grouchy about Ford’s refusal to sleep in his own bed, and the awkward moment didn’t get in the way of their certification as foster parents.
+
+At the time, it was a tough situation, but they can laugh about it now. The more ridiculous the situation, the more humor you can get from it.
+
+Secondly, say yes to any offers of help. Remember that story about the guy who prays to God to save him from drowning? Three different people come to him with a boat offering help but he says each time, “No thanks, God will save me.” The man dies, and in heaven God says, “What were you doing? I sent you three life rafts!”
+
+God is sending you life rafts all the time. Some are big – like your mother-in-law offering to visit for a week to look after the kids. Some are small – like your husband offering to help with the laundry.
+
+Say yes to them all, even if you think your husband sucks at folding towels.
+
+# 
+
+*“Life isn’t meant to be merely survived – it’s meant to be lived.”*
+
+# Don’t allow your weight to define you.
+
+If you don’t have any issues with your body, weight or your relationship with food, then lucky you! But if you are one of the many women today concerned about their weight or body image, that’s not a surprise. It’s hard not to struggle with health and body image in this aspirational, social-media-obsessed society.
+
+But here’s the rub. According to the author, if your weight is unhealthy, then this *isn’t* one of those areas in life where the answer is to accept and love yourself as you are.
+
+Now, are you an amazing person, just as you are? Yes! Does your Creator love you, just as you are right now? Also yes! But your Creator gave you a body, with all of its strength and capabilities, as a gift. Is it right to treat this gift badly? So if you are unhappy with your body, and you truly want to love yourself, you should start to work hard to change things.
+
+If that sounds harsh, don’t worry. You don’t have to be perfect. You don’t *need* to be thin, or to look super hot in a bikini. But you *need to* be able to jog a little or walk up the stairs without stopping to catch your breath. And at the end of the day, what you need is pretty simple: you need to consume fewer calories each day than the calories that you burn. Do that and you will lose weight.
+
+But moving to a healthy lifestyle can be hard. Here are two great tips that will help.
+
+Firstly, edit your social media. If, every time you check into Instagram, you see a size-zero model with glossy hair and an improbably small waistline, then you are likely to get depressed, anxious or both. You should work on trying to improve yourself, not meet some ridiculous ideal of beauty. So stop following models on Instagram. There’s a time and a place to follow these girls, and it isn’t now.
+
+Secondly, prepare, prepare, prepare. You want to make sure you reach for a healthy snack instead of one of your kids’ cookies? Take some time at the start of the week and prep a series of wholesome snacks to keep in the fridge. Want to get in a workout tomorrow morning? Lay out your exercise clothes before you sleep, to make it as easy as possible to get up and go at 6 a.m. instead of hitting snooze.
+
+# Embrace diversity for a richer, more interesting and more productive life.
+
+The author had a sheltered upbringing in a small town in Southern California that was white, conservative and religious. So when as a teenager she went on a trip to Disneyland with her symphonic band, she was blown away by the diversity of the other guests. She saw men holding hands, friends of different races, goths and people with crazy tattoos. She barely knew what to do other than stare at them like she was in a zoo.
+
+Since then, she’s grown up to understand how important it is to recognize that being part of a community with people who don’t look like you, vote like you, believe like you or love like you is important. It’s a way to stretch your character and become the best version of yourself.
+
+One of the author’s best friends is an African American and Mexican American gay woman. Being friends with her has helped the author to grow as a person by understanding and learning from her friend’s narrative. She’s learned that some of the things she said or asked in the past could be hurtful. She’s learned, with a little discomfort at times, to process her lifelong unconscious biases. And just as important, the two have had a huge amount of fun together – talking late into the night, taking vacations and seeing Britney Spears in concert. And they might not have shared that if the author hadn’t taken the decision to step out of the bubble in which she grew up.
+
+So ask yourself, are you still in your comfort zone of people who look, act and think like you? Would your life be enriched by embracing a more diverse community? There are easy ways you can do this. For the author, the key step was changing churches. One day, she and her husband realized that their church in affluent Bel Air was 99.9 percent white. That is not what the community of Christ looks like, so they sought out a church that was happily multicultural and found a real community there.
+
+Whatever you do to change, the important thing is to avoid living life surrounded by people who look and think like you. Embrace something different. Think of your life as a book. How boring would it be if all the characters were the same?
+
+# Envisage your dreams and fantasies to help keep you focused and moving forward.
+
+As a teenager, the author fell in love with the actor Matt Damon. She watched *Good Will Hunting *over and over again and became convinced that one day she would marry him. She could picture in great detail their wedding and even what their kids would look like.
+
+A few years later, after she moved to Los Angeles, she was working as an events manager for a Miramax event and she noticed Matt Damon approaching her from across the room. Her heart started pounding. It really was destined to be! When he reached her, he spoke. It’s happening, she thought! And then he said, “Can you tell me where I’m sitting, please?”
+
+OK, so the Matt Damon fantasy didn’t work out. But having a clear goal that you can visualize is a great way to keep yourself on track.
+
+Starting out in business, the author fantasized about buying a Louis Vuitton Speedy purse. It cost more than a thousand dollars, and she was basically broke at the time. But it represented everything she wanted to have – glamor, style and success. So she made herself a promise: she would buy the bag when she first billed someone $10,000 in consulting fees.
+
+It took years of charging clients $700, then $1,500, then a little more. Every time she went to a meeting, made a business proposal, worked a terrible event, the thought of that Louis Vuitton bag kept her driven. The day she received a $10,000 check for the first time, she went straight to the store. When she walked out with the bag on her arm, she’d never been prouder.
+
+Focusing on her purse helped keep her dream achievable. If she had fantasized about being rich and successful, she might have felt overwhelmed. But the goal of buying the purse, linked to a specific measure – a $10,000 fee – meant that this fantasy really helped drive her forward.
+
+So, if you have a goal for yourself, make it as tangible as possible. Write it down in detail. Focus on it. Visualize it. What will it feel like when you lose that weight and can fit into your favorite dress again? What will your first day in your dream job be like?
+
+When things get tough, focus on it. It’ll remind you to keep going.
+
+# Final summary
+
+The key message in these blinks:
+
+**You only get one shot at life. So if you feel like life is passing you by, then stop. Stop tolerating less than you truly deserve. Stop thinking that if you just had a different job, man, house or car, you could be the person you’ve always dreamed of being. Get ahold of your life and take control of what happens next. Only you have the power to determine your life.**
+
+Actionable advice:
+
+**Stop comparing yourself to others.**
+
+One of the single best ways to improve your life is simply to stop comparing yourself to others. There is only one person than whom you should aim to be better: the person you were yesterday. So don’t worry about what makes other people happy, whether that’s cocktails, designer clothes or a business career. Work out what actually makes you happy and focus on that.
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****Dream Year *****by Ben Arment**
+
+Many people today are frustrated with their day-to-day jobs, because deep down they know that they’re not really living the life they desire. *Dream Year* helps you identify your dreams, and offers practical advice on how you can go about starting your own business to pursue them.
+
+
+Source: [Girl, Wash Your Face by Rachel Hollis](https://www.blinkist.com/en/nc/daily/reader/girl-wash-your-face-en/)

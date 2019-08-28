@@ -1,0 +1,192 @@
+![The Financial Diet](https://images.blinkist.com/images/books/5b86673db238e1000726cca4/1_1/470.jpg)
+# The Financial Diet
+*Chelsea Fagan and Lauren Ver Hage*
+
+>The Financial Diet (2018) is a beginner’s guide to being better with money. Whether you want to bring your spending habits under control, pay off your student debts or just figure out how to start saving money for the future, these blinks will give you the tools to do so.
+
+
+# What’s in it for me? Learn how to be better with money and lead a more satisfying life as a result.
+
+Many millennials don’t really have a clue when it comes to money. They live from paycheck to paycheck, hoping their credit cards don’t get refused and trying not to think too much about their overdraft.
+
+That shouldn’t come as a great surprise. Today’s aspirational society encourages consumption, while simultaneously providing next to no financial education. For many young people, the only financial advice they see are tone-deaf articles about rash millennials buying so much avocado toast that they can’t afford to buy a house (conveniently forgetting the matter of their crushing student debt in the process).
+
+If you, too, feel a bit helpless when it comes to money – budgeting, saving, investing and securing your financial future – then these blinks are for you. They will help you take small but important steps toward getting your finances in order, and will show you that being financially savvy isn’t just about boring budget spreadsheets and savings accounts – it’s also about learning to cook well, take care of yourself and nurture your career.
+
+In these blinks, you’ll learn
+
+- how to make a simple budget to understand your financial income and spending;
+
+- why a dollar spent and a dollar saved are not of the same value; and
+
+- how to get paid what you deserve.
+
+
+# Avoid these four “don’t you dares” to start improving your relationship with money.
+
+If you’re lost at sea when it comes to money, maybe it’s best to start your financial diet nice and slow.
+
+There are four “don’t you dare” rules that we can all remember and follow; if you do so, you’ll have taken a big step toward steadying your finances.
+
+First, don’t you dare spend money on credit if you can’t pay it off within a month. Sure, credit cards have their benefits – they can help build a credit score and get you air miles. But if you have one, treat it like a debit card. The day you spend money you can’t pay back in a month is the day you sabotage your financial health, because that’s when the interest starts to accrue.
+
+Second, don’t you dare fall into the *CEO lifestyle*. When the author first became CEO of her own enterprise, it changed her thinking. Suddenly she would think, “I deserve this $150 facial, because a CEO’s gotta look good, right?”
+
+We all convince ourselves that we need certain things to live the lifestyle we want, whether that means an iced latte every day, or a taxi home instead of the subway. The reality is that we don’t need these things, so we should get over them. Spend according to the budget you have, not for the lifestyle you think you should be living.
+
+Third, don’t you dare go a week without checking your bank balance at least twice. Just like a reluctant dieter avoids looking at the caloric content of the cake they are devouring, lots of people in poor financial situations just can’t bring themselves to look at their account balance. You can’t get on a financial diet until you confront the reality of your income and spending, however gruesome it might look the first time you check.
+
+And finally, don’t you dare imagine that savings will just magically appear. When you are young, it’s easy to think of your current self and your future self as two completely different people, and pass the responsibility for saving on to “future me.”
+
+Many people think that merely staying out of debt is enough and they can worry about savings in the future. But the fact of the matter is, there is only one you – and you need to start saving, even if it’s just a little, right now.
+
+Follow these rules and you’ll already be avoiding a lot of common mistakes. But to really get to grips with your financial diet, you need to learn how to budget.
+
+# Making a budget is the single most important thing you can do to take control of your spending.
+
+One of the fun things about being an adult is the freedom it brings – to stay up late, or to spend your money exactly how you like. That freedom is a rush, and constructing a strict budget for yourself might feel restrictive. But without one, you will be forever financially lost.
+
+So the first, most important step in your financial diet is to establish what money is coming in and going out. There are lots of useful apps you can use to do this, like *Mint* or *You Need a Budget*, but you can also just make a simple spreadsheet.
+
+Whatever you choose, start by entering all your income after tax, like your salary or freelance earnings. Next, enter all of your expenditures. Do this for at least the last two months, and do it honestly, including all expenses – everything from your rent check to that Diet Coke you bought yesterday. And finally, add any savings you have put aside, like money going into a retirement fund.
+
+Once you’ve done this, you can start to analyze the results. How much are you spending on food each month? And how much on late-night online shopping? Could you be paying off your debt quicker? Is that $80 a month takeaway coffee habit really worth sacrificing potential savings of $960 a year?
+
+Simply analyzing your budget should lead you to some sensible conclusions about your financial behavior. But it can also be helpful to introduce a system to guide your future behavior.
+
+The* 50/30/20 plan* is a simple way to ensure that your spending is under control and your savings are at a sensible level. Here, 50 percent of your income should go on fixed costs, like your rent and utilities. Thirty percent should go to lifestyle or variable costs, like your groceries, travel and nights out. And finally, 20 percent should be saved.
+
+This system works well because it gives an easy-to-understand framework against which to judge your expenditures. If you see that you are spending 40 percent of your income on lifestyle expenditures, and only saving 10 percent, you know you need to make a few adjustments.
+
+Everyone’s breakdown will be a little different – some might only spend 40 percent on their fixed costs, for instance – but the crucial step is coming to grips with the basics: how much money is coming in and what it’s being spent on. Only then can you start to think about getting more value out of the money you have.
+
+# 
+
+*“Money without a budget is like champagne without a glass.”*
+
+# Make your money work for you from as young an age as possible.
+
+Ask yourself a question: are you working for your money, or is you money working for you?
+
+If you are stuck thinking about working for your money, it’s time to become your money’s boss. Make it work for you, as soon and as much as possible, by investing it.
+
+Whether you are able to put away a dollar a day or ten, you should start doing so as soon as you can. Being young is a secret shortcut to increasing your wealth, because it means that your money has more time to multiply.
+
+To understand how this happens, you need the rule of 72.
+
+The rule of 72 shows how long it will take any investment to double in value. You just need to divide the number 72 by the annual interest rate, or return, you’ll receive on any investment or savings account. That gives you the number of years until your original money is doubled.
+
+For example, investments with a return of 7 percent will double your money in 10.28 years. So, invest $1,000 in a fund returning 7 percent a year, and in a decade you’ll have $2,000, without you needing to do any work for it.
+
+Now that you understand how your money can work for you, you realize that a dollar saved and invested is not the same as a dollar spent.
+
+Let’s say you are thinking about spending $100 on a new dress. The dress is nice, but you can now see that your choice is not between spending the $100 or saving $100; it’s between spending $100 now, or having $200 in ten years time, $400 in 20 years time and $800 in 30 years time.
+
+So if you think investing is something that only old people do, don’t be fooled. Being young gives you an advantage when it comes to investing: the sooner you start, the more time your money has to multiply.
+
+Next, let’s take a look at what you should be doing with your money in practice.
+
+# Investing is probably easier than you think.
+
+For many of us, thinking about investing conjures up images of men on a trading floor, shouting into telephones as they frantically buy and sell stocks and bonds. The good news is that the reality of investing is very different and much simpler than that. But before diving in, there are two things you need to do.
+
+First, build an emergency fund. In addition to always having a little money in your standard checking account for everyday expenses, you should also have an emergency fund covering at least three months of living costs. You never know when you might get sick, have your house flooded or experience some other disaster that requires some immediate cash.
+
+Second, pay off your debt, especially if it charges more interest than you could receive by putting the money in savings or investments. If you’re earning a 3 percent return on your investments, but paying 4 percent on your credit card or student debt, that’s a net loss.
+
+Once you’ve sorted these two steps, you are set to invest. The best starting point is probably a retirement account, like a 401(k). That’s because, up to a certain amount, your employer will likely match the contributions that you make. And that means free money!
+
+If you’ve maxed out your 401(k) contributions, then you could start to look at IRAs – Individual Retirement Accounts – which allow you to invest and then deduct the investment on your taxes. More free money!
+
+Once you’ve got to grips with 401(k)s and IRAs, a whole world of investing awaits. You can, for example, invest in low-risk funds like index funds, which track overall performance of an index like the New York Stock Exchange’s Dow Jones. Or, if you feel confident enough, you could start to pick individual stocks to buy.
+
+But to start with, keep things simple and speak to your HR advisor at work about your 401(k). It’s likely they’ll be able to give one-to-one advice as to what options are available to you – and if not, there are plenty of free financial workshops out there.
+
+Before you know it, you’ll be a full-fledged investor who can sit back and relax, happy in the knowledge that your money is working for you.
+
+# 
+
+*“Saving money isn’t about depriving yourself. It’s about deciding you love Future You as much as you love Today You.”*
+
+# Make sure you’re investing in your career and getting paid what you deserve.
+
+Setting money aside in a fund isn’t the only way to invest in your future; you can also expand your career horizons or build your skill set and experiences.
+
+A great way to do so is to find a mentor who can help you. One of the author’s early mentors was Joanne Cleaver, a journalist and entrepreneur. Cleaver argues that networking is a key to building a successful and satisfying career, because being known by the right people for the right things always pays off in the long run.
+
+One great way to network, Cleaver says, is to volunteer. Sure, working for free sounds tough. But think of it as working for yourself, with the payoff coming a little further down the road.
+
+When Cleaver worked for a city newspaper, she offered to help out with its annual charity drive. She mocked up a newspaper front page with tear-jerking stories about their city and how donations could address them.
+
+The result? The newsroom donated more cash than ever before. Weeks later, Cleaver found herself invited to the newspaper’s president’s suite. The president loved the mock-up so much that she’d printed out a bunch to share with all the other executives, establishing an instant reputation and goodwill for Cleaver.
+
+But no matter how great a networker you are, your financial health will always struggle if you don’t get appropriate compensation for your work. Negotiating your salary can be a little scary, but it’s also one of the most powerful ways to improve your financial health.
+
+Thankfully, these days it’s easy to find out a benchmark salary for any job simply by searching websites such as PayScale and Glassdoor, asking people in the relevant industry or even just going on Reddit and anonymously asking the world at large.
+
+Once you have a clear view of what you are worth, go into any compensation conversation prepared to negotiate, not accept, an opening offer. Remember that negotiation is an indicator of confident professionalism, so stay positive, always ask for time to consider an offer and never act overly impressed with what’s on the table.
+
+Get this right and you’re on track for a financially healthy work life. But there’s more to life than work, so let’s take a look at another aspect of a successful financial diet – your actual diet.
+
+# Learn from Italian grandmothers and cook good food for less.
+
+Many millennials have a strange relationship with food. It’s not necessarily that they eat badly, but they are more likely to slave over a fancy recipe found on Pinterest than to rustle up something simple from leftovers in the fridge; they’re also more familiar with local takeout menus than with good, honest, everyday cooking.
+
+This approach to food can cost you. It costs you the pleasure of eating a simple home-cooked meal and, of course, it costs you financially. So if you’ve done your budget and are horrified by how much you’re spending on food, maybe you could learn a little from Italian grandmothers.
+
+The typical Italian grandmother is always whipping up something delicious, not based on what she’s just seen on Instagram, but based on what ingredients are in season, what’s in the cupboard and what’s about to go off and needs to be used. She cooks in large quantities, freezes what she can and is focused on everything in moderation rather than any dieting fad.
+
+So how can you achieve that Italian grandmother status?
+
+The most important thing is to stock your kitchen properly. It’s crucial to stop thinking of individual recipes – like what you need to recreate the Bang Bang chicken you ate in a restaurant last week – and start thinking in terms of what you need to make sure you can always cook *something* at home.
+
+If you’ve got good olive oil, some salt and pepper, dried chilis, spices, herbs, garlic and onions at home, then when you find yourself with nothing but a leftover eggplant and some tomatoes in the fridge, you’ll have everything you need for a delicious pasta sauce. Being able to throw something together is a great life skill that will not only enable you to eat well, all the time; it also means fewer costly trips to the grocery store for a specific set of ingredients.
+
+Oh, and one last thing: never, ever go shopping while drunk, upset or hungry – that’s a surefire recipe for abandoning your nutritional and financial diets.
+
+# Dream medium and be open about your finances to maintain a healthy relationship with money.
+
+Think of money not as a way to buy happiness, but as a way to buy a *happiness construction kit*. It can’t buy you inner peace, but it can buy you the comfort and security you need to take risks and pursue your ambitions. Even then, it can be hard to maintain a sane approach to money, your future and your life fulfillment. But here’s how you can.
+
+First, don’t dream big – *dream medium*.
+
+Society today, and social media in particular, is relentlessly aspirational. Pinterest and Instagram posts constantly tell us, via a message written over an image of a tropical beach or a yacht in azure blue seas, that if we just work hard enough and follow our dreams, we can achieve anything.
+
+The reality is that for most of us, that simply isn’t true. Maybe the Yale-graduate trust-funder has enough cash in the bank to dream big and launch a start-up. For the single mom holding down two jobs and paying off $35,000 of student loans, things look a little different.
+
+So there’s no shame, and a lot of sense, in dreaming medium – pursuing your goals in earnest but with a touch of realism about what is and what isn’t possible at any given time. That means making conscious decisions about when and where in life you want to take risks, and when it makes sense to play it safe.
+
+When you do decide to take a risk, like moving to a new city or changing careers, try to think things through and plan in advance, both financially and logistically.
+
+Second, be open about money. It’s odd, but even in today’s era of constant communication, people simply don’t like to talk about money.
+
+The author’s friend, Anna Breslaw, has said that while she was an editor at *Cosmopolitan *for two years, she received hundreds of intimate questions and requests for advice from readers – but she almost never heard anything about money. People, it seems, are more comfortable talking about anal sex than their salaries.
+
+But just like your sex life probably won’t improve if you never talk about it, neither will your attitude to money.
+
+Once you feel able to talk freely and openly about money, to your friends or your partner, you’ll notice improvements. You’ll be more confident professionally, more demanding toward yourself and more attuned to what is and isn’t healthy.
+
+If you can achieve that, then the financial diet will have worked for you.
+
+# Final summary
+
+The key message in these blinks:
+
+**Money helps you build the life you really want to have, now and in the future. That doesn’t mean you have to obsess about it or build your life around it. But it does mean that you should make sure you understand how to manage money, make it work for you and ensure that your financial situation supports rather than prevents you from achieving your dreams.**
+
+Actionable advice:
+
+**Create a home that makes you feel good.**
+
+If you feel good about your home, you’ll be more happy spending time in it, meaning more life satisfaction and less expensive nights out. Mastering some basic home skills – like changing light bulbs, assembling and revamping furniture or hanging a picture on the wall – will pay off big time, as they will lower the bar to making home improvements. The great news is there are plenty of resources online. So, the next time you need to put up some shelves, check on Youtube before you call in help.
+
+**Got feedback?**
+
+We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
+
+**Suggested** **further** **reading:*****The Power of Broke *****by Daymond John with Daniel Paisner**
+
+*The Power of Broke* (2016) reveals how starting a business with a limited budget doesn’t have to be a disadvantage. With the right perspective, one can harness the Power of Broke to produce astounding creativity. With this fresh look at the business world, you’ll stop seeing money – or a lack thereof – as a barrier to entrepreneurship, because the truth is, anyone with the right idea and a can-do attitude can start a business. So what are you waiting for?
+
+
+Source: [The Financial Diet by Chelsea Fagan and Lauren Ver Hage](https://www.blinkist.com/en/nc/daily/reader/the-financial-diet-en/)
