@@ -1,6 +1,6 @@
+# Secrets of Sand Hill Road *Scott Kupor*
+
 ![Secrets of Sand Hill Road](https://images.blinkist.com/images/books/5d17de0b6cee070006febf06/3_4/470.jpg)
-# Secrets of Sand Hill Road
-*Scott Kupor*
 
 >(2019) unveils the inner workings of one of Silicon Valley’s most iconic streets. Many of the area’s top venture capital firms are located here and have played a part in funding some of the biggest names in tech today. VC insider Scott Kupor has worked with many of them, and these blinks share their secrets – allowing the rest of us to decipher the mystery of venture capital, how to get it and why it can make or break a company.
 
