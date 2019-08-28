@@ -150,4 +150,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 You’ve seen Reddit’s rise from a bird’s eye perspective, but what did it feel like on the ground? Few people can answer that question with greater authority than one of the central protagonists in this fascinating tale of one how one of the internet’s most controversial sites carved out a niche for itself at the heart of online culture. So, if you want to dive even deeper into the riddle that is Reddit, why not check out our blinks to **Without Their Permission**, by Alexis Ohanian.
 
 
-Source: [We Are the Nerds by Christine Lagorio-Chafkin](https://www.blinkist.com/en/nc/daily/reader/we-are-the-nerds-en)
+Source: [We Are the Nerds by Christine Lagorio-Chafkin](https://www.blinkist.com/books/we-are-the-nerds-en)

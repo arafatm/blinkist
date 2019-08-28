@@ -148,4 +148,4 @@ If you’ve been inspired by Guy Kawasaki’s story of true grit and determinati
 Well, what could be better than getting a few tips from Kawasaki himself? If you want to know how to get a start-up off the ground, make sure you’re hiring the right people and build a brilliant brand, check out our blinks to **The Art of the Start**.
 
 
-Source: [Wise Guy by Guy Kawasaki](https://www.blinkist.com/en/nc/daily/reader/wise-guy-en)
+Source: [Wise Guy by Guy Kawasaki](https://www.blinkist.com/books/wise-guy-en)

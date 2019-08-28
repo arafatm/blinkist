@@ -166,4 +166,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 **The Founder’s Dilemmas** (2013) reveals exactly what it takes to become the founder of a start-up company. Drawn from the author’s research and case studies, this step-by-step guide will help you navigate the rough waters of your company’s early stages.
 
 
-Source: [Lost and Founder by Rand Fishkin](https://www.blinkist.com/en/nc/daily/reader/lost-and-founder-en/)
+Source: [Lost and Founder by Rand Fishkin](https://www.blinkist.com/books/lost-and-founder-en/)

@@ -154,4 +154,4 @@ As you’ve just learned, true crime can be even more shocking than fiction. Aft
 **In Cold Blood** is a literary tour de force that explores the multiple murders that baffled the police and the American public in 1959. Offering fascinating insight into the victims, their community and the police investigation, these blinks recount the gradual unraveling of a chillingly meticulous plan to kill, devised by two remorseless criminals. To uncover how an ordinary middle-class family fell victim to one of the most notorious crimes of the twentieth century, head over to the blinks to **In Cold Blood.**
 
 
-Source: [Furious Hours by Casey Cep](https://www.blinkist.com/en/nc/daily/reader/furious-hours-en)
+Source: [Furious Hours by Casey Cep](https://www.blinkist.com/books/furious-hours-en)

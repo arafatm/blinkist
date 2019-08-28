@@ -222,4 +222,4 @@ In **The** **Leadership** **Challenge**, James Kouzes and Barry Posner explain h
 We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
 
 
-Source: [True North by Bill George](https://www.blinkist.com/en/nc/daily/reader/true-north-en)
+Source: [True North by Bill George](https://www.blinkist.com/books/true-north-en)

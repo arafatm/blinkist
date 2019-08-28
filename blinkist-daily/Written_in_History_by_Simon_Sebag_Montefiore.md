@@ -144,4 +144,4 @@ As you’ve just learned, letters not only give us an intimate look at the past 
 In **Jerusalem, **Montefiore delves into the complex, turbulent history of the eponymous city. Over the millennia, the conflicts between the three major religions that have laid claim to Jerusalem have shaped the course of human history. To find out how this history affects us in the present day, check out the blinks to **Jerusalem. **
 
 
-Source: [Written in History by Simon Sebag Montefiore](https://www.blinkist.com/en/nc/daily/reader/written-in-history-en)
+Source: [Written in History by Simon Sebag Montefiore](https://www.blinkist.com/books/written-in-history-en)

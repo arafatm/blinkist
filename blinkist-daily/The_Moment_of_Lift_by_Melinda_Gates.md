@@ -140,4 +140,4 @@ While these blinks have outlined the immense efforts that organizations such as 
 To learn more about issues facing women that weren’t touched upon in these blinks – such as human trafficking and gender-based violence – check out our blinks to **Half the Sky**. Learn that the way to unlock the totality of human potential is by treating women and men as equals.
 
 
-Source: [The Moment of Lift by Melinda Gates](https://www.blinkist.com/en/nc/daily/reader/the-moment-of-lift-en)
+Source: [The Moment of Lift by Melinda Gates](https://www.blinkist.com/books/the-moment-of-lift-en)

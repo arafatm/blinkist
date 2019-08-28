@@ -160,4 +160,4 @@ And if you are a parent, it’s pretty certain that you’re no stranger to sex 
 In it, we’ll delve into the philosophy behind sex: why we do it, why we’re fascinated by it and how sexual desire works. More than that, though, you’ll acquire a practical manual on this sensual subject, including tips on maintaining a high sex drive in long-term relationships and why we should all think about sex more. Check it out now – your partner might thank you for it.
 
 
-Source: [The Book You Wish Your Parents Had Read (and Your Children Will Be Glad That You Did) by Philippa Perry](https://www.blinkist.com/en/nc/daily/reader/the-book-you-wish-your-parents-had-read-and-your-children-will-be-glad-that-you-did-en)
+Source: [The Book You Wish Your Parents Had Read (and Your Children Will Be Glad That You Did) by Philippa Perry](https://www.blinkist.com/books/the-book-you-wish-your-parents-had-read-and-your-children-will-be-glad-that-you-did-en)

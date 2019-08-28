@@ -162,4 +162,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 Right, by now you should have a pretty good strategic overview of the kinds of choices that are most likely to secure your objective of a kick-ass career. But what about the **tactics** – the actions which translate that big picture into everyday reality? Well, check out our blinks to **The Attackers Advantage**, a brilliant guide to spotting opportunities and getting ahead of the competition, to find out.
 
 
-Source: [Catalyst by Chandramouli Venkatesan](https://www.blinkist.com/en/nc/daily/reader/catalyst-en)
+Source: [Catalyst by Chandramouli Venkatesan](https://www.blinkist.com/books/catalyst-en)

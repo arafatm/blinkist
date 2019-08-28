@@ -332,4 +332,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 **Chasing the Scream** (2015) gives a riveting account of the first hundred years of the disastrously ineffective War on Drugs. Weaving together fascinating anecdotes, surprising statistics and passionate argumentation, Hari examines the history of the War on Drugs and explains why it’s time to rethink addiction, rehabilitation and drug enforcement.
 
 
-Source: [Dreamland by Sam Quinones](https://www.blinkist.com/en/nc/daily/reader/dreamland-en-sam-quinones)
+Source: [Dreamland by Sam Quinones](https://www.blinkist.com/books/dreamland-en-sam-quinones)

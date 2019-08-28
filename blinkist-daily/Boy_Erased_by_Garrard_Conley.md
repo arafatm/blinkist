@@ -132,4 +132,4 @@ Now that you’ve followed Garrard Conley’s journey through prejudice, it’s 
 Providing another urgent reminder that America remains a place where queer people have to fight for their lives, Roxane Gay tells us what it's really like to be a queer, fat Black woman in the United States today. So to broaden your perspective on body image issues and LGBT rights, head over to the blinks to **Hunger. **
 
 
-Source: [Boy Erased by Garrard Conley](https://www.blinkist.com/en/nc/daily/reader/boy-erased-en/)
+Source: [Boy Erased by Garrard Conley](https://www.blinkist.com/books/boy-erased-en/)

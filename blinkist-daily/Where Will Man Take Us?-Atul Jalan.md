@@ -162,4 +162,4 @@ The idea that artificial intelligence will allow humans to escape the limits of 
 In this 1999 classic, the vitamin-popping friend with whom we became acquainted earlier in these blinks sets out a clear-headed guide to the future. The blinks explain the emerging age of machines and what exactly robot intelligence means for life as we know it.
 
 
-Source: [Where Will Man Take Us? by Atul Jalan](https://www.blinkist.com/en/nc/daily/reader/where-will-man-take-us-en)
+Source: [Where Will Man Take Us? by Atul Jalan](https://www.blinkist.com/books/where-will-man-take-us-en)

@@ -142,4 +142,4 @@ As you’ve just discovered, an early morning routine can be an incredibly power
 In **My Morning Routine** (2018), Benjamin Spall and Michael Xander provide a practical guide for would-be early birds. Drawing on their interviews with 64 high-flying individuals, they set out how finding an effective routine for the early hours of the morning can change your whole day for the better. So say no to living in fear of the alarm clock! Wave goodbye to the snooze function! Embrace your morning and improve your life.
 
 
-Source: [The 5 AM Club by Robin Sharma](https://www.blinkist.com/en/nc/daily/reader/the-5-am-club-en/)
+Source: [The 5 AM Club by Robin Sharma](https://www.blinkist.com/books/the-5-am-club-en/)

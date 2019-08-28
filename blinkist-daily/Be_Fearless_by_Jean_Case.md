@@ -194,4 +194,4 @@ Now that you know what it takes to be more fearless, it’s time to learn about 
 That’s why we recommend **The Fear Factor **(2017), since it takes an all-encompassing look at the wide variety of ways fear can influence your life. While it’s great to be fearless in the pursuit of your dreams, it’s also important to recognize the good side to fear, such as the role it plays in making us empathetic and altruistic.
 
 
-Source: [Be Fearless by Jean Case](https://www.blinkist.com/en/nc/daily/reader/be-fearless-en/)
+Source: [Be Fearless by Jean Case](https://www.blinkist.com/books/be-fearless-en/)

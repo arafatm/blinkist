@@ -180,4 +180,4 @@ Now that you’re familiar with one seminal account of what happened in the year
 It’s never a bad idea to learn from history’s mistakes, so discover how a government can chip away at democracy and learn the warning signs to make sure we never go down that catastrophic road again.
 
 
-Source: [The Origins of Totalitarianism by Hannah Arendt](https://www.blinkist.com/en/nc/daily/reader/the-origins-of-totalitarianism-en)
+Source: [The Origins of Totalitarianism by Hannah Arendt](https://www.blinkist.com/books/the-origins-of-totalitarianism-en)

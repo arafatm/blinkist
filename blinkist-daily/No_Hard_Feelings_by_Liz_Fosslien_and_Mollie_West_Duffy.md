@@ -174,4 +174,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 So now that you’ve had an introduction to the role that emotion plays in your work life, why not take a further step and discover Scott’s practical guide to how leaders can build strong, effective and fulfilling relationships in the workplace. **Radical Candor** sets out how you can become a kick-ass boss your employees will be proud to follow.
 
 
-Source: [No Hard Feelings by Liz Fosslien and Mollie West Duffy](https://www.blinkist.com/en/nc/daily/reader/no-hard-feelings-en)
+Source: [No Hard Feelings by Liz Fosslien and Mollie West Duffy](https://www.blinkist.com/books/no-hard-feelings-en)

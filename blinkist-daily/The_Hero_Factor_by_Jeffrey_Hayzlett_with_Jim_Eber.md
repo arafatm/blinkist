@@ -160,4 +160,4 @@ Now that you’ve learned the secrets of heroic leadership, why not discover how
 Penned by one of the legends of the twentieth century, Jack Welch, the former CEO of General Electric, **Winning** answers the toughest questions on how to manage your professional life, as well as your personal one, for success. So start putting all that heroic leadership to work, and head over to the blinks to **Winning**.
 
 
-Source: [The Hero Factor by Jeffrey Hayzlett with Jim Eber](https://www.blinkist.com/en/nc/daily/reader/the-hero-factor-en/)
+Source: [The Hero Factor by Jeffrey Hayzlett with Jim Eber](https://www.blinkist.com/books/the-hero-factor-en/)

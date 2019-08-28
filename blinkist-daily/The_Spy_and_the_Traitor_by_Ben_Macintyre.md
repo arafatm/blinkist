@@ -190,4 +190,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 If you’ve enjoyed tucking into the twists and turns of this spy story, then you’re sure to enjoy our blinks to Ben Macintyre’s biography of Kim Philby, the highly respected operative who rose through the ranks of the British secret services during World War II and the Cold War. Philby seemed the very quintessence of British values but was working as a KGB agent the whole time. For the riveting story of Kim Philby and the rest of the Cambridge Spy Ring, head over to our blinks to **A Spy Among Friends**.
 
 
-Source: [The Spy and the Traitor by Ben Macintyre](https://www.blinkist.com/en/nc/daily/reader/the-spy-and-the-traitor-en)
+Source: [The Spy and the Traitor by Ben Macintyre](https://www.blinkist.com/books/the-spy-and-the-traitor-en)

@@ -154,4 +154,4 @@ Now that you’ve gained an insight into mindfulness from this internationally r
 So for more indispensable teachings from Thích Nhất Hạnh, head over to the blinks for **How to Love**, and explore what it really means to love ourselves, our partners and the world itself.
 
 
-Source: [The Miracle of Mindfulness by Thích Nhất Hạnh](https://www.blinkist.com/en/nc/daily/reader/the-miracle-of-mindfulness-en)
+Source: [The Miracle of Mindfulness by Thích Nhất Hạnh](https://www.blinkist.com/books/the-miracle-of-mindfulness-en)

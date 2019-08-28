@@ -190,4 +190,4 @@ By now you should have a good idea about what you want to do with your future. B
 Well, not quite. You can’t change the fact that a day only has 24 hours, but you **can **start making the most of them, and that’s exactly what Jake Knapp and John Zeratsky want to help you achieve. So if you’re done wasting precious time on distractions and procrastination, why not check out our blinks to **Make Time**?
 
 
-Source: [The Millionaire Dropout by Vince Stanzione](https://www.blinkist.com/en/nc/daily/reader/the-millionaire-dropout-en)
+Source: [The Millionaire Dropout by Vince Stanzione](https://www.blinkist.com/books/the-millionaire-dropout-en)

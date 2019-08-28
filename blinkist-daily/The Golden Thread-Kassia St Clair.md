@@ -172,4 +172,4 @@ As we saw in the blinks you’ve just read, fabrics have always been a part – 
 A globally significant crop, cotton has impacted the development of entire economic systems. As you just learned, fabric can link cultures to the world around them – and the cotton industry did the same, connecting the world from Manchester, England, to rural India. So if you want to know more about the role cotton has played in shaping the world as we know it, check out the blinks to **Empire of Cotton**.
 
 
-Source: [The Golden Thread by Kassia St Clair](https://www.blinkist.com/en/nc/daily/reader/the-golden-thread-en)
+Source: [The Golden Thread by Kassia St Clair](https://www.blinkist.com/books/the-golden-thread-en)

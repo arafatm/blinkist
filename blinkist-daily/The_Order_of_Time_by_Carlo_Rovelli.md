@@ -128,4 +128,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 Hooked on the mind-boggling world of modern physics? Want to know more about Einstein’s theory of relativity and quantum mechanics? Well, why not let Carlo Rovelli continue his tour of the mysteries and wonders of the universe with the blinks to his bestselling and highly accessible **Seven Brief Lessons on Physics **(2014).
 
 
-Source: [The Order of Time by Carlo Rovelli](https://www.blinkist.com/en/nc/daily/reader/the-order-of-time-en)
+Source: [The Order of Time by Carlo Rovelli](https://www.blinkist.com/books/the-order-of-time-en)

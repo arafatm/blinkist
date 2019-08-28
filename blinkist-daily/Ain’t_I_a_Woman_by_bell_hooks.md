@@ -144,4 +144,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 **This Will Be My Undoing **(2018) delves into the author’s experiences as a black woman living in modern-day America. By examining race, culture and feminism, the book demonstrates why and how black women have been marginalized and offers suggestions on how this serious situation can be improved.
 
 
-Source: [Ain’t I a Woman by bell hooks](https://www.blinkist.com/en/nc/daily/reader/aint-i-a-woman-en/)
+Source: [Ain’t I a Woman by bell hooks](https://www.blinkist.com/books/aint-i-a-woman-en/)

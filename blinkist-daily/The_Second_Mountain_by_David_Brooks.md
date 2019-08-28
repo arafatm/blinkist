@@ -190,4 +190,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 You’ve just learned part of the author’s case against striving after the material successes of wealth and status, but maybe you need some more convincing. After all, it’s pretty hard to let go of these objectives after society has been trying to drill them into your head since the day you were born. If so, check out the blinks to **The Road to Character.** There, you’ll learn more about the author’s thoughts on why an obsession with material success is undermining society, along with how to counteract it by reclaiming virtues such as kindness, bravery, honesty and commitment.
 
 
-Source: [The Second Mountain by David Brooks](https://www.blinkist.com/en/nc/daily/reader/the-second-mountain-en)
+Source: [The Second Mountain by David Brooks](https://www.blinkist.com/books/the-second-mountain-en)

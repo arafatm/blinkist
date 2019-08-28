@@ -164,4 +164,4 @@ As you’ve learned in these blinks, organizations thrive when they’re adaptab
 So if you’ve enjoyed this look at adaptability in action, why not dip into our blinks to **Team of Teams**, a study of what adaptable teams can do for your business.
 
 
-Source: [Adaptability by Max McKeown](https://www.blinkist.com/en/nc/daily/reader/adaptability-en)
+Source: [Adaptability by Max McKeown](https://www.blinkist.com/books/adaptability-en)

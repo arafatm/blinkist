@@ -264,4 +264,4 @@ Research shows that spending money on others boosts happiness even more than spe
 **Profit from the Positive** explains how leaders can increase productivity, collaboration and profitability by using the tools of positive psychology to boost their employees’ performance. It gives clear examples of how small changes can make big differences.
 
 
-Source: [The Happiness Advantage by Shawn Achor](https://www.blinkist.com/en/nc/daily/reader/the-happiness-advantage-en/)
+Source: [The Happiness Advantage by Shawn Achor](https://www.blinkist.com/books/the-happiness-advantage-en/)

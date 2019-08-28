@@ -130,4 +130,4 @@ As you’ve just seen, Michael Hyatt is a great source of knowledge when it come
 They lay out a series of practical tips, guiding you through a year-long process that will transform your personal and professional life. A year dedicated to improving yourself might not be easy, but thanks to **Your Best Year Ever, **at least it’ll be clear. Don’t wait until January 1 to turn a new leaf – begin now!
 
 
-Source: [Free to Focus by Michael Hyatt](https://www.blinkist.com/en/nc/daily/reader/free-to-focus-en)
+Source: [Free to Focus by Michael Hyatt](https://www.blinkist.com/books/free-to-focus-en)

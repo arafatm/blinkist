@@ -176,4 +176,4 @@ As you've just learned, many chronic diseases are caused or exacerbated by aspec
 Fortunately, technology can also help us regain our health. A whole slew of technological innovations is emerging – from Big Data-driven health maps to bacteria scanners that can be attached to smartphones. These innovations are on the verge of transforming the doctor-centered model of healthcare delivery into one that is patient-centered. If you're interested in knowing more about this impending transformation and what it portends, check out the blinks to **The Patient Will See You Now**.
 
 
-Source: [Undo It! by Anne Ornish and Dean Ornish](https://www.blinkist.com/en/nc/daily/reader/undo-it-en/)
+Source: [Undo It! by Anne Ornish and Dean Ornish](https://www.blinkist.com/books/undo-it-en/)

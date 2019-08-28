@@ -116,4 +116,4 @@ Now that you know that growing older means becoming more active and engaged, fin
 Join author Cathy Newman on a whirlwind tour of female greatness, from the 1880s to the present day, as she finally brings the stories of these influential women into focus. To discover how women have influenced the fate of one of the world’s most powerful nations, head over to the blinks to **Bloody Brilliant Women. **
 
 
-Source: [Women Rowing North by Mary Pipher](https://www.blinkist.com/en/nc/daily/reader/women-rowing-north-en)
+Source: [Women Rowing North by Mary Pipher](https://www.blinkist.com/books/women-rowing-north-en)

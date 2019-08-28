@@ -146,4 +146,4 @@ As you’ve just learned, our societal ideas about what constitutes the "perfect
 In **How Luck Happens**, Janice Kaplan and Barnaby Marsh dissect what luck is and debunk the myth that luck is something over which we have zero control. Packed with examples and practical advice, **How Luck Happens** explains how you can get luckier in the workplace, in love and in your whole life.
 
 
-Source: [Happy Ever After by Paul Dolan](https://www.blinkist.com/en/nc/daily/reader/happy-ever-after-en/)
+Source: [Happy Ever After by Paul Dolan](https://www.blinkist.com/books/happy-ever-after-en/)

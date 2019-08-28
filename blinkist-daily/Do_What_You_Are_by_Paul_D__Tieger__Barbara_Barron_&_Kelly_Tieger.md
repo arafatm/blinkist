@@ -230,4 +230,4 @@ A lot of research has gone into the study of personality types, and perhaps none
 Much of today’s scientific insight into personalities was made possible by the development of the Myers-Briggs Type Indicator. So now is the perfect time to dive into the blinks to **The Personality Brokers** and find out how one pioneering woman and her daughter started it all.
 
 
-Source: [Do What You Are by Paul D. Tieger, Barbara Barron & Kelly Tieger](https://www.blinkist.com/en/nc/daily/reader/do-what-you-are-en)
+Source: [Do What You Are by Paul D. Tieger, Barbara Barron & Kelly Tieger](https://www.blinkist.com/books/do-what-you-are-en)

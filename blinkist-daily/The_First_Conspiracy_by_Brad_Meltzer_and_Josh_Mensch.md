@@ -138,4 +138,4 @@ Now that you’ve read up on George Washington’s early years in the American r
 Not only was Hamilton a dear friend of Washington’s, he also played a pivotal role in securing American independence from the British and establishing the United States. So to discover how this intellectual, soldier and politician helped make the United States into the country that it is today, head over to the blinks to **Alexander Hamilton**.
 
 
-Source: [The First Conspiracy by Brad Meltzer and Josh Mensch](https://www.blinkist.com/en/nc/daily/reader/the-first-conspiracy-en)
+Source: [The First Conspiracy by Brad Meltzer and Josh Mensch](https://www.blinkist.com/books/the-first-conspiracy-en)

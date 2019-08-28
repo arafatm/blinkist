@@ -152,4 +152,4 @@ The blinks above have shown you a steady, rock-solid approach to becoming a mill
 Still not sure how to create immense wealth for yourself? Check out this Powerful One-Step Plan to Live and Finish Rich. **Automatic Millionaire** (2003) is a highly practical and useful guide that shows how anyone can, over time, turn a modest income into a fortune. Author David Bach proves that earning a million dollars doesn’t require any complicated financial wizardry or even a disciplined spending budget – all it takes is a simple one-step plan!
 
 
-Source: [Everyday Millionaires by Chris Hogan](https://www.blinkist.com/en/nc/daily/reader/everyday-millionaires-en)
+Source: [Everyday Millionaires by Chris Hogan](https://www.blinkist.com/books/everyday-millionaires-en)

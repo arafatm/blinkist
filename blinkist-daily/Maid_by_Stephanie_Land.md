@@ -160,4 +160,4 @@ You’ve just learned about one person’s experience of living in poverty in th
 A particularly powerful example of the discipline in action is found in Matthew Desmond’s **Evicted**. In this Pulitzer Prize-winning book, Desmond focuses on one of the main dimensions of poverty: housing. For low-income people, a whole slew of social problems accompanies this fundamental human need: high rents, greedy landlords, segregation and eviction. To learn more about them, head over to the blinks to **Evicted**.
 
 
-Source: [Maid by Stephanie Land](https://www.blinkist.com/en/nc/daily/reader/maid-en)
+Source: [Maid by Stephanie Land](https://www.blinkist.com/books/maid-en)

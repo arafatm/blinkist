@@ -202,4 +202,4 @@ Although it is the structure and culture of the UK government that is responsibl
 **This Blessed Plot** details Britain’s complicated relationship with the European Union, spotlighting the UK’s former powerful statesmen and women and explaining how they contributed to Britain’s belief that they are distinct from Europe. Written in 1998 but more relevant than ever, the accompanying blinks to this modern classic of political history are a must-read for anyone trying to make sense of the current Brexit fiasco. Dive in!
 
 
-Source: [Why We Get the Wrong Politicians by Isabel Hardman](https://www.blinkist.com/en/nc/daily/reader/why-we-get-the-wrong-politicians-en)
+Source: [Why We Get the Wrong Politicians by Isabel Hardman](https://www.blinkist.com/books/why-we-get-the-wrong-politicians-en)

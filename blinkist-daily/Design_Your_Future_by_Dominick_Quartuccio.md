@@ -150,4 +150,4 @@ Right, you want to turn your life around – but what’s your ultimate aim? Cha
 So what do you do if you don’t want to turn your life-altering project into a wild goose chase? Well, here’s an idea: check out the blinks to **Happiness by Design**, behavioral economist Paul Dolan’s handbook for happiness seekers. Packed with useful tools and exercises, Dolan shows how you can start feeling happier today without radically altering your personality.
 
 
-Source: [Design Your Future by Dominick Quartuccio](https://www.blinkist.com/en/nc/daily/reader/design-your-future-en)
+Source: [Design Your Future by Dominick Quartuccio](https://www.blinkist.com/books/design-your-future-en)

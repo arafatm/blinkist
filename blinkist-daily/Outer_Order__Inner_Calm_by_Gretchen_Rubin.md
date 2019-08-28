@@ -132,4 +132,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 If you liked these blinks, and want some more advice on how to achieve more happiness in your life, then we highly recommend the blinks to **Happier at Home, **Rubin’s guide to transforming your home into a sanctuary that reflects your family’s personality. By helping you identify both your own and your family’s needs, these blinks will give you everything you need to start changing your home and family life for the better.
 
 
-Source: [Outer Order, Inner Calm by Gretchen Rubin](https://www.blinkist.com/en/nc/daily/reader/outer-order-inner-calm-en)
+Source: [Outer Order, Inner Calm by Gretchen Rubin](https://www.blinkist.com/books/outer-order-inner-calm-en)

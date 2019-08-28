@@ -190,4 +190,4 @@ Jeb Blount isn’t the only self-starter shedding light on the sales practices o
 That’s pretty handy since their venture – salesforce.com – has enjoyed the kind of meteoric rise that could easily have gone to their heads. The secret? A canny sales strategy perfectly tailored to generate an endless stream of highly qualified leads. So if you’ve been bitten by the sales bug, we recommend you dive into the blinks to **Predictable Revenue**.
 
 
-Source: [Fanatical Prospecting by Jeb Blount](https://www.blinkist.com/en/nc/daily/reader/fanatical-prospecting-en)
+Source: [Fanatical Prospecting by Jeb Blount](https://www.blinkist.com/books/fanatical-prospecting-en)

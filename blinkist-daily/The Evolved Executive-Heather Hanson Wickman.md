@@ -230,4 +230,4 @@ If you’re looking for more bold and exciting changes that will unlock your inn
 You’ll also find great ways to improve communication between you and your employees so that you can empower them and lead them to self-improvement. If you want to make your workplace productive as well as loving and supportive, it’s time to practice radical candor.
 
 
-Source: [The Evolved Executive by Heather Hanson Wickman](https://www.blinkist.com/en/nc/daily/reader/the-evolved-executive-en)
+Source: [The Evolved Executive by Heather Hanson Wickman](https://www.blinkist.com/books/the-evolved-executive-en)

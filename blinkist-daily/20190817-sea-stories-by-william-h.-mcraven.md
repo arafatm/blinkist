@@ -184,4 +184,4 @@ As you’ve just learned, William H. McRaven’s experience during Navy SEAL tra
 In the award-winning **Make Your Bed, **McRaven offers the ten most valuable lessons from his career as a Navy SEAL officer and commander of America’s Special Operations Forces. Each of the ten lessons offers an invaluable piece of advice that you can use to positively influence your life. To find out why making your bed like a Navy SEAL could lead to your success, head over to the blinks to **Make Your Bed.**
 
 
-Source: [Sea Stories by William H. McRaven](https://www.blinkist.com/en/nc/daily/reader/sea-stories-en)
+Source: [Sea Stories by William H. McRaven](https://www.blinkist.com/books/sea-stories-en)

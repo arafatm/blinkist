@@ -122,4 +122,4 @@ As we’ve seen in these blinks, the origins of Hindu fundamentalism go all the 
 Within a year of this towering achievement, Gandhi was dead. India’s future leaders would have to chart their own course as they sought to implement his vision. How did they do? Well, that’s just what Indian historian Ramachandra Guha looks at in his analysis of post-independence India. So if you’d like to join the dots and get an insight into how the country got to where it is today, why not check out our blinks to **India After Gandhi**?
 
 
-Source: [Why I Am a Hindu by Shashi Tharoor](https://www.blinkist.com/en/nc/daily/reader/why-i-am-a-hindu-en)
+Source: [Why I Am a Hindu by Shashi Tharoor](https://www.blinkist.com/books/why-i-am-a-hindu-en)

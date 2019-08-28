@@ -144,4 +144,4 @@ We’ve seen how successful organizations get ingenious ideas off the drawing bo
 Organizational psychologist and author, Adam Grant believes he’s found the answer: originality isn’t the product of innate genius but something that can be learned – you just need to know which tools to use. So if these blinks have got your creative juices flowing, and you’re ready to delve deeper, check out our blinks to **Originals**.
 
 
-Source: [Loonshots by Safi Bahcall](https://www.blinkist.com/en/nc/daily/reader/loonshots-en)
+Source: [Loonshots by Safi Bahcall](https://www.blinkist.com/books/loonshots-en)

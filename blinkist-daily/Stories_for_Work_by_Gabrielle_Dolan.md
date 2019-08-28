@@ -230,4 +230,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 **Storyworthy** (2018) explains how to craft a story for maximum impact. From intriguing beginnings to satisfying endings and everything in between, these blinks provide simple and effective tips and techniques for engaging your audience and bringing entertainment, authenticity and immediacy to your storytelling.
 
 
-Source: [Stories for Work by Gabrielle Dolan](https://www.blinkist.com/en/nc/daily/reader/stories-for-work-en/)
+Source: [Stories for Work by Gabrielle Dolan](https://www.blinkist.com/books/stories-for-work-en/)

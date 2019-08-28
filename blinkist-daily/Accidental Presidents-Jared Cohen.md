@@ -162,4 +162,4 @@ If you’ve enjoyed this look at the leadership of accidental presidents, you’
 And that’s just what he tackles in one of his latest forays into original thinking. Informed by his deep understanding of human psychology, Grant offers readers practical tips and tricks on creating an environment to foster their own originality and creativity. Doing that, he shows, is the cornerstone of success. So if you’d like to get hip to heterodox thinking, check out our blinks to **Originals**, by Adam Grant.
 
 
-Source: [Accidental Presidents by Jared Cohen](https://www.blinkist.com/en/nc/daily/reader/accidental-presidents-en)
+Source: [Accidental Presidents by Jared Cohen](https://www.blinkist.com/books/accidental-presidents-en)

@@ -226,4 +226,4 @@ As we’ve seen, if you’re a parent or educator, getting into the mind of a te
 If you want more insight into the lives of teenagers and teenage girls in particular, we highly recommend the blinks to **Untangled**, by Lisa Damour. They offer plenty of advice on dealing with the struggles of teenage girls. Moreover, they will give you the guidance you need to avoid common pitfalls and ensure you don’t make any situation worse.
 
 
-Source: [Brainstorm by Daniel J. Siegel](https://www.blinkist.com/en/nc/daily/reader/brainstorm-en)
+Source: [Brainstorm by Daniel J. Siegel](https://www.blinkist.com/books/brainstorm-en)

@@ -146,4 +146,4 @@ These blinks have presented practical advice on how you and your partner can spi
 To learn more on the science behind attachment and relationships – and how you can harness it – check out our blinks to **Attached**.
 
 
-Source: [Eight Dates by John Gottman PhD, Julie Schwartz Gottman PhD, Doug Abrams, Rachel Carlton Abrams MD](https://www.blinkist.com/en/nc/daily/reader/eight-dates-en)
+Source: [Eight Dates by John Gottman PhD, Julie Schwartz Gottman PhD, Doug Abrams, Rachel Carlton Abrams MD](https://www.blinkist.com/books/eight-dates-en)

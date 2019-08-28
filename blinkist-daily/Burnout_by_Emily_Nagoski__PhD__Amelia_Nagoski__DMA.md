@@ -200,4 +200,4 @@ If you enjoyed the abundance of well-researched advice in **Burnout**, then nowâ
 A healthy sex life can also be part of living a joyous and pleasurable life overall, and with **Come As You Are** you can discover more about your sexual personality and maybe even learn a few more ways to relieve stress!
 
 
-Source: [Burnout by Emily Nagoski, PhD, Amelia Nagoski, DMA](https://www.blinkist.com/en/nc/daily/reader/burnout-en)
+Source: [Burnout by Emily Nagoski, PhD, Amelia Nagoski, DMA](https://www.blinkist.com/books/burnout-en)

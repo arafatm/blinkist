@@ -148,4 +148,4 @@ If you enjoyed Steven Rogelberg’s fascinating insights into meetings, then you
 Moving beyond the world of work, **Insight** takes you on a journey from self-blindness to self-comprehension. In these blinks, you’ll learn the true meaning of self-awareness and gain an understanding of why this life skill is such a crucial ingredient for happiness. Along the way, you’ll discover the obstacles to becoming self-aware, as well as the strategies you can use to overcome them. So if you’d like to get to know yourself a little better, head over to the blinks to **Insight**.
 
 
-Source: [The Surprising Science of Meetings by Steven G. Rogelberg](https://www.blinkist.com/en/nc/daily/reader/the-surprising-science-of-meetings-en)
+Source: [The Surprising Science of Meetings by Steven G. Rogelberg](https://www.blinkist.com/books/the-surprising-science-of-meetings-en)

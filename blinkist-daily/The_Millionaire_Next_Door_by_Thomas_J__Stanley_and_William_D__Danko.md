@@ -150,4 +150,4 @@ Next time you receive a bonus or get a raise, resist the urge to splash out on s
 We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
 
 
-Source: [The Millionaire Next Door by Thomas J. Stanley and William D. Danko](https://www.blinkist.com/en/nc/daily/reader/the-millionaire-next-door-en)
+Source: [The Millionaire Next Door by Thomas J. Stanley and William D. Danko](https://www.blinkist.com/books/the-millionaire-next-door-en)

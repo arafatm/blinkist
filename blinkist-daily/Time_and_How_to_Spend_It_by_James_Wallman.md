@@ -214,4 +214,4 @@ If you like James Wallman’s ideas on getting people to focus more on quality e
 We place a lot of value on time and money, and now that you’ve learned how to spend your time better, why not learn how to spend your money better, too? These blinks will let you do exactly that, as well as showing you how placing too much value on stuff can seriously affect your well-being.
 
 
-Source: [Time and How to Spend It by James Wallman](https://www.blinkist.com/en/nc/daily/reader/time-and-how-to-spend-it-en)
+Source: [Time and How to Spend It by James Wallman](https://www.blinkist.com/books/time-and-how-to-spend-it-en)

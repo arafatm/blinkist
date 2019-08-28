@@ -210,4 +210,4 @@ As you’ve just discovered, if you want to stay healthy, it’s time to ditch t
 In **How Not to Die** (2015), Michael Greger, MD and Gene Stone explain how a plant-based diet can not only extend your life, but also transform your quality of living. By following the advice of Dr Greger, an internationally recognised physician and nutritional expert, you can lead a happy, healthy and long life.
 
 
-Source: [What to Eat When by Michael Roizen, Michael Crupain and Ted Spiker](https://www.blinkist.com/en/nc/daily/reader/what-to-eat-when-en)
+Source: [What to Eat When by Michael Roizen, Michael Crupain and Ted Spiker](https://www.blinkist.com/books/what-to-eat-when-en)

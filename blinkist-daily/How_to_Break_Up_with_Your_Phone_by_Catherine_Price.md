@@ -244,4 +244,4 @@ If you implement the strategies advocated in the blinks youâ€™ve just read, youâ
 This is where **Reclaiming Conversation **by Sherry Turkle can help. It offers a criticism of how communication has become damaged in our increasingly digitized world, where device and screen usage has become the norm. But more than that, it shows us what we can do about it.
 
 
-Source: [How to Break Up with Your Phone by Catherine Price](https://www.blinkist.com/en/nc/daily/reader/how-to-break-up-with-your-phone-en)
+Source: [How to Break Up with Your Phone by Catherine Price](https://www.blinkist.com/books/how-to-break-up-with-your-phone-en)

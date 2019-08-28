@@ -162,4 +162,4 @@ Now that you know what to look for in building a powerful team, it’s time to f
 If you want your team to be positive, it makes sense to have a workplace that inspires enthusiasm, right? So let **The Best Place to Work **guide you through a workplace renovation that will set the stage for greatness.
 
 
-Source: [The Power of a Positive Team by Jon Gordon](https://www.blinkist.com/en/nc/daily/reader/the-power-of-a-positive-team-en)
+Source: [The Power of a Positive Team by Jon Gordon](https://www.blinkist.com/books/the-power-of-a-positive-team-en)

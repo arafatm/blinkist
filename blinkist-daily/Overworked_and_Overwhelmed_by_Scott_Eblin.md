@@ -148,4 +148,4 @@ As we saw in these blinks, meditation can be a great stress-reliever. But it can
 In a nutshell, they're applying the ancient art of mindfulness to their everyday routines. So if you’re curious about how meditation can help you not only keep stress in check but also put you on the path to achieving your professional goals, dive right into the blinks to **Mindful Work**, by David Gelles.
 
 
-Source: [Overworked and Overwhelmed by Scott Eblin](https://www.blinkist.com/en/nc/daily/reader/overworked-and-overwhelmed-en)
+Source: [Overworked and Overwhelmed by Scott Eblin](https://www.blinkist.com/books/overworked-and-overwhelmed-en)

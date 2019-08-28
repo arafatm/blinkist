@@ -210,4 +210,4 @@ The financial crisis caught most economists and governments off guard. After yea
 So, if you’re hooked on the history of the worst crisis since the Great Depression, why not check out our blinks to **Fault Lines**, Rajan’s comprehensive overview of what went wrong in the runup to 2008 and what we can do to make sure it never happens again.
 
 
-Source: [Crashed by Adam Tooze](https://www.blinkist.com/en/nc/daily/reader/crashed-en)
+Source: [Crashed by Adam Tooze](https://www.blinkist.com/books/crashed-en)

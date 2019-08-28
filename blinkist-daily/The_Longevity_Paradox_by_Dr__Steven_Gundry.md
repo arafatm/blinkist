@@ -160,4 +160,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 In these blinks, you’ve encountered some hints of which foods the author thinks you should eat to live a long and healthy life. To get a more complete idea of the diet he recommends, check out the blinks to his previous book, **The Plant Paradox**. Here, you’ll also learn more about his views on the dangers posed by certain plant-based foods that are widely believed to be healthy. You’ll also learn about the differences between our modern diets and those of our ancestors, who can provide us with guidance on what we should be eating now. You’ve already unraveled the longevity paradox; now it’s time to solve **The Plant Paradox**!
 
 
-Source: [The Longevity Paradox by Dr. Steven Gundry](https://www.blinkist.com/en/nc/daily/reader/the-longevity-paradox-en)
+Source: [The Longevity Paradox by Dr. Steven Gundry](https://www.blinkist.com/books/the-longevity-paradox-en)

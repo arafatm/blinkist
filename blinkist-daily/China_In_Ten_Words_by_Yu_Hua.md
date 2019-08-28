@@ -176,4 +176,4 @@ The history of modern China is one of radical internal transformation. But the c
 That’s especially true in Africa, a continent being transformed by Chinese government loans, mining companies, construction workers, farmers and, of course, “copycat” products. From Senegal to Mozambique, the footprint of the global Chinese empire is growing. So, what does this look like in practice? Well, that’s what journalist Howard French set out to discover. So if you enjoyed this look at China’s history, why not take a look at the blinks to **China’s Second Continent**?
 
 
-Source: [China In Ten Words by Yu Hua](https://www.blinkist.com/en/nc/daily/reader/china-in-ten-words-en)
+Source: [China In Ten Words by Yu Hua](https://www.blinkist.com/books/china-in-ten-words-en)

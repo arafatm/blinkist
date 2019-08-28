@@ -328,4 +328,4 @@ From reading these blinks, and no doubt from your own experience, you’ll know 
 This is where **121 First Dates **comes in. It’s a guide to online dating. Author Wendy Newman shows you how not to get overwhelmed by it all and how to do it right. These blinks will help you build a profile, prepare for your first dates and deal with all the difficulties and hassle that might appear along the way.
 
 
-Source: [The Curious History of Dating by Nichi Hodgson](https://www.blinkist.com/en/nc/daily/reader/the-curious-history-of-dating-en/)
+Source: [The Curious History of Dating by Nichi Hodgson](https://www.blinkist.com/books/the-curious-history-of-dating-en/)

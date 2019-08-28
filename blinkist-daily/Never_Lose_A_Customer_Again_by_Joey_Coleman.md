@@ -158,4 +158,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 Maintaining a happy customer base shouldn’t feel like herding cats. **Customer WinBack** (2001) reveals how companies can identify at-risk clients and win them back before they disappear from their databases. By using these savvy tricks, businesses can also refocus on their existing customers in order to cut costs and drive revenue over the long term.
 
 
-Source: [Never Lose A Customer Again by Joey Coleman](https://www.blinkist.com/en/nc/daily/reader/never-lose-a-customer-again-en/)
+Source: [Never Lose A Customer Again by Joey Coleman](https://www.blinkist.com/books/never-lose-a-customer-again-en/)

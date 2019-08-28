@@ -168,4 +168,4 @@ If you’re a sports fan and you’ve enjoyed learning about the psychology behi
 Exploring the hereditary nature of some sports success, these blinks also consider why people in certain parts of the world have evolved in a particular way, and why that can be beneficial in sports like long-distance running. In this way, they ask us to reconsider the essence of athleticism.
 
 
-Source: [Range by David Epstein](https://www.blinkist.com/en/nc/daily/reader/range-en)
+Source: [Range by David Epstein](https://www.blinkist.com/books/range-en)

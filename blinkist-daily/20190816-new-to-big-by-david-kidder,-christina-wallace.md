@@ -156,4 +156,4 @@ You’re now familiar with the challenges that big corporations face if they don
 Through historical examples, Clayton M. Christensen explains why it’s the companies that seem to be doing everything right – good management culture, an established brand – that are suddenly blindsided by disruptive technologies. But not only can they survive in the face of these innovations, they can actually harness them to their own advantage. To find out how, check out the blinks to **The Innovator’s Dilemma.**  
 
 
-Source: [New to Big by David Kidder, Christina Wallace](https://www.blinkist.com/en/nc/daily/reader/new-to-big-en)
+Source: [New to Big by David Kidder, Christina Wallace](https://www.blinkist.com/books/new-to-big-en)

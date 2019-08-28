@@ -272,4 +272,4 @@ Using seven different countries as case studies – from post-war Germany to 197
 **Presidents of War **and **Upheaval **might not be bright and cheerful reads, but they are vitally important. Both help strengthen our understanding of modern history and keep us from making the same mistakes. Get cracking with the blinks to **Upheaval **now!
 
 
-Source: [Presidents of War by Michael Beschloss](https://www.blinkist.com/en/nc/daily/reader/presidents-of-war-en)
+Source: [Presidents of War by Michael Beschloss](https://www.blinkist.com/books/presidents-of-war-en)

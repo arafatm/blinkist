@@ -187,4 +187,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
  
 
 
-Source: [You Are a Badass by Jen Sincero](https://www.blinkist.com/en/nc/daily/reader/you-are-a-badass-en/)
+Source: [You Are a Badass by Jen Sincero](https://www.blinkist.com/books/you-are-a-badass-en/)

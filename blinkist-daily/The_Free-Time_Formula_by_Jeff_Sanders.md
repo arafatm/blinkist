@@ -154,4 +154,4 @@ Follow the advice in these blinks, and you’ll soon find yourself with much mor
 That’s just what the German philosopher Josef Pieper does in his classic 1952 study of the subject. A meditation on the importance of unstructured time for the good life, Peiper’s argument is truly ahead of its time in rejecting overwork. So read on with the blinks to **Leisure**!
 
 
-Source: [The Free-Time Formula by Jeff Sanders](https://www.blinkist.com/en/nc/daily/reader/the-free-time-formula-en)
+Source: [The Free-Time Formula by Jeff Sanders](https://www.blinkist.com/books/the-free-time-formula-en)

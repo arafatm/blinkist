@@ -228,4 +228,4 @@ The dynamics behind power relationships reveal a lot about what makes our most v
 One of the reasons relationships can be so tough is because we’re all prone to being irrational and selfish. But once you familiarize yourself with **The Laws of Human Nature**, you’ll not only know where these behaviors come from, but how you can use them to your advantage.
 
 
-Source: [Power Relationships by Andrew Sobel and Jerold Panas](https://www.blinkist.com/en/nc/daily/reader/power-relationships-en)
+Source: [Power Relationships by Andrew Sobel and Jerold Panas](https://www.blinkist.com/books/power-relationships-en)

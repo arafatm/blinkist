@@ -162,4 +162,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 **The Revenue Growth Habit **(2015) is a collection of strategies for boosting your revenue and increasing your exposure to both potential and existing customers. These methods are quick, easy and cost-effective – perfect for delivering your message to the people who matter most.
 
 
-Source: [Growth IQ by Tiffani Bova](https://www.blinkist.com/en/nc/daily/reader/growth-iq-en)
+Source: [Growth IQ by Tiffani Bova](https://www.blinkist.com/books/growth-iq-en)

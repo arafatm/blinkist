@@ -198,4 +198,4 @@ From the blinks you just read, you've no doubt got a good handle on all the deli
 **How to Read a Book**, a classic first published in 1940 and revised in 1972, is there to guide you in an improved reading experience. It can be terrifying to be faced with a pile of reports, a literature reading list or a folder of PDFs you have to read, but there’s no need to worry. These blinks will show you how to extract all the relevant information you need and organize your conclusions. It will make you an efficient reader and a superb classifier of knowledge.
 
 
-Source: [I’d Rather Be Reading by Anne Bogel](https://www.blinkist.com/en/nc/daily/reader/id-rather-be-reading-en/)
+Source: [I’d Rather Be Reading by Anne Bogel](https://www.blinkist.com/books/id-rather-be-reading-en/)

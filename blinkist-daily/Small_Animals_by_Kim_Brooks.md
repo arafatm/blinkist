@@ -158,4 +158,4 @@ Kim Brooks isn’t the only writer who argues that perhaps less is more when it 
 You’ve just learned how our contemporary parenting culture – rooted in anxiety, judgment and a zealous attitude to risk – is leading to unhappy parents and children. If you want a clear guide to how you can improve family life, head over to the blinks to** Simplicity Parenting**.
 
 
-Source: [Small Animals by Kim Brooks](https://www.blinkist.com/en/nc/daily/reader/small-animals-en/)
+Source: [Small Animals by Kim Brooks](https://www.blinkist.com/books/small-animals-en/)

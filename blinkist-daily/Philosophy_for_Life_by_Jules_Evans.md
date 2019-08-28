@@ -246,4 +246,4 @@ You should surround yourself with people you find admirable and inspiring. Befor
 You should therefore never forget the importance of the present moment. Each breath, each conversation and each bite of food could potentially be your last, so savor it.
 
 
-Source: [Philosophy for Life by Jules Evans](https://www.blinkist.com/en/nc/daily/reader/philosophy-for-life-en/)
+Source: [Philosophy for Life by Jules Evans](https://www.blinkist.com/books/philosophy-for-life-en/)

@@ -190,4 +190,4 @@ In the blinks to **Nine Pints, **we took a comprehensive look at blood and explo
 But Nepal is hardly alone in demonizing menstruation. Many cultures – even those that pride themselves on diversity and liberal attitudes – have negative contemporary attitudes and historical taboos. One of Bill Gates’ recommended summer reads for 2019, **Flow**, is written from a woman’s point of view but intended for all sexes. These blinks will shed light on the shameful stigma surrounding a global biological norm affecting half the earth’s population, and hopefully challenge the cultural taboos and societal misperceptions about periods.
 
 
-Source: [Nine Pints by Rose George](https://www.blinkist.com/en/nc/daily/reader/nine-pints-en)
+Source: [Nine Pints by Rose George](https://www.blinkist.com/books/nine-pints-en)

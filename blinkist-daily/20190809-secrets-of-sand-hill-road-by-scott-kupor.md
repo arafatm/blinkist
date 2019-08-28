@@ -122,4 +122,4 @@ Now that you’ve got a good overview of the VC life cycle, it’s time to home 
 Luckily, our blinks to Brad Feld and Jason Mendelson’s **Venture Deals **is the logical next step in expanding your knowledge of how to negotiate a good term sheet. Here, you’ll gain insight into how to get the best possible deal from VCs and learn a few tricks you should have up your sleeve while negotiating.
 
 
-Source: [Secrets of Sand Hill Road by Scott Kupor](https://www.blinkist.com/en/nc/daily/reader/secrets-of-sand-hill-road-en)
+Source: [Secrets of Sand Hill Road by Scott Kupor](https://www.blinkist.com/books/secrets-of-sand-hill-road-en)

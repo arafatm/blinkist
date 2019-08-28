@@ -182,4 +182,4 @@ The American biologist and human behavior expert Robert Sapolsky has described *
 This book-in-blinks examines how each of our acts as humans is the result of a myriad of factors, from the chemistry of our brains to social conditioning. The text journeys into the very depths of who we are as humans, explaining the reasons behind both the very best and the very worst of human behavior.
 
 
-Source: [The Human Swarm by Mark W. Moffett](https://www.blinkist.com/en/nc/daily/reader/the-human-swarm-en)
+Source: [The Human Swarm by Mark W. Moffett](https://www.blinkist.com/books/the-human-swarm-en)

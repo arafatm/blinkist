@@ -142,4 +142,4 @@ As you’ve just learned, successful negotiators engage in both integrative and 
 **Getting to Yes **is packed with tools and techniques to help you resolve conflict and find win-win solutions** –** that’s why it’s considered the go-to reference for successful negotiations. For more useful insights into negotiation skills, head over to our blinks to **Getting to Yes.**
 
 
-Source: [The Bartering Mindset by Brian C. Gunia](https://www.blinkist.com/en/nc/daily/reader/the-bartering-mindset-en)
+Source: [The Bartering Mindset by Brian C. Gunia](https://www.blinkist.com/books/the-bartering-mindset-en)

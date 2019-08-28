@@ -248,4 +248,4 @@ In this book in blinks, you’ll learn why different experiences, from taking he
 So if you’d like to get to grips with the brain’s pleasure circuitry and learn even more about the true nature of addiction, we highly recommend popping over to the blinks to **The Compass of Pleasure**, by David J. Linden.
 
 
-Source: [Never Enough by Judith Grisel](https://www.blinkist.com/en/nc/daily/reader/never-enough-en)
+Source: [Never Enough by Judith Grisel](https://www.blinkist.com/books/never-enough-en)

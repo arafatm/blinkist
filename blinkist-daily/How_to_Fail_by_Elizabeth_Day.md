@@ -182,4 +182,4 @@ Elizabeth Day offered a lot of personal stories as well as sharing experiences o
 In **Fail Fast, Fail Often**, you’ll find a variety of reasons to stop fearing failure and instead embrace a bold lifestyle that can open up exciting new doors in your life. So instead of seeing failure as an end, these blinks will show you how failure can really be a signpost pointing you in the right direction.
 
 
-Source: [How to Fail by Elizabeth Day](https://www.blinkist.com/en/nc/daily/reader/how-to-fail-en)
+Source: [How to Fail by Elizabeth Day](https://www.blinkist.com/books/how-to-fail-en)

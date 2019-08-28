@@ -140,4 +140,4 @@ Now that you’ve hopefully been inspired by Saujani’s bravery manifesto, it�
 Luckily, Gates has just released a memoir detailing the work her foundation does with women all over the world. So head on over to our blinks for **The Moment of Lift **to discover what sort of work Gates’s foundation is doing to help women all over the world prosper.
 
 
-Source: [Brave, Not Perfect by Reshma Saujani](https://www.blinkist.com/en/nc/daily/reader/brave-not-perfect-en)
+Source: [Brave, Not Perfect by Reshma Saujani](https://www.blinkist.com/books/brave-not-perfect-en)

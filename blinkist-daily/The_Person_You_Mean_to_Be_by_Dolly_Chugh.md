@@ -166,4 +166,4 @@ As the previous blinks make clear, knowing about what goes on in your unconsciou
 A lot of people strive to be the best version of themselves, and a big part of that noble endeavor is to understand what human nature is all about. Once that happens, you can begin to make lasting changes that will improve your life.
 
 
-Source: [The Person You Mean to Be by Dolly Chugh](https://www.blinkist.com/en/nc/daily/reader/the-person-you-mean-to-be-en)
+Source: [The Person You Mean to Be by Dolly Chugh](https://www.blinkist.com/books/the-person-you-mean-to-be-en)

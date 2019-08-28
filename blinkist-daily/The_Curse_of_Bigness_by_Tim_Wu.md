@@ -202,4 +202,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 The story of the previous blinks ends where the story of today begins – with the return of economic concentration, oligopolies and monopolies, especially in the field of information technology. How is that story unfolding in the present? And where is it heading in the near future? If these were the questions you were left with at the end of these blinks, then you’re in luck. The same author has answered them in another book, and we’ve got the blinks for it! In these blinks, you’ll learn about how information technology giants like Google are repeating a historical pattern set by the telephone, film and radio industries of the past. To find out what that pattern is, how the internet is following it and how it can be broken, we highly recommend the blinks to **The Master Switch**!
 
 
-Source: [The Curse of Bigness by Tim Wu](https://www.blinkist.com/en/nc/daily/reader/the-curse-of-bigness-en/)
+Source: [The Curse of Bigness by Tim Wu](https://www.blinkist.com/books/the-curse-of-bigness-en/)

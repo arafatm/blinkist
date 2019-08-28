@@ -182,4 +182,4 @@ As you’ve just learned, the next right thing has more to do with checking in w
 **The In-Between **considers how the moments between major events can influence our lives and identities. Chronicling the author’s own life-changing experiences, this book suggests how we can embrace the tension between the next big thing and the present moment. To learn how to slow down and enjoy your life to the fullest, we highly recommend the blinks to **The In-Between. **
 
 
-Source: [The Next Right Thing by Emily P. Freeman](https://www.blinkist.com/en/nc/daily/reader/the-next-right-thing-en)
+Source: [The Next Right Thing by Emily P. Freeman](https://www.blinkist.com/books/the-next-right-thing-en)

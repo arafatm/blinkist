@@ -260,4 +260,4 @@ Ingrid Fetell Lee’s hymn to joy has taught you how to look around and elicit j
 **The Architecture of Happiness** explains how architecture can bring out specific aspects of our personalities, resurface long-forgotten memories and even inspire us to improve ourselves as people. After these blinks, you’ll never look at a building the same way again.
 
 
-Source: [Joyful by Ingrid Fetell Lee](https://www.blinkist.com/en/nc/daily/reader/joyful-en)
+Source: [Joyful by Ingrid Fetell Lee](https://www.blinkist.com/books/joyful-en)

@@ -176,4 +176,4 @@ As you’ve just discovered, many managers and leaders find it tricky or even in
 These blinks offer an insightful approach to management that builds a working environment where individuals can reach their full potential and brilliant ideas can emerge. If you want to be empowered to stop doubting yourself, and to become a kickass boss your employees will be proud to follow, read on. 
 
 
-Source: [Feedback (and Other Dirty Words) by M. Tamra Chandler and Laura Dowling Grealish](https://www.blinkist.com/en/nc/daily/reader/feedback-and-other-dirty-words-en)
+Source: [Feedback (and Other Dirty Words) by M. Tamra Chandler and Laura Dowling Grealish](https://www.blinkist.com/books/feedback-and-other-dirty-words-en)

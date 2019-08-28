@@ -194,4 +194,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 As you learned in these blinks, a good diet is one of the most crucial ingredients of success. You’ve received some guidelines on how to improve your diet, but maybe you’re still wondering how to implement them. Well, there’s good news and even better news. The good news? The author has plenty of answers to this question, and he wrote about them in his book** The Bulletproof Diet**. The even better news? We have the blinks for that book! So check them out now, and pretty soon, your diet will be bulletproof too!
 
 
-Source: [Game Changers by Dave Asprey](https://www.blinkist.com/en/nc/daily/reader/game-changers-en)
+Source: [Game Changers by Dave Asprey](https://www.blinkist.com/books/game-changers-en)

@@ -168,4 +168,4 @@ Meditation in the West has come a long way since the days when hippies and spiri
 Well, that’s exactly the question Daniel Goleman and Richard J. Davidson set out to answer in **Altered Traits**. Two leading experts on the workings of the human brain, they decided to scour the latest cutting-edge neuroscientific research to find an answer. If you’ve enjoyed this look at the “how” of meditation, why not dive into the “why” with the blinks for **Altered Traits**.
 
 
-Source: [Fully Present by Susan L. Smalley and Diana Winston](https://www.blinkist.com/en/nc/daily/reader/fully-present-en/)
+Source: [Fully Present by Susan L. Smalley and Diana Winston](https://www.blinkist.com/books/fully-present-en/)

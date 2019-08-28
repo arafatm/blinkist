@@ -144,4 +144,4 @@ Now that you’ve figured out how to begin pursuing your passion, it’s time to
 Luckily, the same authors who just provided wisdom on passion-seeking have also explored how performance can be enhanced. So check out our blinks to **Peak Performance, **where we’ll dive deep into how various athletes, artists and intellectuals have harnessed the science behind performance to take their game to the next level.
 
 
-Source: [The Passion Paradox by Brad Stulberg and Steve Magness](https://www.blinkist.com/en/nc/daily/reader/the-passion-paradox-en)
+Source: [The Passion Paradox by Brad Stulberg and Steve Magness](https://www.blinkist.com/books/the-passion-paradox-en)

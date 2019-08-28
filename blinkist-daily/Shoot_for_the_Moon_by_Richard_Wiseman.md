@@ -210,4 +210,4 @@ Apollo 11 may be the most celebrated mission in the Apollo legacy since it was t
 **Rocket Men **takes you behind the scenes of this risky mission and explains why it was such a make-or-break endeavor for the US space program. While Apollo 11 serves as the dramatic climax to the Space Race, **Rocket Men** puts you right in the middle of the running, when victory was still very much up for grabs.
 
 
-Source: [Shoot for the Moon by Richard Wiseman](https://www.blinkist.com/en/nc/daily/reader/shoot-for-the-moon-en)
+Source: [Shoot for the Moon by Richard Wiseman](https://www.blinkist.com/books/shoot-for-the-moon-en)

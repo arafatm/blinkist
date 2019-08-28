@@ -160,4 +160,4 @@ The Pankhursts weren’t the only women who changed the face of Britain, though 
 That’s a wrong journalist and author Cathy Newman is determined to right. So if you’ve enjoyed this look at the suffragettes’ struggle for equality, why not dig a bit deeper into the feminist history of Britain with the blinks to **Bloody Brilliant Women**!
 
 
-Source: [Rise Up, Women! by Diane Atkinson](https://www.blinkist.com/en/nc/daily/reader/rise-up-women-en)
+Source: [Rise Up, Women! by Diane Atkinson](https://www.blinkist.com/books/rise-up-women-en)

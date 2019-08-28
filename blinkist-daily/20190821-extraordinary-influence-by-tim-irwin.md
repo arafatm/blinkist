@@ -168,4 +168,4 @@ In these blinks, we’ve explored the neuroscience behind effective leadership. 
 At the heart of his study is Hannibal, the Carthaginian general who almost succeeded in bringing the mighty Roman empire to its knees in the third century BC. But this isn’t just a meditation on the past: along the way, Kluth unpacks lessons on strategy, coping and the meaning of life for today’s go-getters. So if you’d like to take your leadership skills to the next level, why not check out our blinks to **Hannibal and Me**, by Andreas Kluth? 
 
 
-Source: [Extraordinary Influence by Tim Irwin](https://www.blinkist.com/en/nc/daily/reader/extraordinary-influence-en)
+Source: [Extraordinary Influence by Tim Irwin](https://www.blinkist.com/books/extraordinary-influence-en)

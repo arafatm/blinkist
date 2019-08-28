@@ -148,4 +148,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 **Reinventing Organizations** discusses why companies around the world are getting rid of bosses, introducing flat hierarchies and pursuing purpose over profit. And ultimately, by adopting a non-hierarchical model, these organizations **thrive**.
 
 
-Source: [Reframing Organizations by Lee G. Bolman and Terrence E. Deal](https://www.blinkist.com/en/nc/daily/reader/reframing-organizations-en)
+Source: [Reframing Organizations by Lee G. Bolman and Terrence E. Deal](https://www.blinkist.com/books/reframing-organizations-en)

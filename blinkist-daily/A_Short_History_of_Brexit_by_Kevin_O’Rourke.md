@@ -256,4 +256,4 @@ Now that you’re up to speed with the current Brexit negotiations, dive deeper 
 Young rewrites the history of both unions – British and European – and constructs a gripping narrative about British exceptionalism in the face of the European project. If you want to understand the long-term drivers of the Brexit saga and put it into perspective, these blinks are for you.
 
 
-Source: [A Short History of Brexit by Kevin O’Rourke](https://www.blinkist.com/en/nc/daily/reader/a-short-history-of-brexit-en)
+Source: [A Short History of Brexit by Kevin O’Rourke](https://www.blinkist.com/books/a-short-history-of-brexit-en)

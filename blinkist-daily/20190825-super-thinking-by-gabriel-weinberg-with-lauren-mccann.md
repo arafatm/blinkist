@@ -168,4 +168,4 @@ The mental models we’ve explored in these blinks will help you understand the 
 That isn’t about blind luck, however. Take it from Annie Duke, a poker champion and business consultant who literally wrote the book on smart betting. The key, she claims, is to wean ourselves off our addiction to outcome-based thinking. How? Check out our blinks to **Thinking in Bets: Making Smarter Decisions When You Don’t Have All the Facts **(2018) to find out!
 
 
-Source: [Super Thinking by Gabriel Weinberg with Lauren McCann](https://www.blinkist.com/en/nc/daily/reader/super-thinking-en)
+Source: [Super Thinking by Gabriel Weinberg with Lauren McCann](https://www.blinkist.com/books/super-thinking-en)

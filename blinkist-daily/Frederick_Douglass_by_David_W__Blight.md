@@ -204,4 +204,4 @@ One of the major battles in Frederick Douglass’s life was his fight to gain bl
 Stories like these are what make **The Fight to Vote** the perfect choice to read next. The fight for equality and democracy in the US is a seemingly never-ending one, for even when the freedom to vote has been won, there are still countless ways in which this right can be obstructed. These blinks offer one fascinating story after another of generations of activists who never gave up, and who to this day continue fighting to make their voices heard and have their votes counted.
 
 
-Source: [Frederick Douglass by David W. Blight](https://www.blinkist.com/en/nc/daily/reader/frederick-douglass-en)
+Source: [Frederick Douglass by David W. Blight](https://www.blinkist.com/books/frederick-douglass-en)

@@ -164,4 +164,4 @@ Now that you’ve heard the latest thoughts of the internationally renowned lead
 Drawing on real-life anecdotes from Maxwell’s prolific career and inspiring quotations from other leaders, these blinks set out the key barriers that hold people back, and explore how you can overcome them.
 
 
-Source: [Leadershift by John C. Maxwell](https://www.blinkist.com/en/nc/daily/reader/leadershift-en)
+Source: [Leadershift by John C. Maxwell](https://www.blinkist.com/books/leadershift-en)

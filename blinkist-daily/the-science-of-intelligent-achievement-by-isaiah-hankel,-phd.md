@@ -203,4 +203,4 @@ Many of us would like to gain greater control of our goals in life and become be
 Like Hankel, entrepreneur and best-selling author James Altucher argues that taking control of your goals and aspirations is the key to happiness and success. Since the 2008 global economic crisis, the world has been in a state of constant flux, so you can’t simply wait to be chosen anymore. You have to choose yourself! To learn Altucher’s secrets on how to do that, head on over to the blinks for **Choose Yourself**.
 
 
-Source: [The Science of Intelligent Achievement by Isaiah Hankel, PhD](https://www.blinkist.com/en/nc/daily/reader/the-science-of-intelligent-achievement-en)
+Source: [The Science of Intelligent Achievement by Isaiah Hankel, PhD](https://www.blinkist.com/books/the-science-of-intelligent-achievement-en)

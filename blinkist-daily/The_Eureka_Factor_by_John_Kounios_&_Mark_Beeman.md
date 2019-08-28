@@ -194,4 +194,4 @@ The next time you are negotiating with your boss about your working conditions, 
 We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
 
 
-Source: [The Eureka Factor by John Kounios & Mark Beeman](https://www.blinkist.com/en/nc/daily/reader/the-eureka-factor-en/)
+Source: [The Eureka Factor by John Kounios & Mark Beeman](https://www.blinkist.com/books/the-eureka-factor-en/)

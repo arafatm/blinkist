@@ -144,4 +144,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 Now that you’ve learned about the dangers of loving too much, why not learn about the joys of being single? Since time immemorial, women have dealt with societal judgment about being single when the truth is that it's totally fine to be without a partner. **It’s Not You** (2014) teaches us how to appreciate the single life and reveals the truth: “finding the right partner” shouldn’t be the sole goal of women’s lives. So for a refreshing antidote to outdated dating guides, head over to the blinks to **It’s Not You** and get some advice that’s relevant to the way we live now.
 
 
-Source: [Women Who Love Too Much by Robin Norwood](https://www.blinkist.com/en/nc/daily/reader/women-who-love-too-much-en)
+Source: [Women Who Love Too Much by Robin Norwood](https://www.blinkist.com/books/women-who-love-too-much-en)

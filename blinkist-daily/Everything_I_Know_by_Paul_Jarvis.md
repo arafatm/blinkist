@@ -206,4 +206,4 @@ What should you do in these situations?
 In** Change by Design**, Tim Brown, chief executive of the legendary IDEO design company, pushes for an approach to solving problems based on design methods, whether you’re an employee or have your own business. So if you want to learn more about how to attack any problem with a design mind-set, head over to the blinks to **Change by Design**.
 
 
-Source: [Everything I Know by Paul Jarvis](https://www.blinkist.com/en/nc/daily/reader/everything-i-know-en/)
+Source: [Everything I Know by Paul Jarvis](https://www.blinkist.com/books/everything-i-know-en/)

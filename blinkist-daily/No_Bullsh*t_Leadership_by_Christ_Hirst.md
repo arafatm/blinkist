@@ -138,4 +138,4 @@ Now that you know how to successfully captain your organization’s ship by harn
 Truth be told, changing an organization’s culture can be one of the best ways to ensure future success. Conversely, an unhealthy culture, where self-preservation trumps team spirit, is harmful to productivity, motivation and employee well-being. For an in-depth analysis of the importance of cultural change in the workplace and how it can be achieved, check out our blinks to **Good People, Bad Managers **by Samuel A. Culbert.
 
 
-Source: [No Bullsh*t Leadership by Christ Hirst](https://www.blinkist.com/en/nc/daily/reader/no-bullsh-star-t-leadership-en)
+Source: [No Bullsh*t Leadership by Christ Hirst](https://www.blinkist.com/books/no-bullsh-star-t-leadership-en)

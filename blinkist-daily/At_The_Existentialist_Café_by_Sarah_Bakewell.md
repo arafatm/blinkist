@@ -6,4 +6,4 @@
 
 
 
-Source: [At The Existentialist Café by Sarah Bakewell](https://www.blinkist.com/en/nc/daily/reader/at-the-existentialist-cafe-en)
+Source: [At The Existentialist Café by Sarah Bakewell](https://www.blinkist.com/books/at-the-existentialist-cafe-en)

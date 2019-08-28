@@ -274,4 +274,4 @@ Robin Sharma’s motivational techniques have inspired countless people the worl
 This is no ordinary instructional self-help advice. Instead, it is a fable of how ex-lawyer Julian Mantle achieved enlightenment. From his experiences, you, too, will learn how to live a happier, more rewarding and enlightened existence.
 
 
-Source: [Who Will Cry When You Die? by Robin Sharma](https://www.blinkist.com/en/nc/daily/reader/who-will-cry-when-you-die-en)
+Source: [Who Will Cry When You Die? by Robin Sharma](https://www.blinkist.com/books/who-will-cry-when-you-die-en)

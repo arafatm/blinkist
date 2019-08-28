@@ -222,4 +222,4 @@ If this resonates, we think you’d enjoy the blinks to **30 Lessons for Loving*
 Interested? Then pop over to our blinks to **30 Lessons for Loving** , by Karl Pillemer, and draw on the wisdom of some sage individuals. 
 
 
-Source: [Let Love Have the Last Word by Common](https://www.blinkist.com/en/nc/daily/reader/let-love-have-the-last-word-en)
+Source: [Let Love Have the Last Word by Common](https://www.blinkist.com/books/let-love-have-the-last-word-en)

@@ -286,4 +286,4 @@ The autobiography ends on a tantalizing cliff-hanger, with the country on the ve
 Plus, India’s history is about much more than the country’s break from Britain. While it holds the title of the largest democratic nation in the world, India is also on an exciting upswing, with massive development happening and a hugely influential economy. In short, it’s a place with which everyone should be more familiar.
 
 
-Source: [An Autobiography by M. K. Gandhi](https://www.blinkist.com/en/nc/daily/reader/an-autobiography-en)
+Source: [An Autobiography by M. K. Gandhi](https://www.blinkist.com/books/an-autobiography-en)

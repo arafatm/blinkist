@@ -264,4 +264,4 @@ If you like what author Ari Meisel has to say about how to make your business ru
 No one wants to spend beautiful days behind a desk or staring at a spreadsheet, so find out how you can maintain high quality work while spending a fraction of the time and effort you are now.
 
 
-Source: [The Replaceable Founder by Ari Meisel](https://www.blinkist.com/en/nc/daily/reader/the-replaceable-founder-en)
+Source: [The Replaceable Founder by Ari Meisel](https://www.blinkist.com/books/the-replaceable-founder-en)

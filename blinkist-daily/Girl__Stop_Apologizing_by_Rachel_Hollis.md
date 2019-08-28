@@ -170,4 +170,4 @@ If the motivational spirit of Rachel Hollis has you eager for more empowering wo
 Sometimes, all we need is a fresh perspective on life and some words of encouragement to awaken us to life’s possibilities and all the great potential we have to get what we want. No one said it would be easy, but as Hollis makes clear, there is joy to be found in a productive and ambitious life.
 
 
-Source: [Girl, Stop Apologizing by Rachel Hollis](https://www.blinkist.com/en/nc/daily/reader/girl-stop-apologizing-en)
+Source: [Girl, Stop Apologizing by Rachel Hollis](https://www.blinkist.com/books/girl-stop-apologizing-en)

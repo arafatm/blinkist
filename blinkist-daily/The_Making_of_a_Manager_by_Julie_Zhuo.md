@@ -124,4 +124,4 @@ If you’ve enjoyed Julie Zhuo’s take on team management, why not take a close
 Revealing the four personality types that dictate how people react to everyday situations and expectations, Rubin’s advice will help you understand your own tendencies, as well as the tendencies of those around you.
 
 
-Source: [The Making of a Manager by Julie Zhuo](https://www.blinkist.com/en/nc/daily/reader/the-making-of-a-manager-en)
+Source: [The Making of a Manager by Julie Zhuo](https://www.blinkist.com/books/the-making-of-a-manager-en)

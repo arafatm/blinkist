@@ -208,4 +208,4 @@ If these blinks have only whetted your appetite for Fukuyama’s insightful poli
 This book takes a more bird’s-eye approach to humanity’s social structures, revealing how modern states were formed by tracing the political evolution of a host of different societies. And while many experts point to Ancient Greece or Rome as the keys to understanding modern state-building, Fukuyama takes a more diverse approach and examines the political histories of China, India and the Middle East, too.
 
 
-Source: [Identity by Francis Fukuyama](https://www.blinkist.com/en/nc/daily/reader/identity-en)
+Source: [Identity by Francis Fukuyama](https://www.blinkist.com/books/identity-en)

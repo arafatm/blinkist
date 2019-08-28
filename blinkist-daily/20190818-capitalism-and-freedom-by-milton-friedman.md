@@ -134,4 +134,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 In these blinks, we’ve explored Milton Friedman’s understanding of liberty at the macro level of government policy, but he was just as concerned with the micro level: individuals. So, if you’re fascinated by Friedman’s reflections on freedom, why not take a look at **Free to Choose**, his study of the relationship between individuals’ economic choices and self-interest.
 
 
-Source: [Capitalism and Freedom by Milton Friedman](https://www.blinkist.com/en/nc/daily/reader/capitalism-and-freedom-en)
+Source: [Capitalism and Freedom by Milton Friedman](https://www.blinkist.com/books/capitalism-and-freedom-en)

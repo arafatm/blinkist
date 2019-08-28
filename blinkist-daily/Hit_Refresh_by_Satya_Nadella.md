@@ -156,4 +156,4 @@ One of Nadella’s greatest challenges as the CEO of Microsoft is navigating the
 But Microsoft isn’t the only company trying to ride the latest wave of business innovation. So, what are other entrepreneurs doing to keep up with the market? Well, that’s exactly what Geoffrey A. Moore set out to discover in his study of how today’s top managers are dealing with disruption. If you’d like to find out more, check out our blinks to **Zone to Win**.
 
 
-Source: [Hit Refresh by Satya Nadella](https://www.blinkist.com/en/nc/daily/reader/hit-refresh-en)
+Source: [Hit Refresh by Satya Nadella](https://www.blinkist.com/books/hit-refresh-en)

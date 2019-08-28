@@ -146,4 +146,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 Now that you’ve had an up-close look at the psychological landscape in which therapy takes place, perhaps you want to gain a better understanding of the way in which it emerged as a field of study and clinical practice. How did it emerge, and how has it changed over the years? Who are the key figures and what are the key concepts in its development? And what’s the deal with that Freud guy anyway? Was he a quack, a revolutionary thinker or a bit of both? To find out the answers to all of these questions and more, check out the blinks to **Shrinks**, by Jeffrey A. Lieberman and Ogi Ogas.
 
 
-Source: [Maybe You Should Talk To Someone by Lori Gottlieb](https://www.blinkist.com/en/nc/daily/reader/maybe-you-should-talk-to-someone-en)
+Source: [Maybe You Should Talk To Someone by Lori Gottlieb](https://www.blinkist.com/books/maybe-you-should-talk-to-someone-en)

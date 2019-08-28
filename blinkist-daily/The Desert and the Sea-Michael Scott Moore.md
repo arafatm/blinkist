@@ -220,4 +220,4 @@ These blinks have been a riveting adventure story and a personal perspective on 
 This is where Walter Scheidel’s **The Great Leveler** comes in. It takes a look at how different societies throughout history have faced inequality and catastrophe. He provides an extensive explanation of the Somalian government’s collapse in 1991 and also looks at the broader question: can equality ever be achieved in a non-violent manner?
 
 
-Source: [The Desert and the Sea by Michael Scott Moore](https://www.blinkist.com/en/nc/daily/reader/the-desert-and-the-sea-en)
+Source: [The Desert and the Sea by Michael Scott Moore](https://www.blinkist.com/books/the-desert-and-the-sea-en)

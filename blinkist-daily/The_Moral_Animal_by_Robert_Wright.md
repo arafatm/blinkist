@@ -132,4 +132,4 @@ Nietzsche once wrote that we evolved from worms and that much within us was “s
 But don’t worry – our uncanny resemblance to members of the animal kingdom isn’t all there is to this story; there’s also been plenty of progress. Just how much, and why it occurred, is what Robert Wright set out to discover in his study of how we evolved to prefer win-win situations. So if you’ve enjoyed this look at evolutionary psychology, why not dip into our blinks to **Nonzero **(1999)?
 
 
-Source: [The Moral Animal by Robert Wright](https://www.blinkist.com/en/nc/daily/reader/the-moral-animal-en)
+Source: [The Moral Animal by Robert Wright](https://www.blinkist.com/books/the-moral-animal-en)

@@ -162,4 +162,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 Got an entrepreneurial itch you just can’t wait to scratch? Well, now that you know the lay of the land, dive into the nitty-gritty details of setting up your own business with the blinks to **Lost and Founder **(2018), an insider’s playbook stacked with cheats codes and hacks tailormade for would-be founders and self-starters.
 
 
-Source: [Dear Founder by Maynard Webb and Carlye Adler](https://www.blinkist.com/en/nc/daily/reader/dear-founder-en)
+Source: [Dear Founder by Maynard Webb and Carlye Adler](https://www.blinkist.com/books/dear-founder-en)

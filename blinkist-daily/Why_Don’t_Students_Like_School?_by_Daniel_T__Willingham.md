@@ -196,4 +196,4 @@ As you’ve seen in these blinks, Willingham’s approach to better education an
 It examines larger structural issues in the education sector, particularly in the United States, and explores what makes some schools successful, while others fall behind. Above all, Green reveals, it’s the teacher who matters. So what is a great teacher? To find out, head over to our blinks to **Building a Better Teacher**.
 
 
-Source: [Why Don’t Students Like School? by Daniel T. Willingham](https://www.blinkist.com/en/nc/daily/reader/why-dont-students-like-school-en)
+Source: [Why Don’t Students Like School? by Daniel T. Willingham](https://www.blinkist.com/books/why-dont-students-like-school-en)

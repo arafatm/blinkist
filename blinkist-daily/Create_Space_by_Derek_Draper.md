@@ -220,4 +220,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 If you want the supreme satisfaction of being more efficient and doing more with less, check out the blinks to **Essentialism**.
 
 
-Source: [Create Space by Derek Draper](https://www.blinkist.com/en/nc/daily/reader/create-space-en/)
+Source: [Create Space by Derek Draper](https://www.blinkist.com/books/create-space-en/)

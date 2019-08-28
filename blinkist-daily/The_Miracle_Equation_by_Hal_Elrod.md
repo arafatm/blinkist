@@ -156,4 +156,4 @@ It’s often said that the longest journeys begin with the first step. After tha
 It was during that long and tricky recovery process that he wrote his first book, a meditation on the massive benefits of spending a small amount of time each day improving ourselves. So if you’d like to learn more about integrating miracle-making into your everyday routine, why not check out our blinks to **The Miracle Morning** by Hal Elrod?
 
 
-Source: [The Miracle Equation by Hal Elrod](https://www.blinkist.com/en/nc/daily/reader/the-miracle-equation-en)
+Source: [The Miracle Equation by Hal Elrod](https://www.blinkist.com/books/the-miracle-equation-en)

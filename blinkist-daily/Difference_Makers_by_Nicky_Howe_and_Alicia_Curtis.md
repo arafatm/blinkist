@@ -122,4 +122,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 “I’m not sexist, it’s just that the top candidates are all guys.” “I don’t believe in quotas – surely you should pick the best person for the job, whatever the color of their skin?” You’ve probably come across these kinds of arguments against diversity before, but just how well do they stack up against the evidence? Well, that’s exactly the question that Mark Kaplan and Mason Donovan wanted to answer when they looked into the matter. So if you’re keen to learn more about diversity in practice, why not check out our blinks to **The Inclusion Dividend**.
 
 
-Source: [Difference Makers by Nicky Howe and Alicia Curtis](https://www.blinkist.com/en/nc/daily/reader/difference-makers-en)
+Source: [Difference Makers by Nicky Howe and Alicia Curtis](https://www.blinkist.com/books/difference-makers-en)

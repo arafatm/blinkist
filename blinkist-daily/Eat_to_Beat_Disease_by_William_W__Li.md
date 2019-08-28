@@ -146,4 +146,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 As the previous blinks have shown, there’s no doubt that eating the right foods can turbo-charge your health. But did you know that **when** you eat them matters too? As **What to Eat When** neatly demonstrates, knowing when to eat something is just as important as knowing what to eat. Packed with practical advice and fun examples, **What to Eat When** take a deep dive into the science of eating, and illuminates how healthier eating habits can boost your health, your energy levels and even your intellect. So for a handy guide on how to eat the right foods at the right time, head over to the blinks to **What to Eat When**. Who knows, they just might save your life.
 
 
-Source: [Eat to Beat Disease by William W. Li](https://www.blinkist.com/en/nc/daily/reader/eat-to-beat-disease-en)
+Source: [Eat to Beat Disease by William W. Li](https://www.blinkist.com/books/eat-to-beat-disease-en)

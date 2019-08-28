@@ -172,4 +172,4 @@ We’d sure love to hear what you think about our content! Just drop an email to
 **Minimalism** (2011) offers readers an alternative path that avoids nine-to-five drudgery and helps them focus on what’s important in life. Authors Joshua Fields Millburn and Ryan Nicodemus have practical guidance on how anyone can free themselves from the financial and emotional binds of modern life to build a new and simpler lifestyle that is still authentic and rewarding.
 
 
-Source: [The Joy of Less by Francine Jay](https://www.blinkist.com/en/nc/daily/reader/the-joy-of-less-en)
+Source: [The Joy of Less by Francine Jay](https://www.blinkist.com/books/the-joy-of-less-en)

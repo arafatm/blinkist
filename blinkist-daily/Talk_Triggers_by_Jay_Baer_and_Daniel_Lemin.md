@@ -128,4 +128,4 @@ If you’ve followed the advice in these blinks, you should be well on your way 
 Luckily enough, that’s also something Jay Baer knows a thing or two about. So if you’re ready for the next stage of your adventure, and would like to find how to turn even the crabbiest of customers into your biggest fans, why not take a look at the blinks for **Hug Your Haters**?
 
 
-Source: [Talk Triggers by Jay Baer and Daniel Lemin](https://www.blinkist.com/en/nc/daily/reader/talk-triggers-en/)
+Source: [Talk Triggers by Jay Baer and Daniel Lemin](https://www.blinkist.com/books/talk-triggers-en/)
