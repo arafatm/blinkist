@@ -1,4 +1,9 @@
 # The Five Dysfunctions of a Team
+*By Patrick M. Lencioni*
+
+Source: [Blinkist: The Five Dysfunctions of a Team](https://www.blinkist.com/en/nc/reader/the-five-dysfunctions-of-a-team-en)
+
+![The Five Dysfunctions of a Team](https://images.blinkist.com/images/books/52f1195c35653600110b0000/3_4/470.jpg)
 
 
 ## What is in it for me: learn how to build and maintain a great team
@@ -180,6 +185,3 @@ If you’re a team leader and you wish to build trust by encouraging others to s
 Whenever you find yourself in a team, whether leading it or just participating, insist on setting public goals and quality standards. Also, demand they be followed with simple and regular progress reviews. This will help keep everyone focused on team goals, and also encourage accountability. And don’t forget: shared goals demand shared rewards, like a team event.
 
 
-![The Five Dysfunctions of a Team](https://images.blinkist.com/images/books/52f1195c35653600110b0000/3_4/470.jpg)
-
-Source: the.five.dysfunctions.of.a.team.en-by-patrick-m.-lencioni.md

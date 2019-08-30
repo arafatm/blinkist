@@ -101,7 +101,13 @@ for bookname in books:
                 "class": "shared__reader__blink reader__container__content"}).contents).strip()
     content = tomd.convert(content)
     content = re.sub('#', '##', content)
-    booktext = "# " + title + "\n\n" + content + "\n\n![" + title + "](" + img + ")\n\nSource: " + booksource
+    booktext = "# " + title + "\n"
+    booktext = booktext + "*" + author + "*\n\n" 
+    booktext = booktext +  "Source: [Blinkist: " + title + "]"
+    booktext = booktext + "(" + bookurl + ")" + "\n\n"
+    booktext = booktext + "![" + title + "](" + img + ")\n\n"
+    booktext = booktext + content + "\n\n"
+
     with open(bookfile, "w", encoding="utf8") as text_file:
         text_file.write(booktext)
     print("- added " + bookfile)
