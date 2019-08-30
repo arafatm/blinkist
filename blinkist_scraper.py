@@ -67,12 +67,8 @@ for book in booklib:
 
 # Scrape books
 for bookname in books:
-    bookfile = re.sub(" ", "", bookname)
-    bookfile = re.sub("-en", "", bookname)
-    bookfile = re.sub("-", ".", bookname)
 
     bookurl="https://www.blinkist.com/books/"+bookname
-    #print("\n----- " + bookurl)
 
     book = session.get(url=bookurl)
     book = BeautifulSoup(book.content.decode('utf-8'), "html5lib")
@@ -81,9 +77,11 @@ for bookname in books:
     author = book.find("div", {"class": "book__header__author"}).string.strip()
     img = book.find("img")["src"]
 
+    print("title: " + title)
+    print("author: " + author)
     #print("\ttitle: {0} by {1}".format(title, author))
 
-    bookfile = bookfile + "-" + re.sub(" ", "-", author.lower()) + ".md"
+    bookfile = re.sub(" ", ".", title) + "." + re.sub(" ", ".", author) + ".md"
     if pathlib.Path("blinkist-new/" + bookfile).exists():
         print("- file exists in blinks_new: " + bookfile)
         continue
@@ -92,13 +90,13 @@ for bookname in books:
         print("- file exists in blinks: " + bookfile)
         continue
 
-    booksource = bookfile
     bookfile = "blinkist-new/" + bookfile
     bookurl="https://www.blinkist.com/en/nc/reader/"+bookname
     book = session.get(url=bookurl)
     book = BeautifulSoup(book.content.decode('utf-8'), "html5lib")
     content = str(book.find("article", {
-                "class": "shared__reader__blink reader__container__content"}).contents).strip()
+        "class": "shared__reader__blink reader__container__content"}).
+        contents).strip()
     content = tomd.convert(content)
     content = re.sub('#', '##', content)
     booktext = "# " + title + "\n"
