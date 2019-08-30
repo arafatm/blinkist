@@ -69,6 +69,7 @@ for book in booklib:
 for bookname in books:
     bookfile = re.sub(" ", "", bookname.lower())
     bookfile = re.sub("-en", "", bookname)
+    bookfile = re.sub("-", ".", bookname)
 
     bookurl="https://www.blinkist.com/books/"+bookname
     #print("\n----- " + bookurl)
