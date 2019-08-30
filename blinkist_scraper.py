@@ -67,7 +67,7 @@ for book in booklib:
 
 # Scrape books
 for bookname in books:
-    bookfile = re.sub(" ", "", bookname.lower())
+    bookfile = re.sub(" ", "", bookname)
     bookfile = re.sub("-en", "", bookname)
     bookfile = re.sub("-", ".", bookname)
 
