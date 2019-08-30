@@ -45,7 +45,7 @@ article = get_element_from_request(f'https://www.blinkist.com{cta}', 'article', 
 
 # Convert to markdown, add source and dump to a file
 print("convert markdown")
-output = f'# {title}\n*{author}*\n\n'
+output = f'# {title}\n*by {author}*\n\n'
 output = output + f'Source: [https://www.blinkist.com{burl}](https://www.blinkist.com{burl})\n\n'
 output = output + f'![{title}]({img_url})\n\n'
 output = output + f'{description}\n\n'
