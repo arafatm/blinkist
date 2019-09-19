@@ -1,9 +1,8 @@
+# Radical Candor
+
 [Source: Blinkist](https://www.blinkist.com/en/books/radical-candor-en)
 
 ![Radical Candor](https://images.blinkist.com/images/books/59e67f5db238e100073fefb5/3_4/470.jpg)
-
-
-# Radical Candor
 
 ## What’s in it for me? Be the kind of leader who cuts through the bullshit.
 
