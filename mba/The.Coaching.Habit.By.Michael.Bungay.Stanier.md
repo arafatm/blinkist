@@ -1,5 +1,8 @@
 # The Coaching Habit
+
 *By Michael Bungay Stanier*
+
+[My highlights](https://github.com/arafatm/notes/blob/master/mba/the.coaching.habit.by.michael.stanier.md)
 
 [Source: Blinkist](https://www.blinkist.com/en/nc/reader/the-coaching-habit-en)
 
