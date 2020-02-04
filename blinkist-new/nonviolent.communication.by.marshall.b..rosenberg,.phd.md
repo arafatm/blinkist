@@ -1,102 +1,242 @@
-![Nonviolent Communication](https://images.blinkist.com/images/books/5740bb0b2edd1b00032e6be0/3_4/470.jpg)
-
 # Nonviolent Communication
+
+![Nonviolent Communication](https://images.blinkist.com/images/books/5740bb0b2edd1b00032e6be0/3_4/470.jpg)
 
 ## What’s in it for me? Learn what it takes to become a compassionate communicator.
 
-Over the course of a regular day, we communicate with a number of different people; we communicate with our loved ones, our colleagues and so on. But, unfortunately, many conversations end badly – irrational conflicts often arise and we end up leaving conversations feeling overlooked or in despair.
+Over the course of a regular day, we communicate with a number
+of different people; we communicate with our loved ones, our
+colleagues and so on. But, unfortunately, many conversations
+end badly – irrational conflicts often arise and we end up
+leaving conversations feeling overlooked or in despair.
 
-This is not the way it should be, nor does it have to be – and avoiding these situations is exactly what these blinks can help you do. Delve into the concept of **Nonviolent Communication** and learn how you can apply it in your everyday life to maintain, and perhaps even improve, your relationships.
+This is not the way it should be, nor does it have to be – and
+avoiding these situations is exactly what these blinks can help
+you do. Delve into the concept of **Nonviolent Communication**
+and learn how you can apply it in your everyday life to
+maintain, and perhaps even improve, your relationships.
 
 In these blinks, you’ll learn
-
-- how best to react when someone tells you “you’re the most selfish person I have ever met”;
-- why you should keep your observations separate from your evaluations; and
-- why you shouldn’t immediately blame your partner for leaving dirty socks around the house.
+- how best to react when someone tells you “you’re the most
+  selfish person I have ever met”;
+- why you should keep your observations separate from your
+  evaluations; and
+- why you shouldn’t immediately blame your partner for leaving
+  dirty socks around the house.
 
 ## Engaging in alienating communication prevents compassion.
 
-In any society, communication is a fundamental building block of everyday life; if we want to function well in society, we need to learn how to communicate with others effectively.
+In any society, communication is a fundamental building block
+of everyday life; if we want to function well in society, we
+need to learn how to communicate with others effectively.
 
-Unfortunately, we tend to use language that cuts the flow of communication and, even worse, harms us and the person we are speaking with.
+Unfortunately, we tend to use language that cuts the flow of
+communication and, even worse, harms us and the person we are
+speaking with.
 
-This **life-alienating communication** happens when our words put up walls instead of creating bridges. For example, calling a friend selfish for taking the last piece of cake on a dish is a judgmental statement that creates defensiveness. Alternatively, simple inquiry into their motivation could help find a solution.
+This **life-alienating communication** happens when our words
+put up walls instead of creating bridges. For example, calling
+a friend selfish for taking the last piece of cake on a dish is
+a judgmental statement that creates defensiveness.
+Alternatively, simple inquiry into their motivation could help
+find a solution.
 
-Furthermore, this kind of language alienates us from our compassionate selves, which makes us more violent as individuals and societies. The connection between language and violence has been investigated by O.J. Harvey, a professor of psychology at the University of Colorado. He studied random fragments of world literature from different countries and looked for words that judged people, like “good” and “bad.”
+Furthermore, this kind of language alienates us from our
+compassionate selves, which makes us more violent as
+individuals and societies. The connection between language and
+violence has been investigated by O.J. Harvey, a professor of
+psychology at the University of Colorado. He studied random
+fragments of world literature from different countries and
+looked for words that judged people, like “good” and “bad.”
 
-The study found that the countries with more judgemental words in their literature also had a higher number of violent incidents. Harvey concluded that cultures who label people as “good” or “bad” reinforce the idea that “bad” individuals deserve punishment, which contributes to violent incidents.
+The study found that the countries with more judgemental words
+in their literature also had a higher number of violent
+incidents. Harvey concluded that cultures who label people as
+“good” or “bad” reinforce the idea that “bad” individuals
+deserve punishment, which contributes to violent incidents.
 
-But life-alienating communication extends far beyond just “good” or “bad.” In fact, this form of communication features a range of linguistic devices that help create gaps between people. One such device is **moralistic judgment.**
+But life-alienating communication extends far beyond just
+“good” or “bad.” In fact, this form of communication features a
+range of linguistic devices that help create gaps between
+people. One such device is **moralistic judgment.**
 
-Moralistic judgments – typically insults, criticism and labels – imply that a person who acts differently to your value system is behaving “wrongly.”
+Moralistic judgments – typically insults, criticism and labels
+– imply that a person who acts differently to your value system
+is behaving “wrongly.”
 
-Imagine a daughter who wants to move out of her parents’ house; they think that she isn’t ready and will put herself in danger. But instead of expressing themselves compassionately and trying to understand her point of view, they label her as “selfish.”
+Imagine a daughter who wants to move out of her parents’ house;
+they think that she isn’t ready and will put herself in danger.
+But instead of expressing themselves compassionately and trying
+to understand her point of view, they label her as “selfish.”
 
-Instead of calling her “selfish,” they could take time to identify their needs, as well as those of their daughter, and have a compassionate discussion about it. It might turn out that what the parents are really worried about is how much they’ll miss their daughter. By using compassionate language, they can bridge their differences instead of alienating each other.
+Instead of calling her “selfish,” they could take time to
+identify their needs, as well as those of their daughter, and
+have a compassionate discussion about it. It might turn out
+that what the parents are really worried about is how much
+they’ll miss their daughter. By using compassionate language,
+they can bridge their differences instead of alienating each
+other.
 
-This is just the beginning though – the next blinks will show you exactly how to start communicating with compassion.
+This is just the beginning though – the next blinks will show
+you exactly how to start communicating with compassion.
 
 ## Nonviolent Communication is a way to communicate compassionately.
 
-Expressing emotions is never straightforward, especially when they are negative. Luckily, there’s a powerful method to help us.
+Expressing emotions is never straightforward, especially when
+they are negative. Luckily, there’s a powerful method to help
+us.
 
-It’s called **Nonviolent Communication** (NVC), a way of communicating that allows us to connect with others and ourselves from the heart. The term **nonviolence** is inspired by Mahatma Gandhi, the leader of the Indian independence movement, and refers to the natural state of our hearts: free from violence and full of compassion.
+It’s called **Nonviolent Communication** (NVC), a way of
+communicating that allows us to connect with others and
+ourselves from the heart. The term **nonviolence** is inspired
+by Mahatma Gandhi, the leader of the Indian independence
+movement, and refers to the natural state of our hearts: free
+from violence and full of compassion.
 
-**Communication** refers to NVC’s conception of language as that which defines the relationships we have with ourselves and others. The two combined create a communicative approach that makes us more aware of the words we use and how we listen to others.
+**Communication** refers to NVC’s conception of language as
+that which defines the relationships we have with ourselves and
+others. The two combined create a communicative approach that
+makes us more aware of the words we use and how we listen to
+others.
 
-One of the main strengths of the NVC approach is that it helps us communicate our feelings clearly. It does so by encouraging us to observe objectively, identify our needs and communicate compassionately.
+One of the main strengths of the NVC approach is that it helps
+us communicate our feelings clearly. It does so by encouraging
+us to observe objectively, identify our needs and communicate
+compassionately.
 
-Imagine you have a messy son named Jim. When you see that he's left his toys strewn across the living room floor for the third time today, don’t immediately yell at him to clean them up; instead, start by simply observing the situation.
+Imagine you have a messy son named Jim. When you see that he's
+left his toys strewn across the living room floor for the third
+time today, don’t immediately yell at him to clean them up;
+instead, start by simply observing the situation.
 
-Next, try to sense how you feel when you observe the situation: are you scared for Jim’s safety? Or are you angry that you have to repeat yourself over and over?
+Next, try to sense how you feel when you observe the situation:
+are you scared for Jim’s safety? Or are you angry that you have
+to repeat yourself over and over?
 
-After a moment of self-questioning, you might realize that you are frustrated and irritated. You now need to identify the needs that emerge from these feelings.
+After a moment of self-questioning, you might realize that you
+are frustrated and irritated. You now need to identify the
+needs that emerge from these feelings.
 
-For example, your need might be to have an orderly household. But before you say anything, think about how you can influence the other person to make your life better, but do so without hurting them. When you are ready, form an honest, clear and compassionate request:
+For example, your need might be to have an orderly household.
+But before you say anything, think about how you can influence
+the other person to make your life better, but do so without
+hurting them. When you are ready, form an honest, clear and
+compassionate request:
 
-“Jim, when I see your toys in the living room, I feel frustrated because I need the rooms that we share to be more orderly. Would you be willing to move your toys to your room once you’ve finished playing?”
+“Jim, when I see your toys in the living room, I feel
+frustrated because I need the rooms that we share to be more
+orderly. Would you be willing to move your toys to your room
+once you’ve finished playing?”
 
-Next, let’s have a closer look at the observation part of the NVC approach.
+Next, let’s have a closer look at the observation part of the
+NVC approach.
 
 ## Separate observation and evaluation from one another.
 
-We’ve established the connection between good communication and observation, so now let’s look at how to improve our observational skills.
+We’ve established the connection between good communication and
+observation, so now let’s look at how to improve our
+observational skills.
 
-First of all, focus your energy on being aware of the present moment. Listen carefully to what the other person is saying and ask yourself, how is this affecting my well-being? Engage your senses – touch, sight and sound – to connect as much as possible with the situation.
+First of all, focus your energy on being aware of the present
+moment. Listen carefully to what the other person is saying and
+ask yourself, how is this affecting my well-being? Engage your
+senses – touch, sight and sound – to connect as much as
+possible with the situation.
 
-The next step is to avoid generalizing your arguments, which can be done by relating observations to **specific **situations. Instead of saying “you always…”, refer to a particular moment when something upset you. For example, you could point out that your partner once again forgot to pick up the dog food from the pet store.
+The next step is to avoid generalizing your arguments, which
+can be done by relating observations to **specific
+**situations. Instead of saying “you always…”, refer to a
+particular moment when something upset you. For example, you
+could point out that your partner once again forgot to pick up
+the dog food from the pet store.
 
-However, it’s also important to distinguish between** observation** and **evaluation**. Indian philosopher, J. Krishnamurti wrote that observing without evaluation is the highest form of intelligence. For many, making the distinction between observation and criticism or judgment can be difficult.
+However, it’s also important to distinguish between**
+observation** and **evaluation**. Indian philosopher, J.
+Krishnamurti wrote that observing without evaluation is the
+highest form of intelligence. For many, making the distinction
+between observation and criticism or judgment can be difficult.
 
-The phrase “My boss is always late,” is an evaluation, whereas “My boss does not arrive before 8:30 a.m.” is more exact. Similarly, “You rarely take my advice,” is an evaluation; a more accurate observation would be: “The previous three times I offered advice, you refused to accept it.”
+The phrase “My boss is always late,” is an evaluation, whereas
+“My boss does not arrive before 8:30 a.m.” is more exact.
+Similarly, “You rarely take my advice,” is an evaluation; a
+more accurate observation would be: “The previous three times I
+offered advice, you refused to accept it.”
 
-Both observations are specific, which, in turn, reduces the likelihood of a misunderstanding. What’s more, they are free of criticism, which prevents the recipient of your message from becoming defensive.
+Both observations are specific, which, in turn, reduces the
+likelihood of a misunderstanding. What’s more, they are free of
+criticism, which prevents the recipient of your message from
+becoming defensive.
 
-Another way of improving observation is to be aware of labelling. If you’re distracted by labels, you’ll struggle to relate to a specific situation or person. For instance, having the preconception that someone is “liberal” or “conservative” may impede your judgement when discussing a certain issue; you’ve already assumed what this person is thinking.
+Another way of improving observation is to be aware of
+labelling. If you’re distracted by labels, you’ll struggle to
+relate to a specific situation or person. For instance, having
+the preconception that someone is “liberal” or “conservative”
+may impede your judgement when discussing a certain issue;
+you’ve already assumed what this person is thinking.
 
 ## Learn to express how you feel.
 
-We’ve now established that clear observation is the first step of NVC. But we now need to learn how to fully express our own feelings in order to communicate as effectively as possible.
+We’ve now established that clear observation is the first step
+of NVC. But we now need to learn how to fully express our own
+feelings in order to communicate as effectively as possible.
 
-To achieve this, we can begin by articulating our feelings accurately. This can be problematic because we are rarely required to analyze our true emotions. The best way to express ourselves is by being **specific**, especially because the English language itself can be unclear at times.
+To achieve this, we can begin by articulating our feelings
+accurately. This can be problematic because we are rarely
+required to analyze our true emotions. The best way to express
+ourselves is by being **specific**, especially because the
+English language itself can be unclear at times.
 
-For example, we often use the verb **feel **without actually communicating our feelings. Using a common expression like “I feel a bit down” is vague and fails to convey your exact emotional state.
+For example, we often use the verb **feel **without actually
+communicating our feelings. Using a common expression like “I
+feel a bit down” is vague and fails to convey your exact
+emotional state.
 
-However, taking the time to find the correct language will help you describe your situation more clearly. So, instead of saying “I feel a bit down”, use sharper adjectives and clarify the reasons why. Are you feeling depressed, regretful or betrayed? The best way to start putting this into practice is by expanding your vocabulary. A broad scope of words will offer you a larger range of emotions from which to express your feelings.
+However, taking the time to find the correct language will help
+you describe your situation more clearly. So, instead of saying
+“I feel a bit down”, use sharper adjectives and clarify the
+reasons why. Are you feeling depressed, regretful or betrayed?
+The best way to start putting this into practice is by
+expanding your vocabulary. A broad scope of words will offer
+you a larger range of emotions from which to express your
+feelings.
 
-This problem of vagueness also applies to pronouns. Making the statement “I feel like **everybody** is ignoring me” is ambiguous and doesn’t address specifics. To avoid such confusion, relate your experiences to real people and places: “Yesterday morning, I asked my sister for advice and she didn’t respond. The same thing happened with my boss at lunch today, which made me feel unappreciated.” Try to give a narrative of events and state the way you felt as they occurred.
+This problem of vagueness also applies to pronouns. Making the
+statement “I feel like **everybody** is ignoring me” is
+ambiguous and doesn’t address specifics. To avoid such
+confusion, relate your experiences to real people and places:
+“Yesterday morning, I asked my sister for advice and she didn’t
+respond. The same thing happened with my boss at lunch today,
+which made me feel unappreciated.” Try to give a narrative of
+events and state the way you felt as they occurred.
 
-Finally you’ll need to learn how to express your vulnerability. Neglecting your true feelings can create unwanted tension among colleagues, friends and family; certain professional codes even discourage the expression of vulnerability as a sign of weakness, including those of lawyers, engineers and the military.
+Finally you’ll need to learn how to express your vulnerability.
+Neglecting your true feelings can create unwanted tension among
+colleagues, friends and family; certain professional codes even
+discourage the expression of vulnerability as a sign of
+weakness, including those of lawyers, engineers and the
+military.
 
-Instead of bottling up your feelings, use NVC to establish bridges of communication: observe, identify your feelings and needs, and make clear requests.
+Instead of bottling up your feelings, use NVC to establish
+bridges of communication: observe, identify your feelings and
+needs, and make clear requests.
 
 ## Take responsibility for your feelings.
 
-At this point, you should be getting more familiar with NVC and should be able to pay closer attention to your feelings as a result. But there’s more to developing your emotional responses – you need to take responsibility for your feelings.
+At this point, you should be getting more familiar with NVC and
+should be able to pay closer attention to your feelings as a
+result. But there’s more to developing your emotional responses
+– you need to take responsibility for your feelings.
 
-You can do this when interacting with others by first recognizing your own needs. While another person’s action can be the stimulus of our feelings, they are not the cause. Rather, our reactions determine how we feel about what people say to us. For example, we’ll intuitively react in a negative way if someone tells us, “You’re the most selfish person I’ve ever met!”
+You can do this when interacting with others by first
+recognizing your own needs. While another person’s action can
+be the stimulus of our feelings, they are not the cause.
+Rather, our reactions determine how we feel about what people
+say to us. For example, we’ll intuitively react in a negative
+way if someone tells us, “You’re the most selfish person I’ve
+ever met!”
 
-But let’s look at four different potential ways of reacting to this statement:
+But let’s look at four different potential ways of reacting to
+this statement:
 
 First, you can have a negative reaction to their words and think, “It’s all my fault!” By blaming yourself, you fail to analyze the root of the message and address the other person’s grievance. This might make you feel guilty, low or even depressed.
 
