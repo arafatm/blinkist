@@ -234,6 +234,6 @@ Actionable advice:
 
 When you’ve found the unusual idea to base your startup on, don’t go too broad too quickly. Find a small niche where you can do something better than any of your competitors. Once you’ve established a monopoly there, you can expand to other markets later.
 
-**Suggested further reading: T******he Hard Thing About Hard Things,****** by Ben Horowitz.**
+## Suggested further reading: The Hard Thing About Hard Things, by Ben Horowitz.
 
 These blinks explain why the job of a CEO is among the toughest and loneliest in the world, and how you can survive all the stress and heartache involved.
