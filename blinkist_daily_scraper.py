@@ -33,10 +33,10 @@ img_url = container.find('img')['src']
 
 date = datetime.now().strftime('%Y%m%d')
 
-bookfile = "blinkist-daily/" 
+bookfile = "blinkist-daily/" + date + "." 
 bookfile = bookfile + re.sub(" ", ".", title) 
 bookfile = bookfile + ".By." + re.sub(" ", ".", author) 
-bookfile = bookfile + date + "." + ".md"
+bookfile = bookfile  + ".md"
 
 if pathlib.Path(bookfile).exists():
     print(bookfile + " exists")
