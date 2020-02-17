@@ -4,11 +4,11 @@
 
 *Michael Roizen, Michael Crupain and Ted Spiker*
 
->What to Eat When (2018) shows how it’s not just what you eat, but when you eat
->that matters. This practical and fun guide dives deep into the science of
->eating to show you how you can enhance your health, energy and intellect
->through healthier eating habits. It provides a blueprint for eating right, all
->the time.
+What to Eat When (2018) shows how it’s not just what you eat, but when you eat
+that matters. This practical and fun guide dives deep into the science of
+eating to show you how you can enhance your health, energy and intellect
+through healthier eating habits. It provides a blueprint for eating right, all
+the time.
 
 # Final summary
 

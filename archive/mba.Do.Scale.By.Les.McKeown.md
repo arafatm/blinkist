@@ -5,15 +5,13 @@
 Source:
 [https://www.blinkist.com/books/do-scale-en](https://www.blinkist.com/books/do-scale-en)
 
-![Do
-Scale](https://images.blinkist.com/images/books/5e11eadf6cee070008dc6f17/3_4/470.jpg)
+![Do Scale](https://images.blinkist.com/images/books/5e11eadf6cee070008dc6f17/3_4/470.jpg)
 
-(2019) provides succinct, practical advice for business
-founders and leaders wishing to scale their organizations in a
-sustainable way. It explains what scaling means, how to
-evaluate whether it’s right for your company, the challenges
-you’ll personally face, and the mind-set and team you’ll need
-to scale successfully.
+(2019) provides succinct, practical advice for business founders and leaders
+wishing to scale their organizations in a sustainable way. It explains what
+scaling means, how to evaluate whether it’s right for your company, the
+challenges you’ll personally face, and the mind-set and team you’ll need to
+scale successfully.
 
 ## Final summary
 

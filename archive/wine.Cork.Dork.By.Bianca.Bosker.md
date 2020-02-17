@@ -2,8 +2,7 @@
 
 *by Bianca Bosker*
 
-Source:
-[https://www.blinkist.com/books/cork-dork-en](https://www.blinkist.com/books/cork-dork-en)
+Source: [https://www.blinkist.com/books/cork-dork-en](https://www.blinkist.com/books/cork-dork-en)
 
 ![Cork Dork](https://images.blinkist.com/images/books/5e1db1956cee070008a883a6/3_4/470.jpg)
 
