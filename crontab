@@ -1,0 +1,2 @@
+MAILTO=""
+0 */6 * * * cd $HOME/code/arafatm/blinkist && /Users/amohamed/homebrew/bin/python3 /Users/amohamed/code/arafatm/blinkist/blinkist_daily_scraper.py >> /Users/amohamed/tmp/cron.log 2>&1
