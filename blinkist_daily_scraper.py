@@ -10,6 +10,8 @@ import urllib3
 import re
 import pathlib
 
+os.system(f'git pull')
+
 headers = {'User-Agent': 'Mozilla/5.0 (Macintosh; Intel Mac OS X 10_13_4) AppleWebKit/605.1.15 (KHTML, like Gecko) Version/11.1 Safari/605.1.15'}
 http = urllib3.PoolManager(10, headers = headers)
 urllib3.disable_warnings()
