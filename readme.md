@@ -1,6 +1,9 @@
 Sign up for https://www.blinkist.com
 
 Read a random note
+
+test
+
 ```
 find . -type d \( -name .git -o -name blinkist-daily \) -prune -o \( -name "*.mkd" -o -name "*.md" \) |shuf -n 1
 ```
