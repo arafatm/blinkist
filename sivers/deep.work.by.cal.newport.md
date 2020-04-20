@@ -30,7 +30,9 @@ Our work culture’s shift toward the shallow is exposing a massive personal
 opportunity for the few who recognize the potential of resisting this trend and
 prioritizing depth.
 
-> “A succession of mediocre singers does not add up to a single outstanding performance.” 
+> “A succession of mediocre singers does not add up to a single outstanding
+> performance.” 
+
 In other words, talent is not a commodity you can buy in bulk and combine to
 reach the needed levels: There’s a premium to being the best.
 
@@ -96,7 +98,6 @@ behaviors to the bottom line, we will tend toward behaviors that are easiest in
 the moment.
 
 > Eudaimonia (a state in which you’re achieving your full human potential)
-
 
 ## THE EUDAIMONIA MACHINE IS A BUILDING by David Dewane - an architecture professor
 
