@@ -1,10 +1,13 @@
 # Radical Candor
 
-> By using radical candor, you can become the best possible boss. Radical
-> candor helps you listen and express genuine care for your employees. It also
-> allows you to directly challenge your staff members in a constructive way to
-> which they’ll be receptive. This makes leadership a collaborative and
-> personal process that brings out the best in everyone.
+[Blinkist Source](https://www.blinkist.com/books/radical-acceptance-en?r=1&st=radical%20)
+![radical candor](https://images.blinkist.com/images/books/5aa7cc0cb238e100071c837b/3_4/470.jpg)
+
+By using radical candor, you can become the best possible boss. Radical candor
+helps you listen and express genuine care for your employees. It also allows
+you to directly challenge your staff members in a constructive way to which
+they’ll be receptive. This makes leadership a collaborative and personal
+process that brings out the best in everyone.
 
 ## Final summary
 
@@ -13,9 +16,6 @@ Actionable advice: **Have a growth plan for your employees**.
 Don’t just think of your staff as people who are only there to do what you
 assign them to do. Think of them as individuals on a career path and work with
 them to develop a plan that keeps that career on track.
-
-[Blinkist Source](https://www.blinkist.com/books/radical-acceptance-en?r=1&st=radical%20)
-![radical candor](https://images.blinkist.com/images/books/5aa7cc0cb238e100071c837b/3_4/470.jpg)
 
 ## What’s in it for me? Be the kind of leader who cuts through the bullshit.
 
