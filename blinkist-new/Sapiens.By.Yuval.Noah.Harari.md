@@ -1,50 +1,102 @@
+# Sapiens
+
 ![Sapiens](https://images.blinkist.com/images/books/559266ac6561380007da0000/3_4/470.jpg)
 
-# Sapiens
+## Final summary
+
+For 300,000 years Homo sapiens have moved from being just one of the many
+species of human to becoming the most dominant species to ever walk the planet.
+
+Beginning with the development of language, human civilization has been getting
+more and more sophisticated – leading to the interconnected global village we
+have today.
 
 ## What’s in it for me? Immerse yourself in humanity’s 300,000 year journey.
 
-Spread both your arms out as wide as you can and let the distance between your two hands represent the history of the Earth. How much of this distance would human history take up? One arm up to the elbow, maybe? A hand? A finger? Not even close. If you wanted to see the space taken up by humanity, you’d need a powerful microscope.
+Spread both your arms out as wide as you can and let the distance between your
+two hands represent the history of the Earth. How much of this distance would
+human history take up? One arm up to the elbow, maybe? A hand? A finger? Not
+even close. If you wanted to see the space taken up by humanity, you’d need a
+powerful microscope.
 
-And yet, although we have been around for an incredibly short amount of time, we have achieved so much. No other species has come close to dominating the planet to the degree that we have. So how has this all been possible?
+And yet, although we have been around for an incredibly short amount of time,
+we have achieved so much. No other species has come close to dominating the
+planet to the degree that we have. So how has this all been possible?
 
-In these blinks, we will explore those key elements in human history – from the development of language to the creation of money – that have made us who we are today.
+In these blinks, we will explore those key elements in human history – from the
+development of language to the creation of money – that have made us who we are
+today.
 
 In these blinks, you’ll discover
-
 - why farming actually made people worse off;
 - why writing was invented to chase up lapsed debts; and
 - why the last decades have been the most peaceful in history.
 
 ## Although not the first humans, Homo sapiens came to replace all other human species on Earth.  
 
-We humans are pretty special: we completely dominate the planet, and we’ve even moved beyond the Earth’s boundaries to explore, and possibly colonize, space.
+We humans are pretty special: we completely dominate the planet, and we’ve even
+moved beyond the Earth’s boundaries to explore, and possibly colonize, space.
 
-How have we been able to do so much? In order to find out we must go back to the start, to the evolution of our human species.
+How have we been able to do so much? In order to find out we must go back to
+the start, to the evolution of our human species.
 
-Humans first appeared about 2.5 million years ago in East Africa, evolving from a genus of great apes known as **Australopithecus**. These early humans, such as **Homo rudolfensis** and **Homo erectus**, eventually migrated, abandoning East Africa for more promising environments. Adaptation to these new habitats led them to evolve into even more forms of **Homo**, including **Homo neanderthalensis** in Europe and Asia.
+Humans first appeared about 2.5 million years ago in East Africa, evolving from
+a genus of great apes known as **Australopithecus**. These early humans, such
+as **Homo rudolfensis** and **Homo erectus**, eventually migrated, abandoning
+East Africa for more promising environments. Adaptation to these new habitats
+led them to evolve into even more forms of **Homo**, including **Homo
+neanderthalensis** in Europe and Asia.
 
-It wasn’t until 300,000 years ago that modern humans, **Homo sapiens**, first appeared. This new species of human were not particularly special. Sure, they had large brains, walked upright, used tools and were highly social, but so did the other species of human. For example, Neanderthals hunted large game and used fire long before the emergence of **Homo sapiens**.
+It wasn’t until 300,000 years ago that modern humans, **Homo sapiens**, first
+appeared. This new species of human were not particularly special. Sure, they
+had large brains, walked upright, used tools and were highly social, but so did
+the other species of human. For example, Neanderthals hunted large game and
+used fire long before the emergence of **Homo sapiens**.
 
-And yet, despite there being nothing particularly special about **Homo sapiens**, they prospered and overspread the globe; all the other human species died out. Why?
+And yet, despite there being nothing particularly special about **Homo
+sapiens**, they prospered and overspread the globe; all the other human species
+died out. Why?
 
-There are two theories to explain this: The **Interbreeding Theory **suggests that **Homo sapiens** began mating with the other species of humans – most notably **Homo neanderthalensis** – and that that resulted in the species’ gradually merging together. There is evidence to back this theory up: the DNA of modern Europeans contains between 1 and 4 percent of Neanderthal DNA, as well as some DNA from other earlier human species.
+There are two theories to explain this: The **Interbreeding Theory **suggests
+that **Homo sapiens** began mating with the other species of humans – most
+notably **Homo neanderthalensis** – and that that resulted in the species’
+gradually merging together. There is evidence to back this theory up: the DNA
+of modern Europeans contains between 1 and 4 percent of Neanderthal DNA, as
+well as some DNA from other earlier human species.
 
-The **Replacement Theory**, on the other hand, suggests that **Homo sapiens**, thanks to their slightly superior skills and technology, pushed other human species toward extinction – either by taking away their food sources or by violently killing them off.
+The **Replacement Theory**, on the other hand, suggests that **Homo sapiens**,
+thanks to their slightly superior skills and technology, pushed other human
+species toward extinction – either by taking away their food sources or by
+violently killing them off.
 
-So which of the theories is most likely to be correct? Well, both are likely to be partially correct: **Homo sapiens** probably drove the other species toward annihilation and simultaneously interbred with them.
+So which of the theories is most likely to be correct? Well, both are likely to
+be partially correct: **Homo sapiens** probably drove the other species toward
+annihilation and simultaneously interbred with them.
 
 ## With the Cognitive Revolution, Homo sapiens acquired thinking and communication skills that allowed them to conquer the globe.
 
-So we have just seen how other human species were driven to extinction by **Homo sapiens**, and how it was a combination of slight advantages that gave **Homo sapiens **the edge. But what exactly was it that gave them these advantages?
+So we have just seen how other human species were driven to extinction by
+**Homo sapiens**, and how it was a combination of slight advantages that gave
+**Homo sapiens** the edge. But what exactly was it that gave them these
+advantages?
 
-The answer lies in the unique structure of the **Homo sapiens**’ brain. About 70,000 years ago, the brain of early modern humans went through an evolutionary leap known as the **Cognitive Revolution. **This development gave them a relatively sudden improvement in brainpower.
+The answer lies in the unique structure of the **Homo sapiens**’ brain. About
+70,000 years ago, the brain of early modern humans went through an evolutionary
+leap known as the **Cognitive Revolution**. This development gave them a
+relatively sudden improvement in brainpower.
 
-With their improved brain capabilities **Homo sapiens** were able to outperform their rivals. For example, they began to form larger, more sophisticated communities; they invented more complex forms of hunting tools and techniques; and they even began to establish primitive trade networks.
+With their improved brain capabilities **Homo sapiens** were able to outperform
+their rivals. For example, they began to form larger, more sophisticated
+communities; they invented more complex forms of hunting tools and techniques;
+and they even began to establish primitive trade networks.
 
-Such advantages meant that **Homo sapiens** could find food and resources, even in the harshest of environments, far easier than the other species of human.
+Such advantages meant that **Homo sapiens** could find food and resources, even
+in the harshest of environments, far easier than the other species of human.
 
-For example, in order to reach America, **Homo sapiens **had to be able to withstand the Arctic conditions of the Siberian passage. So they learned to team together and hunt the large, nutrient-packed mammoths, and to make snowshoes and warm clothing out of their skin and fur.
+For example, in order to reach America, **Homo sapiens** had to be able to
+withstand the Arctic conditions of the Siberian passage. So they learned to
+team together and hunt the large, nutrient-packed mammoths, and to make
+snowshoes and warm clothing out of their skin and fur.
 
 This revolution in brainpower allowed modern humans to venture into the most remote corners of the globe. Starting in Africa, they spread out and colonized Europe, Asia, America and even Australia.
 
@@ -224,12 +276,3 @@ It is likely that, in the not-so-distant future, we **Homo sapiens** will change
 
 It is very likely this new species of superhuman come into existence – the only real question is when.
 
-## Final summary
-
-The key message in these blinks:
-
-**For 300,000 years ******Homo sapiens****** have moved from being just one of the many species of human to becoming the most dominant species to ever walk the planet. Beginning with the development of language, human civilization has been getting more and more sophisticated – leading to the interconnected global village we have today.**
-
-**Got feedback?**
-
-We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
