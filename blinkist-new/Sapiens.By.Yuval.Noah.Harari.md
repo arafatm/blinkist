@@ -98,31 +98,65 @@ withstand the Arctic conditions of the Siberian passage. So they learned to
 team together and hunt the large, nutrient-packed mammoths, and to make
 snowshoes and warm clothing out of their skin and fur.
 
-This revolution in brainpower allowed modern humans to venture into the most remote corners of the globe. Starting in Africa, they spread out and colonized Europe, Asia, America and even Australia.
+This revolution in brainpower allowed modern humans to venture into the most
+remote corners of the globe. Starting in Africa, they spread out and colonized
+Europe, Asia, America and even Australia.
 
-As humanity spread across the globe, however, with their improved hunting techniques, they left a trail of extinctions in their wake.
+As humanity spread across the globe, however, with their improved hunting
+techniques, they left a trail of extinctions in their wake.
 
-For example, just 50,000 years ago, Australia was inhabited by a multitude of big land mammals – ground sloths that were 20 feet tall and armadillos the size of minivans! But, within a couple thousand years of **Homo sapiens**’ arrival, the vast majority of these animals were gone.
+For example, just 50,000 years ago, Australia was inhabited by a multitude of
+big land mammals – ground sloths that were 20 feet tall and armadillos the size
+of minivans! But, within a couple thousand years of **Homo sapiens**’ arrival,
+the vast majority of these animals were gone.
 
 ## The capacity for complex language gave Homo sapiens great advantages, allowing them to spread and thrive.
 
-What do you think best exemplifies the concept of human sophistication? For many, the answer is language. Human language is incredibly complex and intricate, especially when compared to the communication of other species.
+What do you think best exemplifies the concept of human sophistication? For
+many, the answer is language. Human language is incredibly complex and
+intricate, especially when compared to the communication of other species.
 
-It will come as no surprise, then, that the development of intricate language was one of the most important factors in **Homo sapiens**’ domination. Let’s delve into why that is.
+It will come as no surprise, then, that the development of intricate language
+was one of the most important factors in **Homo sapiens**’ domination. Let’s
+delve into why that is.
 
-**Homo sapiens** are social animals; we live in communities. Language allows information to flow freely between individuals within those communities, meaning that important lessons – about food, predators or even dangerous, untrustworthy individuals within the group – can be shared.
+**Homo sapiens** are social animals; we live in communities. Language allows
+information to flow freely between individuals within those communities,
+meaning that important lessons – about food, predators or even dangerous,
+untrustworthy individuals within the group – can be shared.
 
-For example, using language, one person who has found an abundant supply of fruit trees can tell the others where it is. Someone who has discovered the hiding place of a predator can warn the rest of the group to avoid that area. In both cases, language gives the community a distinct advantage.
+For example, using language, one person who has found an abundant supply of
+fruit trees can tell the others where it is. Someone who has discovered the
+hiding place of a predator can warn the rest of the group to avoid that area.
+In both cases, language gives the community a distinct advantage.
 
-But perhaps the biggest benefit of language is that it helps create a common understanding between members of a group, and this is what gives humans their unique advantage.
+But perhaps the biggest benefit of language is that it helps create a common
+understanding between members of a group, and this is what gives humans their
+unique advantage.
 
-There are other animals that can cooperate in large numbers, like bees, but their cooperation is very rigid. They cannot adapt their societal order based on changes in their environment, like new threats or opportunities.
+There are other animals that can cooperate in large numbers, like bees, but
+their cooperation is very rigid. They cannot adapt their societal order based
+on changes in their environment, like new threats or opportunities.
 
-There are also animals such as chimpanzees that can cooperate more flexibly, adapting to changes they perceive. But they can only collaborate in fairly small numbers, because to cooperate, they need to know the other party intimately, and this isn’t feasible in large groups.
+There are also animals such as chimpanzees that can cooperate more flexibly,
+adapting to changes they perceive. But they can only collaborate in fairly
+small numbers, because to cooperate, they need to know the other party
+intimately, and this isn’t feasible in large groups.
 
-The only animal that can cooperate flexibly **and** in large numbers is **Homo sapiens.** And that’s because through language, we’re not only able to share information about the physical world; we can also discuss abstract ideas, like gods, history and rights. These ideas – what the author refers to as **common myths** – are fictional creations of the human brain. They’re the cornerstone of human culture, and they’re exactly what allows us to cooperate in large groups even when we don’t know everyone personally. By sharing these common myths around religion or identity or freedom, communities of individuals are forged.
+The only animal that can cooperate flexibly **and** in large numbers is **Homo
+sapiens.** And that’s because through language, we’re not only able to share
+information about the physical world; we can also discuss abstract ideas, like
+gods, history and rights. These ideas – what the author refers to as **common
+myths** – are fictional creations of the human brain. They’re the cornerstone
+of human culture, and they’re exactly what allows us to cooperate in large
+groups even when we don’t know everyone personally. By sharing these common
+myths around religion or identity or freedom, communities of individuals are
+forged.
 
-Early **Homo sapiens** lived in small bands – roughly 150 strong. But thanks to language and common myths, it was possible to increase the size of our communities exponentially: From villages to cities; from cities to nation states; and from nation states to the global society of modern times.
+Early **Homo sapiens** lived in small bands – roughly 150 strong. But thanks to
+language and common myths, it was possible to increase the size of our
+communities exponentially: From villages to cities; from cities to nation
+states; and from nation states to the global society of modern times.
 
 ## During the Agricultural Revolution, humans transformed from foragers into farmers, which led to exponential population growth.
 
