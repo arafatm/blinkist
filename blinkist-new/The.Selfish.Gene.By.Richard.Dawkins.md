@@ -1,6 +1,6 @@
-![The Selfish Gene](https://images.blinkist.com/images/books/51274f86e4b0714805cbbe99/3_4/470.jpg)
-
 # The Selfish Gene
+
+![The Selfish Gene](https://images.blinkist.com/images/books/51274f86e4b0714805cbbe99/3_4/470.jpg)
 
 ## Evolution is driven by varying abilities and limited resources.
 
