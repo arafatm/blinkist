@@ -1,17 +1,38 @@
+# Homo Deus
+
 ![Homo Deus](https://images.blinkist.com/images/books/59354618b238e10008fda26e/3_4/470.jpg)
 
-# Homo Deus
+## Final summary
+
+Our world is changing and will continue to change. Our history as a species is
+built on this change and progress. If we better understand our history and how
+it made us who we are today, we can have a more secure idea of where we will be
+in the future.
+
+## Actionable advice:
+
+**Determine the depth of your dependence on digital devices**
+
+Spend a day without your mobile device. Are algorithms already taking over your
+free will?
 
 ## What’s in it for me? Learn why humans won’t rule forever.
 
-The advent of humans and humanity’s subsequent rule over earth began with Homo sapiens’ inventive talent, consciousness and thought. Religion and humanist philosophy have done their bit to bring this reign into being, placing humans at the center of creation and thought.
+The advent of humans and humanity’s subsequent rule over earth began with Homo
+sapiens’ inventive talent, consciousness and thought. Religion and humanist
+philosophy have done their bit to bring this reign into being, placing humans
+at the center of creation and thought.
 
-Indeed, with the rapid advancement of science and technology, computers and artificial intelligence, it seems little can stop us. But might we be digging our own graves?
+Indeed, with the rapid advancement of science and technology, computers and
+artificial intelligence, it seems little can stop us. But might we be digging
+our own graves?
 
-These blinks explain the rise of humans and the doctrine of human superiority. You’ll see what made us dominate this planet and why we think we are special. But you’ll also peer ahead and see what threatens our crown – and could commence the fall of humankind.
+These blinks explain the rise of humans and the doctrine of human superiority.
+You’ll see what made us dominate this planet and why we think we are special.
+But you’ll also peer ahead and see what threatens our crown – and could
+commence the fall of humankind.
 
 You’ll also learn:
-
 - how scientists can make decisions for rats;
 - how the US presidential election illustrates human superiority; and
 - why liberalism and nationalism are religions.
@@ -204,22 +225,10 @@ This leaves us with the big question: What happens when algorithms become better
 
 Will we then have to surrender our dominance? It’s an uncomfortable thought.
 
-## Final summary
+## Suggested further reading: Sapiens by Yuval Noah Harari
 
-The key message in this book:
-
-**Our world is changing and will continue to change. Our history as a species is built on this change and progress. If we better understand our history and how it made us who we are today, we can have a more secure idea of where we will be in the future. **
-
-Actionable advice:
-
-**Determine the depth of your dependence on digital devices**
-
-Spend a day without your mobile device. Are algorithms already taking over your free will?
-
-**Got feedback?**
-
-We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
-
-**Suggested** **further** **reading: ******Sapiens ******by Yuval Noah Harari**
-
-**Sapiens **(2015) traces the evolution of our species – from the rise of our most ancient ancestors to our current place in the modern, technological age. How have we, a species of hairless, tailless ape, managed to completely dominate the entire planet? These blinks show you the developments and trends that have allowed **Homo sapiens** to rise to the top.
+**Sapiens **(2015) traces the evolution of our species – from the rise of our
+most ancient ancestors to our current place in the modern, technological age.
+How have we, a species of hairless, tailless ape, managed to completely
+dominate the entire planet? These blinks show you the developments and trends
+that have allowed **Homo sapiens** to rise to the top.
