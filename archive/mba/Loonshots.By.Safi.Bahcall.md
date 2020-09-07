@@ -228,54 +228,157 @@ dismissed radar – often struggle to look beyond these. They want products and
 projects ready for instant roll-out, and that means they’re likely to bury
 loonshots that don’t fit the bill. 
 
-The result? Well, ask the film studios that
-passed on an incomprehensible screenplay called **The Adventures of Luke
-Starkiller** – the prototype of **Star Wars**, one of the most successful movie
-franchises of all time!
+The result? Well, ask the film studios that passed on an incomprehensible
+screenplay called **The Adventures of Luke Starkiller** – the prototype of
+**Star Wars**, one of the most successful movie franchises of all time!
 
-That said, artists and soldiers are equally important – that’s rule two. It’s a lesson Apple learned the hard way. During his first stint at the company, Steve Jobs nicknamed the people working on the Mac “pirates.” Those working on the less glamorous Apple II home computer, on the other hand, were dismissed as “regular Navy.” Tensions between the two camps ended up tanking both products and costing Jobs his position. When he returned to Apple 12 years later, Jobs reevaluated his approach and supported both artists like Jony Ive, the designer behind the iPhone, and soldiers like Tim Cook, the architect of Apple’s return to financial health.
+That said, artists and soldiers are equally important – that’s rule two. It’s a
+lesson Apple learned the hard way. During his first stint at the company, Steve
+Jobs nicknamed the people working on the Mac “pirates.” Those working on the
+less glamorous Apple II home computer, on the other hand, were dismissed as
+“regular Navy.” Tensions between the two camps ended up tanking both products
+and costing Jobs his position. When he returned to Apple 12 years later, Jobs
+reevaluated his approach and supported both artists like Jony Ive, the designer
+behind the iPhone, and soldiers like Tim Cook, the architect of Apple’s return
+to financial health.
 
-Which brings us to rule three: act as an intermediary between artists and soldiers rather than trying to micromanage loonshot projects. Both Bush and Vail kept out of the technical details of the projects their departments pursued. They saw their role as managing the weakest link in the chain that leads to breakthroughs: the transfer from creators to users. Take aircraft radar, one of the OSRD’s great contributions to the war effort. When it was first adopted, pilots ignored it. The reason? Radar boxes were too complicated and fiddly to use in the middle of an aerial dogfight. When Bush heard that feedback, he demanded a redesign. The result was a much simpler display which pilots actually used.
+Which brings us to rule three: act as an intermediary between artists and
+soldiers rather than trying to micromanage loonshot projects. Both Bush and
+Vail kept out of the technical details of the projects their departments
+pursued. They saw their role as managing the weakest link in the chain that
+leads to breakthroughs: the transfer from creators to users. Take aircraft
+radar, one of the OSRD’s great contributions to the war effort. When it was
+first adopted, pilots ignored it. The reason? Radar boxes were too complicated
+and fiddly to use in the middle of an aerial dogfight. When Bush heard that
+feedback, he demanded a redesign. The result was a much simpler display which
+pilots actually used.
 
 ## Purely product-driven innovation can land companies in hot water when the business environment changes.
 
-So far we’ve explored the importance of balancing innovation and franchise operations and the rules that effective loonshot nurturers have adopted to do just that. In this blink, we’ll take a closer look at two different types of loonshots in action: game-changing** products** and **strategies**.
+So far we’ve explored the importance of balancing innovation and franchise
+operations and the rules that effective loonshot nurturers have adopted to do
+just that. In this blink, we’ll take a closer look at two different types of
+loonshots in action: game-changing **products** and **strategies**.
 
-Let’s start with product-driven innovation. Few companies in American business history relied as heavily on cutting-edge products as Pan Am airlines. Founded by JT Trippe in the 1920s, Pan Am started out as a taxi service flying wealthy New York couples to Long Island. It was a popular route, but there was a problem: the repurposed World-War-One-era planes Trippe was using only seated one passenger. His solution? Import state-of-the-art French engines, move the fuel tanks to the outside of the fuselage and add another seat.
+Let’s start with product-driven innovation. Few companies in American business
+history relied as heavily on cutting-edge products as Pan Am airlines. Founded
+by JT Trippe in the 1920s, Pan Am started out as a taxi service flying wealthy
+New York couples to Long Island. It was a popular route, but there was a
+problem: the repurposed World-War-One-era planes Trippe was using only seated
+one passenger. His solution? Import state-of-the-art French engines, move the
+fuel tanks to the outside of the fuselage and add another seat.
 
-It was the kind of tech-driven hack he’d repeat again and again. By the 1960s, Pan Am had launched the Jet Age – the beginning of our era of cheap mass aviation – and became the largest airline in the world. All of that was down to the early adoption of the latest products, especially new types of aircraft engine. In 1965, Pan Am signed the largest corporate deal in history and launched its fleet of Boeing 747s.
+It was the kind of tech-driven hack he’d repeat again and again. By the 1960s,
+Pan Am had launched the Jet Age – the beginning of our era of cheap mass
+aviation – and became the largest airline in the world. All of that was down to
+the early adoption of the latest products, especially new types of aircraft
+engine. In 1965, Pan Am signed the largest corporate deal in history and
+launched its fleet of Boeing 747s.
 
-Pan Am prospered – until disaster struck. In 1987, the US government deregulated the airline industry. For 50 years, the price of everything from seats to cocktails had been overseen by the central authorities. Now, the market set the rates. Pan Am was suddenly surrounded by competitors who could offer cheaper tickets and pay their workers much less than Pan Am’s pre-deregulation contracts required it to. Pan Am had the best jets, but no one wanted to fly in them. It was the beginning of the end. In 1991, the company went bust.
+Pan Am prospered – until disaster struck. In 1987, the US government
+deregulated the airline industry. For 50 years, the price of everything from
+seats to cocktails had been overseen by the central authorities. Now, the
+market set the rates. Pan Am was suddenly surrounded by competitors who could
+offer cheaper tickets and pay their workers much less than Pan Am’s
+pre-deregulation contracts required it to. Pan Am had the best jets, but no one
+wanted to fly in them. It was the beginning of the end. In 1991, the company
+went bust.
 
-Other airlines prospered in the new business environment. Their secret? Well, take American Airlines. Rather than focusing on glamorous new products, it concentrated on strategic innovation. Shortly after deregulation, it introduced America’s first two-tier pay system. Employees hired before 1978 retained their old salaries while later hires entered the lower-pay “B scale.” Those savings allowed American Airlines to buy new planes, expand the company, create new jobs and keep skeptical unions onside. It was a canny move: by lowering average labor costs, American leveraged the benefits of being a large company and closed the gap on start-ups with smaller overheads but more limited reach.
+Other airlines prospered in the new business environment. Their secret? Well,
+take American Airlines. Rather than focusing on glamorous new products, it
+concentrated on strategic innovation. Shortly after deregulation, it introduced
+America’s first two-tier pay system. Employees hired before 1978 retained their
+old salaries while later hires entered the lower-pay “B scale.” Those savings
+allowed American Airlines to buy new planes, expand the company, create new
+jobs and keep skeptical unions onside. It was a canny move: by lowering average
+labor costs, American leveraged the benefits of being a large company and
+closed the gap on start-ups with smaller overheads but more limited reach.
 
 ## Leaders who fail to take a backseat risk leading their organizations down blind alleys.
 
-We’ve discussed a couple of reasons organizations miss loonshots, but there’s one culprit we haven’t gotten to yet: overweening leaders who champion their favored loonshots come hell or high water.
+We’ve discussed a couple of reasons organizations miss loonshots, but there’s
+one culprit we haven’t gotten to yet: overweening leaders who champion their
+favored loonshots come hell or high water.
 
-Call it the **Moses Trap** – the reliance on holy leaders. Let’s take a look at one of the most innovative companies of the twentieth century to see how it works. Established in 1937 by Edwin Land, the consumer electronics giant Polaroid was responsible for a breathtaking series of advances in photography. Over 30 years, Polaroid pioneered sepia and black-and-white prints, automatic exposure, instant color printing, the SX-70 all-in-one foldable camera and sonar autofocus.
+Call it the **Moses Trap** – the reliance on holy leaders. Let’s take a look at
+one of the most innovative companies of the twentieth century to see how it
+works. Established in 1937 by Edwin Land, the consumer electronics giant
+Polaroid was responsible for a breathtaking series of advances in photography.
+Over 30 years, Polaroid pioneered sepia and black-and-white prints, automatic
+exposure, instant color printing, the SX-70 all-in-one foldable camera and
+sonar autofocus.
 
-But in 1977, Polaroid took a wrong turn when Land presented the Polavision camera. It was a technological masterpiece. Weighing less than most hardcover books, it could process beautifully rendered, high-detail three-minute film negatives in 90 seconds. The press hailed it as Land’s crowning achievement, and Polaroid began churning out hundreds of thousands of Polavisions.
+But in 1977, Polaroid took a wrong turn when Land presented the Polavision
+camera. It was a technological masterpiece. Weighing less than most hardcover
+books, it could process beautifully rendered, high-detail three-minute film
+negatives in 90 seconds. The press hailed it as Land’s crowning achievement,
+and Polaroid began churning out hundreds of thousands of Polavisions.
 
-So why you haven’t heard of the Polavision? Well, consumers didn’t want it. To begin with, it was expensive: in 2018 dollars, the camera cost $2,500. The single-use film cassettes, meanwhile, came in at $30 a pop, making both regular videotapes and Super 8 film much cheaper. More importantly, digital cameras – the true product of the future – hit the market shortly after Polavision’s launch.
+So why you haven’t heard of the Polavision? Well, consumers didn’t want it. To
+begin with, it was expensive: in 2018 dollars, the camera cost $2,500. The
+single-use film cassettes, meanwhile, came in at $30 a pop, making both regular
+videotapes and Super 8 film much cheaper. More importantly, digital cameras –
+the true product of the future – hit the market shortly after Polavision’s
+launch.
 
-So why did it take Polaroid until **1996** to produce its first digital camera, over a decade later than Sony, Canon and Nikon? Here’s the crazy thing: recently declassified US government documents show that Land knew all about the advantages of digital photography – in fact, he’d been instrumental in persuading President Nixon to adopt it for military purposes as early as 1971!
+So why did it take Polaroid until **1996** to produce its first digital camera,
+over a decade later than Sony, Canon and Nikon? Here’s the crazy thing:
+recently declassified US government documents show that Land knew all about the
+advantages of digital photography – in fact, he’d been instrumental in
+persuading President Nixon to adopt it for military purposes as early as 1971!
 
-Remember the Bush-Vail Rules? Land pretty much flouted them all. Soldiers just weren’t very important to him. And rather than creating a favorable climate for the best ideas to thrive and taking a back seat, he literally held the keys to the company’s research labs. Land’s decisions always took precedence over his team leaders’ calls. And what Land really loved was **film**, not cameras. When the Polavision project ended in failure, Land brought a visitor to the warehouse in which the cameras had ended up. Asked why he wanted to show anyone such a sad scene, Land replied that he wanted him to “see what hubris looks like.”
+Remember the Bush-Vail Rules? Land pretty much flouted them all. Soldiers just
+weren’t very important to him. And rather than creating a favorable climate for
+the best ideas to thrive and taking a back seat, he literally held the keys to
+the company’s research labs. Land’s decisions always took precedence over his
+team leaders’ calls. And what Land really loved was **film**, not cameras. When
+the Polavision project ended in failure, Land brought a visitor to the
+warehouse in which the cameras had ended up. Asked why he wanted to show anyone
+such a sad scene, Land replied that he wanted him to “see what hubris looks
+like.”
 
 ## The West’s rapid development was a product of the ultimate loonshot – the Scientific Revolution.
 
-So far we’ve looked at organizations’ internal structures. In this blink, we’ll zoom out and take a look at loonshot nurseries on a macroscale to see what we can learn about the context in which they operate. To get us started, let’s think back to that **Luke Starkiller** script. In a parallel timeline the **Star Wars** franchise wouldn’t have ever seen the light of day. So how did “Jedi,” “lightsaber” and “Sith” become household names?
+So far we’ve looked at organizations’ internal structures. In this blink, we’ll
+zoom out and take a look at loonshot nurseries on a macroscale to see what we
+can learn about the context in which they operate. To get us started, let’s
+think back to that **Luke Starkiller** script. In a parallel timeline the
+**Star Wars** franchise wouldn’t have ever seen the light of day. So how did
+“Jedi,” “lightsaber” and “Sith” become household names?
 
-Here’s the short answer: Hollywood had more than one studio. Put differently: all the scriptwriters had to do to get **Star Wars** off the ground was keep asking until someone said yes. And that’s true of loonshots in general. As long as there’s another door to knock on, every crazy idea has a chance. That’s why the context outside an organization matters so much. The best example of that is the ultimate loonshot – the **Scientific Revolution**.
+Here’s the short answer: Hollywood had more than one studio. Put differently:
+all the scriptwriters had to do to get **Star Wars** off the ground was keep
+asking until someone said yes. And that’s true of loonshots in general. As long
+as there’s another door to knock on, every crazy idea has a chance. That’s why
+the context outside an organization matters so much. The best example of that
+is the ultimate loonshot – the **Scientific Revolution**.
 
-That’s basically the idea that the world is governed by universal laws of nature which can be discovered through empirical observation and experiment. Today, that’s pretty much commonsensical, but for millennia, truth was determined by the say-so of rulers and religious authorities. That changed when we first figured out that the Earth and planets followed an elliptical orbit around the sun.
+That’s basically the idea that the world is governed by universal laws of
+nature which can be discovered through empirical observation and experiment.
+Today, that’s pretty much commonsensical, but for millennia, truth was
+determined by the say-so of rulers and religious authorities. That changed when
+we first figured out that the Earth and planets followed an elliptical orbit
+around the sun.
 
-That discovery is usually credited to a sixteenth-century Danish astronomer called Tycho Brahe and his assistant Johannes Kepler, the author of the 1609 book **New Astronomy** – the text that kickstarted the Scientific Revolution. But here’s the thing: a Chinese scholar called Shen Kuo had already reached the same conclusion almost half a century earlier! But as we know, China – once the world’s most advanced power – declined while the West went from strength to strength. Why?
+That discovery is usually credited to a sixteenth-century Danish astronomer
+called Tycho Brahe and his assistant Johannes Kepler, the author of the 1609
+book **New Astronomy** – the text that kickstarted the Scientific Revolution.
+But here’s the thing: a **Chinese scholar called Shen Kuo had already reached
+the same conclusion almost half a century earlier**! But as we know, China –
+once the world’s most advanced power – declined while the West went from
+strength to strength. Why?
 
-Well, context. Both Shen and Tycho fell out with their rulers when they asked for money to confirm their findings. Shen, however, lived in an empire with a single, all-powerful ruler; Tycho, by contrast, lived in a continent divided between hundreds of smaller, competing states. When Shen lost his backers, his ideas were quashed for good – the only studio in town had turned him down. Tycho meanwhile quickly found someone else willing to take a gamble on his loony ideas – King Rudolf II of Prague.
+Well, context. Both Shen and Tycho fell out with their rulers when they asked
+for money to confirm their findings. Shen, however, lived in an empire with a
+single, all-powerful ruler; Tycho, by contrast, lived in a continent divided
+between hundreds of smaller, competing states. When Shen lost his backers, his
+ideas were quashed for good – the only studio in town had turned him down.
+Tycho meanwhile quickly found someone else willing to take a gamble on his
+loony ideas – King Rudolf II of Prague.
 
-That just goes to show how important it is to protect fragile ideas, create structures that nurture out-of-the-box thinking and leave artists to do their thing without excessive meddling.
+That just goes to show how important it is to protect fragile ideas, create
+structures that nurture out-of-the-box thinking and leave artists to do their
+thing without excessive meddling.
 
 ## What to read next: Originals, by Adam Grant
 
@@ -286,6 +389,4 @@ down the pipeline.
 
 Organizational psychologist and author, Adam Grant believes he’s found the
 answer: originality isn’t the product of innate genius but something that can
-be learned – you just need to know which tools to use. So if these blinks have
-got your creative juices flowing, and you’re ready to delve deeper, check out
-our blinks to **Originals**.
+be learned – you just need to know which tools to use. 
