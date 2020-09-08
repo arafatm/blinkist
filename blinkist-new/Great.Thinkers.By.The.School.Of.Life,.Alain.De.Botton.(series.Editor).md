@@ -1,6 +1,30 @@
+# Great Thinkers
+
 ![Great Thinkers](https://images.blinkist.com/images/books/5bd070806cee070007879ff6/3_4/470.jpg)
 
-# Great Thinkers
+## Final summary
+
+The great thinkers of the past rarely become outdated or irrelevant. The wisdom
+they wrote down, be it decades or centuries ago, can still be used today to
+help us live better lives. 
+
+From the Stoics, who can help us gain perspective
+and clarity in life, to Lao Tzu, who reminds us that life is sweet when you
+follow nature’s rhythm and take your time, there is much to learn when it comes
+to improving our quality of life. 
+
+Jane Jacobs and Jane Austen also have words
+of wisdom on what’s important in life and in love. 
+
+There’s a good reason these
+people, among many others, are still considered to be among humanity’s great
+thinkers.
+
+## Actionable advice:
+
+**Be humble and look at the stars.**
+
+The Stoics of ancient Greece were already well aware that humans tend to exaggerate the importance of their individual lives. In order to correct this imbalance of perspective, they encouraged people to regularly observe the planets and stars in the heavens. This celestial backdrop helps us understand that our worries and hopes might not be so significant in the grand scheme of things.
 
 ## What’s in it for me? Learn time-tested wisdom from some of the most brilliant minds in history.
 
@@ -190,22 +214,6 @@ But this scenario gives Austen ample opportunity to expose the absurdity of soci
 
 Unfortunately, this message is still one that bears repeating, as many more people could benefit from paying attention to a person’s true character, rather than their wealth and appearance.
 
-## Final summary
-
-The key message in these blinks:
-
-**The great thinkers of the past rarely become outdated or irrelevant. The wisdom they wrote down, be it decades or centuries ago, can still be used today to help us live better lives. From the Stoics, who can help us gain perspective and clarity in life, to Lao Tzu, who reminds us that life is sweet when you follow nature’s rhythm and take your time, there is much to learn when it comes to improving our quality of life. Jane Jacobs and Jane Austen also have words of wisdom on what’s important in life and in love. There’s a good reason these people, among many others, are still considered to be among humanity’s great thinkers.**
-
-Actionable advice:
-
-**Be humble and look at the stars.**
-
-The Stoics of ancient Greece were already well aware that humans tend to exaggerate the importance of their individual lives. In order to correct this imbalance of perspective, they encouraged people to regularly observe the planets and stars in the heavens. This celestial backdrop helps us understand that our worries and hopes might not be so significant in the grand scheme of things.
-
-**Got feedback?**
-
-We’d sure love to hear what you think about our content! Just drop an email to remember@blinkist.com with the title of this book as the subject line and share your thoughts!
-
-**Suggested** **further** **reading: ******Philosophy for Life ******by Jules Evans**
+## Suggested further reading: Philosophy for Life by Jules Evans
 
 These blinks will teach you the ancient wisdom that inspired the modern science of well-being. Your teachers are the greatest ancient philosophers, and each lesson reveals questions and techniques that can help you on your path to leading a good life. **Philosophy for Life** has been published in 19 countries and was selected as a **Times **book of the year 2013.
