@@ -19,11 +19,13 @@ urllib3.disable_warnings()
 def get_element_from_request(url, element, class_):
     response = http.request('GET', url)
     soup = BeautifulSoup(response.data.decode('utf-8'), "html5lib")
+    print(soup)
     return soup.find(element, class_ = class_)
 
 # Get meta data
 print("getting daily page")
 container = get_element_from_request('https://www.blinkist.com/nc/daily', 'div', "daily-book__grid")
+print(container)
 
 title = container.find('h3', 'daily-book__headline').string.strip()
 author = container.find('div', 'daily-book__author').string.strip()[3:]
