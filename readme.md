@@ -23,7 +23,7 @@ BOOK="yourbook" && grep -E "\`.*\`" $BOOK |sed "s/$/ -- $BOOK /" |sed "s/\`//g" 
 make sure to set up deploykey in repo
 ```
 sudo apt install python3-pip
-pip3 install bs4 html5lib tomd urllib3
+pip3 install bs4 html5lib tomd urllib3 requests
 
 python3 blinkist_daily_scraper.py # to test
 ```
